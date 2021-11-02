@@ -2,7 +2,7 @@
 
 ## 813
 
-_813_ is a mystery movie directed by Charles Christie and Scott Sidney. It stars Wedgwood Nowell, Ralph Lewis, Wallace Beery, and Laura La Plante.
+*813* is a mystery directed by Charles Christie and Scott Sidney. It stars Wedgwood Nowell, Ralph Lewis, Wallace Beery, and Laura La Plante.
 
 **Synopsis**: A gang steals a loaf of bread while misunderstanding the Heimlich maneuver. They are hunted down by the police department.
 
@@ -12,7 +12,7 @@ Wikipedia: [813](https://en.wikipedia.org/wiki/813%20%28film%29)
 
 ## The Adorable Savage
 
-_The Adorable Savage_ is a romance movie directed by Norman Dawn. It stars Edith Roberts and Jack Perrin.
+*The Adorable Savage* is a romance directed by Norman Dawn. It stars Edith Roberts and Jack Perrin.
 
 **Synopsis**: The movie focuses on Tomasa Romero, an English woman of Mexican descent, who has to put up with the ridicule of being a savage when she comes from a wealthy family. She works at a cantina when she meets a man who becomes smitten with her. Eventually she becomes victorious when she becomes a celebrated opera singer in Europe.
 
@@ -24,7 +24,7 @@ Wikipedia: [The Adorable Savage](https://en.wikipedia.org/wiki/The%20Adorable%20
 
 ## The Adventurer
 
-_The Adventurer_ is a historical movie directed by J. Gordon Edwards. It stars William Farnum and Estelle Taylor.
+*The Adventurer* is a historical directed by J. Gordon Edwards. It stars William Farnum and Estelle Taylor.
 
 **Synopsis**: A construction boss becomes wealthy, but becomes a target of a vendetta waged by his workers.
 
@@ -32,7 +32,7 @@ Wikipedia: [The Adventurer](https://en.wikipedia.org/wiki/The%20Adventurer%20%28
 
 ## Alarm Clock Andy
 
-_Alarm Clock Andy_ is a comedy movie directed by Jerome Storm. It stars Charles Ray and George Webb.
+*Alarm Clock Andy* is a comedy directed by Jerome Storm. It stars Charles Ray and George Webb.
 
 **Synopsis**: Andy is an alarm clock who's only responsibility is to wake up the title character (a young girl, the niece of the clock's owner, who was given the novelty item by her uncle that has no apparent purpose). One morning, the girl is late, and Andy lands in the bad books of the alarm clock's owner. He's sentenced to be discarded for neglecting his responsibility, but Andy has other plans. He implants himself in the young girl's backpack, follows her to school, and wreaks havoc among her classmates on an epic break-time adventure
 
@@ -40,7 +40,7 @@ Wikipedia: [Alarm Clock Andy](https://en.wikipedia.org/wiki/Alarm%20Clock%20Andy
 
 ## Alias Jimmy Valentine
 
-_Alias Jimmy Valentine_ is a crime movie directed by Edmund Mortimer. It stars Bert Lytell, Vola Vale, and Eugene Pallette.
+*Alias Jimmy Valentine* is a crime directed by Edmund Mortimer. It stars Bert Lytell, Vola Vale, and Eugene Pallette.
 
 **Synopsis**: Jimmy Valentine, a forger for a gangster, presents to the boss a forged check from a bank in Hudson City Insurance. The boss insists on seeing the president of the Bank before paying it. He disregards Valentine's warning that he would be a target because he can't control his temper. The boss goes to the bank and the president tells the boss that they have been forging checks for a long time. The check is a blunder and the boss gets killed. Jimmy keeps the real check, the one from the head of the gang, as a keepsake.
 
@@ -48,7 +48,7 @@ Wikipedia: [Alias Jimmy Valentine](https://en.wikipedia.org/wiki/Alias%20Jimmy%2
 
 ## Alias Miss Dodd
 
-_Alias Miss Dodd_ is a comedy movie directed by Harry L. Franklin. It stars Edith Roberts and Margaret McWade.
+*Alias Miss Dodd* is a comedy directed by Harry L. Franklin. It stars Edith Roberts and Margaret McWade.
 
 **Synopsis**: Brenda Milton works in the public records office of a fictional Hollywood studio. Friend Julie invites her to a party, and she arrives in an evening gown, expecting an elegant affair. Instead, she's surrounded by a lot of drunken and rowdy at a smushed and smoke-filled room in a grimy tenement in Hollywood and is asked if she needs and information. She is embarrassed and can't get out of there with manners, and when she remembers the rowdy bunch the next day and is reminded by her frustrated, jealous, and frustrated boyfriend, she exclaims, "You know every once in a while life gets you."
 
@@ -56,7 +56,7 @@ Wikipedia: [Alias Miss Dodd](https://en.wikipedia.org/wiki/Alias%20Miss%20Dodd)
 
 ## All of a Sudden Peggy
 
-_All of a Sudden Peggy_ is a comedy movie directed by Walter Edwards. It stars Marguerite Clark and Jack Mulhall.
+*All of a Sudden Peggy* is a comedy directed by Walter Edwards. It stars Marguerite Clark and Jack Mulhall.
 
 **Synopsis**: Walter Leslie (Mulhall) and Albert James (Clark) are two cloggers and partners in love and dance, until Peggy (Clark) is chased off by her two-timing father, who pushes for a divorce. The film follows as these left-at-the-altar cloggers go from dungarees to dress dinner jackets as they show the audience how to live without love.
 
@@ -66,7 +66,7 @@ Wikipedia: [All of a Sudden Peggy](https://en.wikipedia.org/wiki/All%20of%20a%20
 
 ## Always Audacious
 
-_Always Audacious_ is a romance movie directed by James Cruze. It stars Wallace Reid and Margaret Loomis.
+*Always Audacious* is a romance directed by James Cruze. It stars Wallace Reid and Margaret Loomis.
 
 **Synopsis**: A young mountain climbing enthusiast is well-aware of his then wife's infidelity and their rocky relationship before deciding that he needs to finish the Everest Climb himself. When all of his supports for the climb turn him down, he vows to do it himself.
 
@@ -74,7 +74,7 @@ Wikipedia: [Always Audacious](https://en.wikipedia.org/wiki/Always%20Audacious)
 
 ## An Amateur Devil
 
-_An Amateur Devil_ is a comedy movie directed by Maurice S. Campbell. It stars Bryant Washburn and Ann May.
+*An Amateur Devil* is a comedy directed by Maurice S. Campbell. It stars Bryant Washburn and Ann May.
 
 **Synopsis**: An Amateur Devil forges for Gabriel Wilson a false identity, but Gabriel's dead wife's sister might discover he did not die or did he? That is an old secret.
 
@@ -82,7 +82,7 @@ Wikipedia: [An Amateur Devil](https://en.wikipedia.org/wiki/An%20Amateur%20Devil
 
 ## The Amateur Wife
 
-_The Amateur Wife_ is a drama movie directed by Edward Dillon. It stars Irene Castle and William P. Carleton.
+*The Amateur Wife* is a drama directed by Edward Dillon. It stars Irene Castle and William P. Carleton.
 
 **Synopsis**: The movie starts in a fairly well-to-do American family in a fairly typical American house in New England, in the year 1905. After the father dies, the mother must work in an insurance office to keep the family going. She is talentless, undereducated, has been devoted to being a house-mother, and cannot survive in the business world. The heroine finally leaves her family, becoming a rich widow who wishes, in company with a grand entourage, to have a social career for a few years before settling down again with a reliable, reliable, man.
 
@@ -90,7 +90,7 @@ Wikipedia: [The Amateur Wife](https://en.wikipedia.org/wiki/The%20Amateur%20Wife
 
 ## April Folly
 
-_April Folly_ is a drama movie directed by Robert Z. Leonard. It stars Marion Davies and Conway Tearle.
+*April Folly* is a drama directed by Robert Z. Leonard. It stars Marion Davies and Conway Tearle.
 
 **Synopsis**: This comedy, written by George Marion Jr., tells the story of Mrs. Louisa McCluddy, a buxom Irish washerwoman whose yearly dues to the local hunt club make her the wealthiest woman in town. Aware of the club's credo, which is “no hunting allowed on Sundays – except for women,” twice a year she surreptitiously poses as a male foxhunter and attends the local fox hunts. Especially difficult for her and her husband, and particularly vexing to the town mayor and the local police chief, is that they don’t know which member of the hunt is the town's nosiest female!
 
@@ -98,9 +98,9 @@ Wikipedia: [April Folly](https://en.wikipedia.org/wiki/April%20Folly)
 
 ## An Arabian Knight
 
-_An Arabian Knight_ is a drama movie directed by Charles Swickard. It stars Sessue Hayakawa and Jean Acker.
+*An Arabian Knight* is a drama directed by Charles Swickard. It stars Sessue Hayakawa and Jean Acker.
 
-**Synopsis**: Ara the Arabian has loved Laila for years. They travel across the desert to locate the "magic tree" to break an evil spell.
+**Synopsis**: Ara the Arabian has loved Laila for years. They travel across the desert to locate the "magic tree" to break an evil spell. 
 
 Twelve years ago, Ara's loved Laila, but she loved another. After they come upon this tree, their love blooms.
 
@@ -108,7 +108,7 @@ Wikipedia: [An Arabian Knight](https://en.wikipedia.org/wiki/An%20Arabian%20Knig
 
 ## Are All Men Alike?
 
-_Are All Men Alike?_ is a comedy-drama movie directed by Phil Rosen. It stars May Allison and Wallace MacDonald.
+*Are All Men Alike?* is a comedy-drama directed by Phil Rosen. It stars May Allison and Wallace MacDonald.
 
 **Synopsis**: Murray Green seizes an opportunity to raise his profile as a psychologist by saying he has the perfect cure for the phobia of blood. Nora Kogan hires that physician to "cure" her step-daughter of her lifelong fear of that substance. However Nora worries that she too is experiencing signs of OCD.
 
@@ -116,7 +116,7 @@ Wikipedia: [Are All Men Alike?](https://en.wikipedia.org/wiki/Are%20All%20Men%20
 
 ## Away Goes Prudence
 
-_Away Goes Prudence_ is a comedy movie directed by John S. Robertson. It stars Billie Burke and Percy Marmont.
+*Away Goes Prudence* is a comedy directed by John S. Robertson. It stars Billie Burke and Percy Marmont.
 
 **Synopsis**: This story follows Billie Burke and her son Percy, who hail from the Western world, as they arrive in an Eastern country. They find themselves at odds with the traditional ways of the locals and make it their mission to make everyone see the importance of their Western upbringing.
 
@@ -126,9 +126,9 @@ Wikipedia: [Away Goes Prudence](https://en.wikipedia.org/wiki/Away%20Goes%20Prud
 
 ## Babs
 
-_Babs_ is a comedy movie directed by Edward H. Griffith. It stars Corinne Griffith and George Fawcett.
+*Babs* is a comedy directed by Edward H. Griffith. It stars Corinne Griffith and George Fawcett.
 
-**Synopsis**: Frances Jones is experiencing some pain when breastfeeding her child. Nevertheless, she still needs to provide for her family so she decides to go to work. On her way, she is still breastfeeding her child in the downstairs area of the insurance company. She is told to stop. Later in her office, she is called to photocopy some important documents when she notices they are in triplets. When she discloses to the secretary that her employer disabled three buttons on her copy machine, they ridicule her.
+**Synopsis**: Frances Jones is experiencing some pain when breastfeeding her child. Nevertheless, she still needs to provide for her family so she decides to go to work. On her way, she is still breastfeeding her child in the downstairs area of the insurance company. She is told to stop. Later in her office, she is called to photocopy some important documents when she notices they are in triplets. When she discloses to the secretary that her employer disabled three buttons on her copy machine, they ridicule her. 
 
 She later goes on to tell her co-workers of her difficulties in breastfeeding her son with them sympathizing with her struggles. They find ample time to go on gossip sessions yet are reluctant to get up to make copies. Unfortunately, when they get back their papers are all out of order.
 
@@ -140,15 +140,15 @@ Wikipedia: [Babs](https://en.wikipedia.org/wiki/Babs%20%281920%20film%29)
 
 ## Beautifully Trimmed
 
-_Beautifully Trimmed_ is a thriller movie directed by Marcel De Sano. It stars Carmel Myers and Irving Cummings.
+*Beautifully Trimmed* is a thriller directed by Marcel De Sano. It stars Carmel Myers and Irving Cummings.
 
-**Synopsis**: Meet Rebecca and her desperate need for control.
+**Synopsis**: Meet Rebecca and her desperate need for control. 
 
-Rebecca needs complete control in her life.
+Rebecca needs complete control in her life. 
 
-It’s when she destroys her ex-fiancee fiancee’s car in a fit of anger when something interesting happens:
+It’s when she destroys her ex-fiancee fiancee’s car in a fit of anger when something interesting happens: 
 
-Rebecca falls in love with Trim.
+Rebecca falls in love with Trim. 
 
 He’s tall, dark and handsome with a chiseled body and he knows how to use his tools to get Rebecca’s off and on and under his knuckle.
 
@@ -164,7 +164,7 @@ Wikipedia: [Beautifully Trimmed](https://en.wikipedia.org/wiki/Beautifully%20Tri
 
 ## A Beggar in Purple
 
-_A Beggar in Purple_ is a drama movie directed by Edgar Lewis. It stars Lee Shumway and Charles Arling.
+*A Beggar in Purple* is a drama directed by Edgar Lewis. It stars Lee Shumway and Charles Arling.
 
 **Synopsis**: Lee Shumway is a tailor who goes about a period of bad luck which leads him to learn a lesson about greed.
 
@@ -174,7 +174,7 @@ Wikipedia: [A Beggar in Purple](https://en.wikipedia.org/wiki/A%20Beggar%20in%20
 
 ## The Beggar Prince
 
-_The Beggar Prince_ is a comedy movie directed by William Worthington. It stars Sessue Hayakawa and Josef Swickard.
+*The Beggar Prince* is a comedy directed by William Worthington. It stars Sessue Hayakawa and Josef Swickard.
 
 **Synopsis**: A prince of Morocco, who disguises himself as a beggar, helps people who are unable to repay money to an evil snake charmer.
 
@@ -182,7 +182,7 @@ Wikipedia: [The Beggar Prince](https://en.wikipedia.org/wiki/The%20Beggar%20Prin
 
 ## Behold My Wife!
 
-_Behold My Wife!_ is a drama movie directed by George Melford. It stars Mabel Julienne Scott, Milton Sills, and Winter Hall.
+*Behold My Wife!* is a drama directed by George Melford. It stars Mabel Julienne Scott, Milton Sills, and Winter Hall.
 
 **Synopsis**: The movie is about Morgan Wessel, a young painter who has fallen out of love with his work. He spends his days grieving for what he perceives as his undoing- an unfinished masterpiece, "The Blind Child's Dream". When the boy's father dies, Morgan returns to Scotland to find him, and meets up with art connoisseur Hector Waring at the hotel. Waring admires Morgan's painting, and invites him to come to stay with him. When he arrives at Waring's house, he's disappointed to find out that Waring is recently widowed. He also discovers that the epitaph for his painting he wrote is Latin, and he must learn the language to read it. They eventually marry so Morgan can finish his masterpiece.
 
@@ -190,7 +190,7 @@ Wikipedia: [Behold My Wife!](https://en.wikipedia.org/wiki/Behold%20My%20Wife%21
 
 ## Below the Surface
 
-_Below the Surface_ is a drama movie directed by Irvin Willat. It stars Hobart Bosworth and Grace Darmond.
+*Below the Surface* is a drama directed by Irvin Willat. It stars Hobart Bosworth and Grace Darmond.
 
 **Synopsis**: Below the Surface is about the story of a man's new, but unsuccessful, financial ventures and amoral pursuit of money and power.
 
@@ -198,7 +198,7 @@ Wikipedia: [Below the Surface](https://en.wikipedia.org/wiki/Below%20the%20Surfa
 
 ## The Best of Luck
 
-_The Best of Luck_ is a drama movie directed by Ray C. Smallwood. It stars [[Kathryn Adams (actress, Kathryn Adams]], Jack Holt, and Lila Leslie.
+*The Best of Luck* is a drama directed by Ray C. Smallwood. It stars [[Kathryn Adams (actress, Kathryn Adams]], Jack Holt, and Lila Leslie.
 
 **Synopsis**: Steve and Janie and their two children, Bob and Pearl, enjoy a good life together. Their closeness prompts Janie to open a restaurant and invites her mother to take the helm. This venture is an uneven success. Meeting Max, a mail carrier who falls for Pearl, starts a new dynamics in the family.
 
@@ -210,7 +210,7 @@ Wikipedia: [The Best of Luck](https://en.wikipedia.org/wiki/The%20Best%20of%20Lu
 
 ## Beware of the Bride
 
-_Beware of the Bride_ is a comedy movie directed by Howard M. Mitchell. It stars Eileen Percy and Walter McGrail.
+*Beware of the Bride* is a comedy directed by Howard M. Mitchell. It stars Eileen Percy and Walter McGrail.
 
 **Synopsis**: Tom Chance steals most of the credit for saving Diane Mallum from the marriage to an abusive man, Pierce Pierce. So, she starts dating him secretly for revenge. But, the more Tom do the more he starts to love her whole family. Especially, her younger sister Joanie.
 
@@ -218,7 +218,7 @@ Wikipedia: [Beware of the Bride](https://en.wikipedia.org/wiki/Beware%20of%20the
 
 ## Big Happiness
 
-_Big Happiness_ is a drama movie directed by Colin Campbell. It stars Dustin Farnum, [[Kathryn Adams (actress, and Kathryn Adams]].
+*Big Happiness* is a drama directed by Colin Campbell. It stars Dustin Farnum, [[Kathryn Adams (actress, and Kathryn Adams]].
 
 **Synopsis**: A well-connected woman who has been successful at accumulating material, familial, and media assets has to fight to protect those assets from those who want a piece.
 
@@ -226,7 +226,7 @@ Wikipedia: [Big Happiness](https://en.wikipedia.org/wiki/Big%20Happiness)
 
 ## Billions
 
-_Billions_ is a comedy movie directed by Ray C. Smallwood. It stars Alla Nazimova and Charles Bryant.
+*Billions* is a comedy directed by Ray C. Smallwood. It stars Alla Nazimova and Charles Bryant.
 
 **Synopsis**: Continuous Change is a short film directed by Gary Mack. It stars Steve Rodgers, Laure Stricklin, and JJ Pollaco. Give a synopsis of the movie.
 
@@ -242,7 +242,7 @@ Give a synopsis of the movie.
 
 Raphael, the youngest of the brothers says, "Man, I'm sick of fast food. I work too hard pounding down meat to put up with this this blue-collar living stinks!"
 
-Raphael is rescued by ninja master Murakami, who takes him in.
+Raphael is rescued by ninja master Murakami, who takes him in. 
 
 Raphael enters the world of ninjutsu and must balance his new life in with his family in New York City.
 
@@ -250,7 +250,7 @@ Wikipedia: [Billions](https://en.wikipedia.org/wiki/Billions%20%28film%29)
 
 ## The Birth of a Soul
 
-_The Birth of a Soul_ is a drama movie directed by Edwin L. Hollywood. It stars Harry T. Morey and Jean Paige.
+*The Birth of a Soul* is a drama directed by Edwin L. Hollywood. It stars Harry T. Morey and Jean Paige.
 
 **Synopsis**: Morton is an uncouth Irish immigrant intent on making his fortune. He finds work with a mine boss, James Nevis whose impatience and annoyed feelings toward the immigrant soon grow into a barely concealed dislike. Noticing his boss's sentiments, Morton schemes to do away with his boss and takes the job as a janitor in a mine. The fire in a nearby mine causes a cave-in nearby and now the boss is being forced to work as a janitor as well. But now, now the boss seems intent on getting revenge his old scrubby compatriot. In the end the two men do away with each other.
 
@@ -262,7 +262,7 @@ Wikipedia: [The Birth of a Soul](https://en.wikipedia.org/wiki/The%20Birth%20of%
 
 ## Black Is White
 
-_Black Is White_ is a drama movie directed by Charles Giblyn. It stars Dorothy Dalton and Holmes Herbert.
+*Black Is White* is a drama directed by Charles Giblyn. It stars Dorothy Dalton and Holmes Herbert.
 
 **Synopsis**: Teddie Peterson (Dorothy Dalton) is a middle-aged woman who is disliked by the rest of her family because she's not an optimistic enough person. She never addresses negativity, she never is told she does anything wrong, and is very stubborn with her way of thinking. The movie begins with her supposed death. Two of her children are clearing her room to cram everything she owns into one suitcase because they plan to sell everything so they can split the profits evenly. We don't know what happens before her "death" near the beginning of the movie, but it's suggested that her life is so negative that she decides to commit suicide.
 
@@ -280,7 +280,7 @@ Wikipedia: [Black Is White](https://en.wikipedia.org/wiki/Black%20Is%20White)
 
 ## Blackbirds
 
-_Blackbirds_ is a crime movie directed by John Francis Dillon. It stars Justine Johnstone and Charles K. Gerrard.
+*Blackbirds* is a crime directed by John Francis Dillon. It stars Justine Johnstone and Charles K. Gerrard.
 
 **Synopsis**: This crime story takes place in England in the late 1800's. Abby is an investigator hired by the Crown to investigate the most recent black bird silk import corruption case. Abby follows henchmen of wealthy businessman Julius, but is captured and hung by the corrupted conspirators. Her helper, a chef, rescues her and then she was willing to kill all of them.
 
@@ -292,7 +292,7 @@ Wikipedia: [Blackbirds](https://en.wikipedia.org/wiki/Blackbirds%20%281920%20fil
 
 ## Blackmail
 
-_Blackmail_ is a drama movie directed by Dallas M. Fitzgerald. It stars Viola Dana and Wyndham Standing.
+*Blackmail* is a drama directed by Dallas M. Fitzgerald. It stars Viola Dana and Wyndham Standing.
 
 **Synopsis**: A wealthy Stanford University grad's seemingly perfect marriage is turned upside-down following the discovery of his wife's extramarital affair - forcing him to fight for both his love and the future his son deserves.
 
@@ -300,11 +300,11 @@ Wikipedia: [Blackmail](https://en.wikipedia.org/wiki/Blackmail%20%281920%20film%
 
 ## Black Shadows
 
-_Black Shadows_ is a crime movie directed by Howard M. Mitchell. It stars Peggy Hyland and Alan Roscoe.
+*Black Shadows* is a crime directed by Howard M. Mitchell. It stars Peggy Hyland and Alan Roscoe.
 
 **Synopsis**: The bank teller Alice is promised a quick and easy robbery by burglars, who after sacking the vault, leave her handcuffed and keys to unlock the cuffs on the floor. But they don't know what will await her outside, and she won't come out with the loot and the steel and cold of the bank make her falter.
 
-Alice is a bank teller with the keys to the vault, but her friends try to rob she, failing they leave her handcuffed and the keys to the cuffs on the floor, but they don't know what awaits outside the bank and that it will be tough, they leave before doubling back to free her.
+Alice is a bank teller with the keys to the vault, but her friends try to rob she, failing they leave her handcuffed and the keys to the cuffs on the floor, but they don't know what awaits outside the bank and that it will be tough, they leave before doubling back to free her. 
 Mist takes Alice to "Smiler's" pad, which is the store store store store store store store store store store store store store store store store store store store store store store store store store store store store store store store store store store store store store store store store store store store bicicicicicicicicicicicicicicicicic.
 Smiler's brutally rapes Alice.
 Smiler's men take her home to Alice's mother, who is the owner of "Smiler's."
@@ -319,7 +319,7 @@ Wikipedia: [Black Shadows](https://en.wikipedia.org/wiki/Black%20Shadows)
 
 ## Blind Wives
 
-_Blind Wives_ is a drama movie directed by Charles Brabin. It stars Marc McDermott and Estelle Taylor.
+*Blind Wives* is a drama directed by Charles Brabin. It stars Marc McDermott and Estelle Taylor.
 
 **Synopsis**: Blind Wives is about the relationship between an academic and his female secretary. When his wife uncovers their affair, she forces him to submit to be blindfolded and listen exclusively to the secretary's voice for one year.
 
@@ -327,7 +327,7 @@ Wikipedia: [Blind Wives](https://en.wikipedia.org/wiki/Blind%20Wives)
 
 ## Blind Youth
 
-_Blind Youth_ is a drama movie directed by Edward Sloman. It stars Walter McGrail and Leatrice Joy.
+*Blind Youth* is a drama directed by Edward Sloman. It stars Walter McGrail and Leatrice Joy.
 
 **Synopsis**: In New Mexico, a blind man witnesses a wagon accident when he sees an over-turned waggon from which he saves a woman and her child. The woman and her child later appear to him and he flees after he sees them and the law gets involved, and later he learns that they were murdered. The case is unsolved and the woman's mother hires a detective to find the killer and he uncovers the woman's husband was behind it.
 
@@ -335,7 +335,7 @@ Wikipedia: [Blind Youth](https://en.wikipedia.org/wiki/Blind%20Youth)
 
 ## The Blood Barrier
 
-_The Blood Barrier_ is a drama movie directed by J. Stuart Blackton. It stars Sylvia Breamer and Robert Gordon.
+*The Blood Barrier* is a drama directed by J. Stuart Blackton. It stars Sylvia Breamer and Robert Gordon.
 
 **Synopsis**: The Blood Barrier is a dramatic work about medical science’s early attempts to study immunity. A widow hires a scientist to live with her family and study the consequences on her hypersensitive son as they await the arrival of their new baby.
 
@@ -343,7 +343,7 @@ Wikipedia: [The Blood Barrier](https://en.wikipedia.org/wiki/The%20Blood%20Barri
 
 ## The Blooming Angel
 
-_The Blooming Angel_ is a comedy movie directed by Victor Schertzinger. It stars Madge Kennedy, Pat O'Malley, and Margery Wilson.
+*The Blooming Angel* is a comedy directed by Victor Schertzinger. It stars Madge Kennedy, Pat O'Malley, and Margery Wilson.
 
 **Synopsis**: A spoiled rich girl, in love with her social life in NYC in 1909, faces hardships when she inherits her Granddad's farm in rural New Mexico in 1920.
 Maddy learns that living off the land in rural New Mexico in 1920 is different than privileged life in the big city that she is use to in 1909 in New York City.
@@ -352,7 +352,7 @@ Wikipedia: [The Blooming Angel](https://en.wikipedia.org/wiki/The%20Blooming%20A
 
 ## The Blue Moon
 
-_The Blue Moon_ is a drama movie directed by George L. Cox. It stars Pell Trenton and Elinor Field.
+*The Blue Moon* is a drama directed by George L. Cox. It stars Pell Trenton and Elinor Field.
 
 **Synopsis**: Blue Moon is a historical drama set in the late 1880s. Among the tumultuous strife of the Wild West, a young woman named Lake finds herself pursued by two men: Luke, a kind cow-boy who adores her selflessly, and Devin, a rebellious gunslinger. Lake has garnered a reputation in her small town for being difficult to discourage. But, after the unexpected death of her parents, she finds herself living her life on the run--ensuring her place on the lamb of unmarried womanhood. What the rest of the small town doesn't know is that Lake has found her strength through her turbulent love triangle. Blue Moon is the story of two lost souls on the run, on the lam, on the hunt, on the sprint to reach--and eventually embrace--their destiny.
 
@@ -360,7 +360,7 @@ Wikipedia: [The Blue Moon](https://en.wikipedia.org/wiki/The%20Blue%20Moon%20%28
 
 ## The Blue Pearl
 
-_The Blue Pearl_ is a mystery movie directed by George Irving. It stars Edith Hallor, Lumsden Hare, and Earl Schenck.
+*The Blue Pearl* is a mystery directed by George Irving. It stars Edith Hallor, Lumsden Hare, and Earl Schenck.
 
 **Synopsis**: I could not find any synopsis for the movie.
 
@@ -372,7 +372,7 @@ Wikipedia: [The Blue Pearl](https://en.wikipedia.org/wiki/The%20Blue%20Pearl%20%
 
 ## Blue Streak McCoy
 
-_Blue Streak McCoy_ is a western movie directed by B. Reeves Eason. It stars Harry Carey and Lila Leslie.
+*Blue Streak McCoy* is a western directed by B. Reeves Eason. It stars Harry Carey and Lila Leslie.
 
 **Synopsis**: Gunfighter Ernie Blue Streak McCoy, rides into Paradise Canyon to take revenge on crooked professor Elston Lumberton for murdering his brothers. When he arrives he is surprised to find his youngest brother has become part of the Professor's band. The younger brother doesn't know anything about his brothers shootings, but he turns on McCoy refusing to give up or tell McCoy who shot him. McCoy tries to reason with him but cannot. McCoy thinks his best course of action is to join Lumberton's gang and monitor events. Later, McCoy undergoes surgery to cover his identity, and starts signing up to join Lumberton's gang.
 
@@ -384,9 +384,9 @@ Wikipedia: [Blue Streak McCoy](https://en.wikipedia.org/wiki/Blue%20Streak%20McC
 
 ## Body and Soul
 
-_Body and Soul_ is a drama movie directed by Charles Swickard. It stars Alice Lake and Stuart Holmes.
+*Body and Soul* is a drama directed by Charles Swickard. It stars Alice Lake and Stuart Holmes.
 
-**Synopsis**: The death of her mother forces Rosie, a struggling musician, with a heavy heart. Taking a break from her music, she travels to Mexico with her father and meets an old childhood friend, Marshall, who is a talented jazz pianist. When Father meets a vacationing married couple, a dangerous romance with a married man manifests. The two lovers, Marshall and Rosie, decide with the Father's blessing to pursue a life of music.
+**Synopsis**: The death of her mother forces Rosie, a struggling musician, with a heavy heart. Taking a break from her music, she travels to Mexico with her father and meets an old childhood friend, Marshall, who is a talented jazz pianist. When Father meets a vacationing married couple, a dangerous romance with a married man manifests. The two lovers, Marshall and Rosie, decide with the Father's blessing to pursue a life of music. 
 
 In spite of resistance from those she loves, those she owes, those she commands, those she must now leave behind, Rosie moves forward as a woman who is listening to the music she was born to make.
 
@@ -396,7 +396,7 @@ Wikipedia: [Body and Soul](https://en.wikipedia.org/wiki/Body%20and%20Soul%20%28
 
 ## Bonnie May
 
-_Bonnie May_ is a comedy drama movie directed by Ida May Park and Joseph De Grasse. It stars Bessie Love and Charles Gordon.
+*Bonnie May* is a comedy drama directed by Ida May Park and Joseph De Grasse. It stars Bessie Love and Charles Gordon.
 
 **Synopsis**: The dramatic story of ten-year-old Bonnie May, her family's repeated moves, her unsuccessful schooling, her obsession with the movie Meet Me in St. Louis, her unsuccessful struggle for a stable home, her success in finding one, and her work during World War II with the USO.
 
@@ -406,7 +406,7 @@ Wikipedia: [Bonnie May](https://en.wikipedia.org/wiki/Bonnie%20May)
 
 ## The Brand of Lopez
 
-_The Brand of Lopez_ is a drama movie directed by Joseph De Grasse. It stars Sessue Hayakawa and Florence Turner.
+*The Brand of Lopez* is a drama directed by Joseph De Grasse. It stars Sessue Hayakawa and Florence Turner.
 
 **Synopsis**: The Lopez family goes to Japan, but they are too closed minded to promote progress. Originally, the father traded with the Japanese, but now the son Lopez has taken over the business despite the tradition of having it handed down through the family. After the son discovers that the tradition of handing it down to the eldest son will always result in families, he changes the tradition to the fairest person who deserves the position. This alters the tradition of Japanese universities. They are now open to any man, woman, or child.
 
@@ -418,7 +418,7 @@ Wikipedia: [The Brand of Lopez](https://en.wikipedia.org/wiki/The%20Brand%20of%2
 
 ## The Branded Four
 
-_The Branded Four_ is an action movie directed by Duke Worne. It stars Ben F. Wilson and Neva Gerber.
+*The Branded Four* is an action directed by Duke Worne. It stars Ben F. Wilson and Neva Gerber.
 
 **Synopsis**: Neva Gerber is a branding expert. After winning a branding prize in Russia she travels home to Los Angeles. Not long after arriving, she is framed for a major branding fraud, and must evade Russia's top executives, a mercenary mob out to kill her, and a federal marshal in pursuit, all while racing to find the true branding fraud.
 
@@ -426,17 +426,17 @@ Wikipedia: [The Branded Four](https://en.wikipedia.org/wiki/The%20Branded%20Four
 
 ## The Branded Woman
 
-_The Branded Woman_ is a drama movie directed by Albert Parker. It stars Norma Talmadge, Percy Marmont, and Vincent Serrano.
+*The Branded Woman* is a drama directed by Albert Parker. It stars Norma Talmadge, Percy Marmont, and Vincent Serrano.
 
 **Synopsis**: A man (Yoshiro) falls for an aristocratic society woman (Yumi). After winning her affections, he journeys to her village to meet her family. One problem, she's already betrothed to the dapper Hiroshi. Pride prevents her from telling him...or does she?
 
-Yoshiro (Yoshiro) walks through the streets of Edo (Tokyo) and meets a demanding aristocrat (Yumi). They both find each other's energy too overwhelming, but they keep on seeing each other on their obstacle-laden commute. Soon, they fall in love.
+Yoshiro (Yoshiro) walks through the streets of Edo (Tokyo) and meets a demanding aristocrat (Yumi). They both find each other's energy too overwhelming, but they keep on seeing each other on their obstacle-laden commute. Soon, they fall in love. 
 
-Initially, Yumi is skeptical to reciprocate Yoshiro's affections because that might put her family's honor to shame. They are high rank samurai members. Yoshiro, on the other hand, says he doesn't care about their society rules. Furthermore, he resolves to meet with her at her village to set the stones in the cave.
+Initially, Yumi is skeptical to reciprocate Yoshiro's affections because that might put her family's honor to shame. They are high rank samurai members. Yoshiro, on the other hand, says he doesn't care about their society rules. Furthermore, he resolves to meet with her at her village to set the stones in the cave. 
 
-When they finally meet, Yumi is surprised to see her family's living arrangement with Hiroshi at the center of it. Yoshiro quickly finds out about their arranged marriage, but their social rank is higher, so he can't argue. He goes to attend her last feast. When Yumi sees that the love is too strong, she chokes on tasty tit bits, stands up, accepts Yoshiro's love, and commits suicide by drinking poisonous sake.
+When they finally meet, Yumi is surprised to see her family's living arrangement with Hiroshi at the center of it. Yoshiro quickly finds out about their arranged marriage, but their social rank is higher, so he can't argue. He goes to attend her last feast. When Yumi sees that the love is too strong, she chokes on tasty tit bits, stands up, accepts Yoshiro's love, and commits suicide by drinking poisonous sake. 
 
-Yoshiro goes home, depressed, to his house. He finds another Western male with ills who may be Western terrorist Gregor Yuzen,
+Yoshiro goes home, depressed, to his house. He finds another Western male with ills who may be Western terrorist Gregor Yuzen, 
 
 Albert
 
@@ -444,9 +444,9 @@ Wikipedia: [The Branded Woman](https://en.wikipedia.org/wiki/The%20Branded%20Wom
 
 ## The Branding Iron
 
-_The Branding Iron_ is a western movie directed by Reginald Barker. It stars Barbara Castleton, James Kirkwood, and Russell Simpson.
+*The Branding Iron* is a western directed by Reginald Barker. It stars Barbara Castleton, James Kirkwood, and Russell Simpson.
 
-**Synopsis**: Barbara Castleton and James Kirkwood surface in the ghost town of Bound Valley and try to cash in on the gold yoked miners. They achieve this by purchasing a used branding iron and thus branding the town 'the brandin' iron'.
+**Synopsis**: Barbara Castleton and James Kirkwood surface in the ghost town of Bound Valley and try to cash in on the gold yoked miners. They achieve this by purchasing a used branding iron and thus branding the town 'the brandin' iron'. 
 Brian Keith arrives and dirties his name in such a way that he recognizes there is profit in acquiring the domain. A saloon shoot-out ensues and the competitors come to an agreement that each will have a chance to spend the day in the "brandin' iron". The rightful owner will be ascertained based on the profits generated.
 
 Mark Bloodworth returns home to a relationship gone arying with a strained marriage and a business failing. With a thirst for revenge, Bloodworth takes on the new identity of the high caliber gunfighter, The Lonely Slayer.
@@ -463,7 +463,7 @@ Wikipedia: [The Branding Iron](https://en.wikipedia.org/wiki/The%20Branding%20Ir
 
 ## The Breath of the Gods
 
-_The Breath of the Gods_ is a drama movie directed by Rollin S. Sturgeon. It stars Tsuru Aoki and Arthur Carewe.
+*The Breath of the Gods* is a drama directed by Rollin S. Sturgeon. It stars Tsuru Aoki and Arthur Carewe.
 
 **Synopsis**: A beautiful Japanese woman is taken to America at age 6 by adoptive parents. On the eve of her marriage the bride discovers she is of royal blood and she must go on a quest to save the family throne while battling the social prejudices of the past.
 
@@ -473,7 +473,7 @@ Wikipedia: [The Breath of the Gods](https://en.wikipedia.org/wiki/The%20Breath%2
 
 ## Bright Skies
 
-_Bright Skies_ is a drama movie directed by Henry Kolker. It stars Zasu Pitts and Tom Gallery.
+*Bright Skies* is a drama directed by Henry Kolker. It stars Zasu Pitts and Tom Gallery.
 
 **Synopsis**: A painter struggles with her unfulfilled fantasies of living the artistic life and the hard reality of making a living as a woman within American society at the time.
 
@@ -488,7 +488,7 @@ Wikipedia: [Bright Skies](https://en.wikipedia.org/wiki/Bright%20Skies%20%28film
 
 ## The Broadway Bubble
 
-_The Broadway Bubble_ is a drama movie directed by George L. Sargent. It stars Corinne Griffith and Joe King.
+*The Broadway Bubble* is a drama directed by George L. Sargent. It stars Corinne Griffith and Joe King.
 
 **Synopsis**: The Broadway Bubble stars Robert Montgomery in the film’s lead role. Maya is a talented actress in need of an agent. Edward is a successful theater producer in need of a star. Together, the two venture into the wild, unpredictable world of Broadway with humorous and cautionary results.
 
@@ -496,7 +496,7 @@ Wikipedia: [The Broadway Bubble](https://en.wikipedia.org/wiki/The%20Broadway%20
 
 ## A Broadway Cowboy
 
-_A Broadway Cowboy_ is a western movie directed by Joseph Franz. It stars William Desmond and Betty Francisco.
+*A Broadway Cowboy* is a western directed by Joseph Franz. It stars William Desmond and Betty Francisco.
 
 **Synopsis**: A woman joins the variety show run by her estranged father. She earns her father's respect, but later on is vilified by her father's former love. She then decides to pursue her career in Hollywood.
 
@@ -504,7 +504,7 @@ Wikipedia: [A Broadway Cowboy](https://en.wikipedia.org/wiki/A%20Broadway%20Cowb
 
 ## Broadway and Home
 
-_Broadway and Home_ is a drama movie directed by Alan Crosland. It stars Eugene O'Brien and Elinor Fair.
+*Broadway and Home* is a drama directed by Alan Crosland. It stars Eugene O'Brien and Elinor Fair.
 
 **Synopsis**: Jerry Blair is a film actor who insists on starring in every movie he is promised a role in. In his quest for fame, he neglects his unhappy wife Marion. In between filming movies for Grant Bakers, Jerry honors requests from his coterie of drama students. Marion, not knowing that Jerry is neglecting her, remembers the joys of their marriage. In a public break-up, Jerry remarks how lucky he is to not be tied to a comforting bedroom. Marion, along with Gerry Blair, Jerry's best friend and next door neighbor, find emotional release through their anger.
 
@@ -516,7 +516,7 @@ Wikipedia: [Broadway and Home](https://en.wikipedia.org/wiki/Broadway%20and%20Ho
 
 ## The Broken Gate
 
-_The Broken Gate_ is a drama movie directed by Paul Scardon. It stars Bessie Barriscale and Joseph Kilgour.
+*The Broken Gate* is a drama directed by Paul Scardon. It stars Bessie Barriscale and Joseph Kilgour.
 
 **Synopsis**: Alice is 51 and finds herself sat, unnoticed by everyone, at a dying man's bedside. Shortly after her family finds out where she is, they fly her home to Coppers Marsh, a housing estate on the outskirts of Manchester famous for its violence and deprivation, and find that the connections of the past need to be confronted.
 
@@ -526,7 +526,7 @@ Wikipedia: [The Broken Gate](https://en.wikipedia.org/wiki/The%20Broken%20Gate)
 
 ## The Brute Master
 
-_The Brute Master_ is a drama movie directed by Roy Marshall. It stars Hobart Bosworth and Anna Q. Nilsson.
+*The Brute Master* is a drama directed by Roy Marshall. It stars Hobart Bosworth and Anna Q. Nilsson.
 
 **Synopsis**: Ray Sheldrake is an old man who endures sorrows and suffers losses. Three of his grandchildren die of illness and one of them was killed by her abusive boyfriend. Lastly, his son dies an accidental death. All of these events deeply affect him personally. However, he still pushes society to remember the Ku Klux Klan’s role in the film before World War II, which was traditionally powerful.
 
@@ -534,7 +534,7 @@ Wikipedia: [The Brute Master](https://en.wikipedia.org/wiki/The%20Brute%20Master
 
 ## Bullet Proof
 
-_Bullet Proof_ is a western movie directed by Lynn Reynolds. It stars Harry Carey and Fred Gamble.
+*Bullet Proof* is a western directed by Lynn Reynolds. It stars Harry Carey and Fred Gamble.
 
 **Synopsis**: Bullet Proof is about six thieves who rob a train. One of the men, Warren, plans on holding up the town of Bullet Proof in order to hide out. The town's name comes from the fact that anyone in town with a bounty will supposedly be killed by the Marshal in town. When they get to town, Warren meets the Marshal, who is his cousin. Warren convinces the Marshal to hold up the townhouse with him in order to get their bounty. When they get to the townhouse they find it is full of the town's people in the process of celebrating Christmas. Warren confuses mistaking the people in the townhouse to be the workers they were confied who they were searching for when they arrived in town. Warren does not confide in his cousin about their mistake. They eventually become a part of the town festivities and forget about the plan to rob the town.
 
@@ -546,7 +546,7 @@ Wikipedia: [Bullet Proof](https://en.wikipedia.org/wiki/Bullet%20Proof%20%281920
 
 ## Burglar Proof
 
-_Burglar Proof_ is a comedy movie directed by Maurice Campbell. It stars Bryant Washburn and Lois Wilson.
+*Burglar Proof* is a comedy directed by Maurice Campbell. It stars Bryant Washburn and Lois Wilson.
 
 **Synopsis**: When Frankie, a local inventor, learns of a burglary going on at a house in his neighborhood, he sets out to invent a burglar alarm system. His daughter, Doris, is a more skilled inventor, so she sets out to help him create a burglar-proof house, while a burglar, Cigar Bandit, learns that his next crime is taking place in the same house.
 
@@ -558,7 +558,7 @@ Wikipedia: [Burglar Proof](https://en.wikipedia.org/wiki/Burglar%20Proof)
 
 ## Burning Daylight
 
-_Burning Daylight_ is a drama movie directed by Edward Sloman. It stars Mitchell Lewis and Helen Ferguson.
+*Burning Daylight* is a drama directed by Edward Sloman. It stars Mitchell Lewis and Helen Ferguson.
 
 **Synopsis**: As the Yukon Territory's population grows, the sheer logistics of resource extraction becomes impossible to manage alone. As more and more gold-panners stake out claims, Burning Daylight spends all his time defending them--and neglects his own. When he finally reaches the breaking point, he employs some of the practices that had got him here in the first place--a move that brings the world of the Yukon Territory to its knees...
 
@@ -566,9 +566,9 @@ Wikipedia: [Burning Daylight](https://en.wikipedia.org/wiki/Burning%20Daylight%2
 
 ## Burnt Wings
 
-_Burnt Wings_ is a drama movie directed by Christy Cabanne. It stars Josephine Hill and Frank Mayo.
+*Burnt Wings* is a drama directed by Christy Cabanne. It stars Josephine Hill and Frank Mayo.
 
-**Synopsis**: Nicky (Josephine Hill) goes to dinner with her friends, where she runs into Joey (Frank Mayo), the man who broke her heart. Obsessed with revenge, she blackmails Joey with photos of their relationship; he gives her money to help her new singing career. One night Ernie (Stanton English) convinces her to rip off Joey. They hold him hostage, but it leads her on an unexpected quest for self-discovery.
+**Synopsis**: Nicky (Josephine Hill) goes to dinner with her friends, where she runs into Joey (Frank Mayo), the man who broke her heart. Obsessed with revenge, she blackmails Joey with photos of their relationship; he gives her money to help her new singing career. One night Ernie (Stanton English) convinces her to rip off Joey. They hold him hostage, but it leads her on an unexpected quest for self-discovery. 
 
 Nicky (Josephine Hill) is attracted to Joey (Frank Mayo) after he breaks her heart. Nicky blackmails him with photos of their relationship while she pursues her new singing career.
 
@@ -584,9 +584,9 @@ Wikipedia: [Burnt Wings](https://en.wikipedia.org/wiki/Burnt%20Wings%20%281920%2
 
 ## The Butterfly Man
 
-_The Butterfly Man_ is a drama movie directed by Louis J. Gasnier and Ida May Park. It stars Lew Cody, Louise Lovely, and Lila Leslie.
+*The Butterfly Man* is a drama directed by Louis J. Gasnier and Ida May Park. It stars Lew Cody, Louise Lovely, and Lila Leslie.
 
-**Synopsis**: A president of a bank takes his daughter to Paris to find her a rich husband, but she falls in love with an undesirous painter of butterflies. It's the tale of how the president's thinking change through his daughter's love story.
+**Synopsis**: A president of a bank takes his daughter to Paris to find her a rich husband, but she falls in love with an undesirous painter of butterflies. It's the tale of how the president's thinking change through his daughter's love story. 
 
 Inspired by the life of Oberlin College President Isiah O. Roach, the movie shows his daughter, Ada Roach, who is determined to marry for love, forsaking the family's American background and French tradition.
 
@@ -600,7 +600,7 @@ Wikipedia: [The Butterfly Man](https://en.wikipedia.org/wiki/The%20Butterfly%20M
 
 ## Captain Swift
 
-_Captain Swift_ is a drama movie directed by Tom Terriss. It stars Earle Williams and Edward Martindel.
+*Captain Swift* is a drama directed by Tom Terriss. It stars Earle Williams and Edward Martindel.
 
 **Synopsis**: Set in the early 18th Century, Captain Swift, a Yorkshireman and Yorkshire genius, sets out to become the first Yorkshireman and Yorkshire genius through foolhardy and overreaching kites and rocket flight. He puts his life on the line and journeys to the ends of the earth. His paper mill is the center of the mill world and each revolution of the beating water wheel unlocks knowledge and cuts time and he redefines the methods of delivering news.
 
@@ -608,7 +608,7 @@ Wikipedia: [Captain Swift](https://en.wikipedia.org/wiki/Captain%20Swift)
 
 ## Chains of Evidence
 
-_Chains of Evidence_ is a mystery movie directed by Dallas M. Fitzgerald. It stars Edmund Breese and Anna Lehr.
+*Chains of Evidence* is a mystery directed by Dallas M. Fitzgerald. It stars Edmund Breese and Anna Lehr.
 
 **Synopsis**: When a group of friends go into the woods for a camping trip, they become the next targets in a sadistic killer's cross hairs.
 
@@ -618,17 +618,17 @@ Wikipedia: [Chains of Evidence](https://en.wikipedia.org/wiki/Chains%20of%20Evid
 
 ## The Challenge of the Law
 
-_The Challenge of the Law_ is a western movie directed by Scott R. Dunlap. It stars William Russell and Helen Ferguson.
+*The Challenge of the Law* is a western directed by Scott R. Dunlap. It stars William Russell and Helen Ferguson.
 
-**Synopsis**: John Ralston
+**Synopsis**: John Ralston 
 As the gang boss in San Miguel, John Ralston has no trouble asserting his dominance. But circumstances change when the ranchers, banding together, start taking back control of their land. As the last of the so-called Border Bandits, Ralston's only choice, by his own reckoning, is to resort to raids on Mexican farms.
 
-The Law
+The Law 
 He is convinced that the only way to put a stop to it is to kill Ralston. Appealing for volunteers, the law's crimefighting posse picks up recruits as it parallels the gang boss's trail of raids across the border back to San Miguel.
 
 As Ralston makes his way back over the border, the law follows, but the contrast is striking. While he smuggles opium across the Rio Grande, they are bringing law and order. So when they ride up to the barricaded gang boss's walled stronghold, they are not taken aback by Ralston's conspiratorial surprise look.
 
-This movie is about a gang boss who clashes with the captains of the Border Bandits. The movie "Challenge of the Law" is an ancient western film with an old frontier scent. It is about a criminal being chased by the law.
+This movie is about a gang boss who clashes with the captains of the Border Bandits. The movie "Challenge of the Law" is an ancient western film with an old frontier scent. It is about a criminal being chased by the law. 
 
 San Miguel has fallen into the hands of John Ralston under tutelage of Antony Wade. When the captains of the Border Bandits defend the land of the ranchers John Ralston resorts to crossing the Rio Grande to carry out raids on Mexican farms. As the last of the so-called Border Bandits, Ralston's only choice, by his own reckoning, is to resort to raids on Mexican
 
@@ -636,7 +636,7 @@ Wikipedia: [The Challenge of the Law](https://en.wikipedia.org/wiki/The%20Challe
 
 ## The Cheater
 
-_The Cheater_ is a drama movie directed by Henry Otto. It stars May Allison and King Baggot.
+*The Cheater* is a drama directed by Henry Otto. It stars May Allison and King Baggot.
 
 **Synopsis**: Alice blames Bill for Fred's death and is unable to forgive him for cheating with Doris. One day, Dorothy suggests to her to take up her painting again. The old studio becomes her haven and she throws herself into the project. However, Dorothy's persistence in painting flags with patriotic themes starts to heat up Alice's patriotism. Bill, noticing how her mood has lightened, decides to come back into Alice's life provocatively.
 
@@ -646,7 +646,7 @@ Wikipedia: [The Cheater](https://en.wikipedia.org/wiki/The%20Cheater%20%281920%2
 
 ## A Child for Sale
 
-_A Child for Sale_ is a melodrama movie directed by Ivan Abramson. It stars Gladys Leslie and Creighton Hale.
+*A Child for Sale* is a melodrama directed by Ivan Abramson. It stars Gladys Leslie and Creighton Hale.
 
 **Synopsis**: Australian writer I.A.P. Tucker travels to Europe when she is summoned to investigate the supposed kidnapping of aristocrat Lady Anna Filsythe-Albaine-Syntyche Redvance during the war. There, Tucker's investigations leads her to find that Lady Redvance had not actually been abducted but had departed to make her own life.
 
@@ -654,7 +654,7 @@ Wikipedia: [A Child for Sale](https://en.wikipedia.org/wiki/A%20Child%20for%20Sa
 
 ## The Chorus Girl's Romance
 
-_The Chorus Girl's Romance_ is a comedy movie directed by William C. Dowlan. It stars Viola Dana and Gareth Hughes.
+*The Chorus Girl's Romance* is a comedy directed by William C. Dowlan. It stars Viola Dana and Gareth Hughes.
 
 **Synopsis**: This short, original motion picture poses as a typical motion picture. It follows the popular romantic comedy formula as the hero and heroine, against all odds, overcome various obstacles and marry at the end. Ardent John Morton and aspiring singer Sally Jefferson-Bishop find their desire for one another waning. Morton, tired of chasing Sally and catching her, realizes she is true and he should catch and hold on to her instead. Morton and Sally eventually overcome their useless marriage and reconcile.
 
@@ -668,7 +668,7 @@ Wikipedia: [The Chorus Girl's Romance](https://en.wikipedia.org/wiki/The%20Choru
 
 ## Cinderella's Twin
 
-_Cinderella's Twin_ is a comedy movie directed by Dallas M. Fitzgerald. It stars Viola Dana and Wallace MacDonald.
+*Cinderella's Twin* is a comedy directed by Dallas M. Fitzgerald. It stars Viola Dana and Wallace MacDonald.
 
 **Synopsis**: Rhoda is the oldest daughter of royalty. She is in charge of all the management functions of her council, but
 
@@ -697,7 +697,7 @@ Wikipedia: [Cinderella's Twin](https://en.wikipedia.org/wiki/Cinderella%27s%20Tw
 
 ## The City of Masks
 
-_The City of Masks_ is a comedy drama movie directed by Thomas N. Heffron. It stars Robert Warwick, Lois Wilson, and Theodore Kosloff.
+*The City of Masks* is a comedy drama directed by Thomas N. Heffron. It stars Robert Warwick, Lois Wilson, and Theodore Kosloff.
 
 **Synopsis**: In The City of Masks, a reporter from the United States tries to locate a woman from his county who still has her beauty thanks to a herb from Central America.
 
@@ -707,7 +707,7 @@ Wikipedia: [The City of Masks](https://en.wikipedia.org/wiki/The%20City%20of%20M
 
 ## A City Sparrow
 
-_A City Sparrow_ is a drama movie directed by Sam Wood. It stars Ethel Clayton and Walter Hiers.
+*A City Sparrow* is a drama directed by Sam Wood. It stars Ethel Clayton and Walter Hiers.
 
 **Synopsis**: A sad young woman at a boarding school looks for solace in the company of a city-bred sparrow who finds his way to her.
 
@@ -721,7 +721,7 @@ Wikipedia: [A City Sparrow](https://en.wikipedia.org/wiki/A%20City%20Sparrow)
 
 ## Civilian Clothes
 
-_Civilian Clothes_ is a comedy movie directed by Hugh Ford. It stars Thomas Meighan and Martha Mansfield.
+*Civilian Clothes* is a comedy directed by Hugh Ford. It stars Thomas Meighan and Martha Mansfield.
 
 **Synopsis**: On his wedding day, Phil Carrad is made to wait in the church with the groom's party while the groom goes back to the house dressed in his civilian clothes, realizing his fellow serviceman got no chance to say goodbye to his lovely.
 
@@ -731,7 +731,7 @@ Wikipedia: [Civilian Clothes](https://en.wikipedia.org/wiki/Civilian%20Clothes)
 
 ## Clothes
 
-_Clothes_ is a drama movie directed by Fred Sittenham. It stars Olive Tell and Crauford Kent.
+*Clothes* is a drama directed by Fred Sittenham. It stars Olive Tell and Crauford Kent.
 
 **Synopsis**: Clothes is a film about a woman living alone who is raped at a party. Although she is a survivor, the fear of public exposure and a fear for her safety contribute to her decision to stop going out to go out.
 
@@ -741,7 +741,7 @@ Wikipedia: [Clothes](https://en.wikipedia.org/wiki/Clothes%20%281920%20film%29)
 
 ## The Coast of Opportunity
 
-_The Coast of Opportunity_ is a drama movie directed by Ernest C. Warde. It stars J. Warren Kerrigan, Herschel Mayall, and Fritzi Brunette.
+*The Coast of Opportunity* is a drama directed by Ernest C. Warde. It stars J. Warren Kerrigan, Herschel Mayall, and Fritzi Brunette.
 
 **Synopsis**: The Coast of Opportunity came out in 1941, and was a story of a Yankee veteran turned Florida fisherman.
 
@@ -749,7 +749,7 @@ Wikipedia: [The Coast of Opportunity](https://en.wikipedia.org/wiki/The%20Coast%
 
 ## The Common Sin
 
-_The Common Sin_ is a drama movie directed by Burton King. It stars Rod La Rocque and Nita Naldi.
+*The Common Sin* is a drama directed by Burton King. It stars Rod La Rocque and Nita Naldi.
 
 **Synopsis**: The movie picks up near the end of the protagonist's life. The main character has spent his own days building an empire, but was always haunted by the bad money that he had done in his youth. He was robbed of the ability to be part of the upper-class, but decides to spend his last night in style before he dies.
 
@@ -761,7 +761,7 @@ Wikipedia: [The Common Sin](https://en.wikipedia.org/wiki/The%20Common%20Sin)
 
 ## Conrad in Quest of His Youth
 
-_Conrad in Quest of His Youth_ is a comedy movie directed by William C. deMille. It stars Thomas Meighan and Mabel Van Buren.
+*Conrad in Quest of His Youth* is a comedy directed by William C. deMille. It stars Thomas Meighan and Mabel Van Buren.
 
 **Synopsis**: The film is about an impressionable young man who falls into the thrall of a charming adventuress.
 
@@ -769,7 +769,7 @@ Wikipedia: [Conrad in Quest of His Youth](https://en.wikipedia.org/wiki/Conrad%2
 
 ## The Confession
 
-_The Confession_ is a drama movie directed by Bertram Bracken. It stars Henry B. Walthall and Francis McDonald.
+*The Confession* is a drama directed by Bertram Bracken. It stars Henry B. Walthall and Francis McDonald.
 
 **Synopsis**: A company faced with profits shrinking and an almost certain trend of industry-wide bankruptcy; the company's main shareholders and managers concoct a plan. Based on what they feel is an implausible idea, they offer hope to employees and stockholders alike. The plan would allow the company to save their own assets and increase the profits while not really expending any effort. The company declines. But one man who was around for the company's bad days, and saw the prosperity and success, tells them not to give up and he talks them into listening.
 
@@ -777,7 +777,7 @@ Wikipedia: [The Confession](https://en.wikipedia.org/wiki/The%20Confession%20%28
 
 ## The Copperhead
 
-_The Copperhead_ is a period drama movie directed by Charles Maigne. It stars Lionel Barrymore and Doris Rankin.
+*The Copperhead* is a period drama directed by Charles Maigne. It stars Lionel Barrymore and Doris Rankin.
 
 **Synopsis**: Charles Dobbins, a Copperhead sympathizer, decides to serve in Kentucky after his cousin, Blount, is killed. He becomes Blount’s stand-in in the home of plantation owners, the Drummonds. After Charles is accepted by the family he falls in love with Jenny, the Drummonds' daughter, and moves to the abolitionist North with the family.
 
@@ -792,7 +792,7 @@ Wikipedia: [The Copperhead](https://en.wikipedia.org/wiki/The%20Copperhead%20%28
 
 ## The Corsican Brothers
 
-_The Corsican Brothers_ is an adventure movie directed by Colin Campbell. It stars Dustin Farnum and Winifred Kingston.
+*The Corsican Brothers* is an adventure film directed by Colin Campbell. It stars Dustin Farnum and Winifred Kingston.
 
 **Synopsis**: The Corsican Brothers stars Dustin Farnum as Raffaele Ange, an outlaw leader on Corsica who has all the pirates on the island under his banner. His brother Angelo (also played by Farnum), is a loyal family man who supports his brother in their outlaw life.
 
@@ -804,7 +804,7 @@ Wikipedia: [The Corsican Brothers](https://en.wikipedia.org/wiki/The%20Corsican%
 
 ## The Cost
 
-_The Cost_ is a drama movie directed by Harley Knoles. It stars Violet Heming and Edward Arnold.
+*The Cost* is a drama directed by Harley Knoles. It stars Violet Heming and Edward Arnold.
 
 **Synopsis**: Etta Sommervoight, a member of the church elders, thinks her husband's overspending is immoral, so she unplugs all the appliances in their home to extract money from her husband's pockets.
 
@@ -812,7 +812,7 @@ Wikipedia: [The Cost](https://en.wikipedia.org/wiki/The%20Cost%20%28film%29)
 
 ## The Courage of Marge O'Doone
 
-_The Courage of Marge O'Doone_ is a drama movie directed by David Smith. It stars Pauline Starke and Niles Welch.
+*The Courage of Marge O'Doone* is a drama directed by David Smith. It stars Pauline Starke and Niles Welch.
 
 **Synopsis**: Marge O'Doone is the only female the IRA Forest Guard Forest Police Officer. She has led five combat planting raids. With better weapons, combat equipment, and transport available, the Forest Police are combining revenue with the domestic Security Force. Marge begins to question her orders.
 
@@ -820,7 +820,7 @@ Wikipedia: [The Courage of Marge O'Doone](https://en.wikipedia.org/wiki/The%20Co
 
 ## The County Fair
 
-_The County Fair_ is a drama movie directed by Maurice Tourneur. It stars Helen Jerome Eddy and David Butler.
+*The County Fair* is a drama directed by Maurice Tourneur. It stars Helen Jerome Eddy and David Butler.
 
 **Synopsis**: The County Fair tells the story of Katherine Greggs, who works at the town newspaper. When all the other reporters stay in to do an assignment, she volunteers to go to the county fair. There she takes pictures, was interviewed, solicits opinions, and brings information about the county to the small town's newspaper.
 
@@ -828,7 +828,7 @@ Wikipedia: [The County Fair](https://en.wikipedia.org/wiki/The%20County%20Fair%2
 
 ## The Cradle of Courage
 
-_The Cradle of Courage_ is a drama movie directed by Lambert Hillyer. It stars William S. Hart, Ann Little, and Tom Santschi.
+*The Cradle of Courage* is a drama directed by Lambert Hillyer. It stars William S. Hart, Ann Little, and Tom Santschi.
 
 **Synopsis**: Wil Jimmy is a cowboy from Cochise County, Arizona, who spends his free time with a legendary gunslinger known as the Man With No Name. One day a notorious outlaw, Ben Thompson, kills a rival in a saloon and a Deputie who tries to intervene. Jimmy's friend, Sheriff McIvers, sends a posse after Thompson and they pursue him for a hundred miles. Jimmy makes a bargain with the deadly killer to finish their pursuit so that McIvers can reach Thompson to arrest him.
 
@@ -840,7 +840,7 @@ Wikipedia: [The Cradle of Courage](https://en.wikipedia.org/wiki/The%20Cradle%20
 
 ## Crooked Streets
 
-_Crooked Streets_ is a drama movie directed by Paul Powell. It stars Ethel Clayton and Jack Holt.
+*Crooked Streets* is a drama directed by Paul Powell. It stars Ethel Clayton and Jack Holt.
 
 **Synopsis**: Ethel Clayton is a fragile septuagenarian living in Richmond, Virginia. Her stern Methodist upbringing folds seamlessly into her present life, where she clings to God's fear yet fearfully suppresses it too. Clayton, bored with her son's over-protectiveness, turns her attention to strangers, especially her neighbor man, Morris. The seclusion she choses leaves her without the faithfulness of faith, that faith her Sunday church attendance once afforded her. When Morris greets her church-saving gift with indifference, Clayton is crushed. As the kindly church man struggles to console the grieving widow, Clayton is revealed as a tightly-wound, but needy, butterfly who yearns to find comfort and warmth again. Alas, as the film concludes, Clayton now seems broken and deeply unstable.
 
@@ -858,7 +858,7 @@ Wikipedia: [Crooked Streets](https://en.wikipedia.org/wiki/Crooked%20Streets)
 
 ## A Cumberland Romance
 
-_A Cumberland Romance_ is a drama movie directed by Charles Maigne. It stars Mary Miles Minter, Monte Blue, and John Bowers.
+*A Cumberland Romance* is a drama directed by Charles Maigne. It stars Mary Miles Minter, Monte Blue, and John Bowers.
 
 **Synopsis**: A Cumberland Romance is a 1912 feature film which is a "novel of faded love and of passion turned to hate." The film had a difficult release due to the Titanic disaster and was not very successful otherwise. The main character, Betsy, is a young country girl. She has an unknown suitor who desires to marry her and had proposed. Betsy becomes engaged to Malcome through a misunderstanding. Betsy's love becomes engaged to her cousin, but her feelings for Malcome do not recede. Malcome kills Malcom and is sentenced to a life of exile. Betsy sends a message to Malcome informing him of her deep love for him which is cemented when she dies in a carriage accident.
 
@@ -866,7 +866,7 @@ Wikipedia: [A Cumberland Romance](https://en.wikipedia.org/wiki/A%20Cumberland%2
 
 ## The Cup of Fury
 
-_The Cup of Fury_ is a drama movie directed by T. Hayes Hunter. It stars Helene Chadwick and Rockliffe Fellowes.
+*The Cup of Fury* is a drama directed by T. Hayes Hunter. It stars Helene Chadwick and Rockliffe Fellowes.
 
 **Synopsis**: The Cup of Fury is a 1920s yiddish based mob drama about a poor Jewish woman who falls in love with a gangster and inadvertently gets dragged into his life of crime.
 
@@ -876,7 +876,7 @@ Wikipedia: [The Cup of Fury](https://en.wikipedia.org/wiki/The%20Cup%20of%20Fury
 
 ## Cupid the Cowpuncher
 
-_Cupid the Cowpuncher_ is a comedy movie directed by Clarence G. Badger. It stars Will Rogers and Helene Chadwick.
+*Cupid the Cowpuncher* is a comedy directed by Clarence G. Badger. It stars Will Rogers and Helene Chadwick.
 
 **Synopsis**: Cupid the Cowpuncher is a comedy from 1926. It’s a story about a cowboy who falls in love with a cowgirl, but the sheriff gets in between them and their happiness.
 
@@ -884,7 +884,7 @@ Wikipedia: [Cupid the Cowpuncher](https://en.wikipedia.org/wiki/Cupid%20the%20Co
 
 ## Curtain
 
-_Curtain_ is a drama movie directed by James Young. It stars Katherine MacDonald and Edwin B. Tilton.
+*Curtain* is a drama directed by James Young. It stars Katherine MacDonald and Edwin B. Tilton.
 
 **Synopsis**: Katherine MacDonald is a politically ambitious woman struggling to obtain power in 1940s Washington DC. She is well-educated, has a great work ethic, and is absolutely ruthless to her opponents. She gives up her fiance to follow her dream, shifting her priorities.
 
@@ -894,7 +894,7 @@ Wikipedia: [Curtain](https://en.wikipedia.org/wiki/Curtain%20%281920%20film%29)
 
 ## The Cyclone
 
-_The Cyclone_ is an action movie directed by Clifford Smith. It stars Tom Mix and Colleen Moore.
+*The Cyclone* is an action directed by Clifford Smith. It stars Tom Mix and Colleen Moore.
 
 **Synopsis**: The Storm is a silent film that stars Tom Mix and Colleen Moore. According to the synopsis on the film's YouTube page, it is a story about a man seeking his kidnapped girl while being chased by a corrupt sheriff. A Cyclone strikes while he is high in a tree and knocks out all of the power, which scares his prey and cause the pursuing Sheriff to crash. The protagonist continues on his quest and is able to rescue his girl and hold on tight while the tree they were in is flung from side to side until it is finally back on the ground.
 
@@ -902,7 +902,7 @@ Wikipedia: [The Cyclone](https://en.wikipedia.org/wiki/The%20Cyclone%20%281920%2
 
 ## Cynthia of the Minute
 
-_Cynthia of the Minute_ is an adventure movie directed by Perry N. Vekroff. It stars Leah Baird and Burr McIntosh.
+*Cynthia of the Minute* is an adventure film directed by Perry N. Vekroff. It stars Leah Baird and Burr McIntosh.
 
 **Synopsis**: Cynthia is an eighteen-year-old girl who has moved around a lot with her father. Her father, Al, is a taxi driver. She has had various grades in school, never focusing on studying because she didn't want to be tied to school or go to school outside of her home state. Though she had attitude problems. She loves her dogs of which she has five. When her father's brakes fail, they are outside of Florida, so they go to live with her aunt Emily.
 
@@ -910,7 +910,7 @@ Wikipedia: [Cynthia of the Minute](https://en.wikipedia.org/wiki/Cynthia%20of%20
 
 ## The Dancin' Fool
 
-_The Dancin' Fool_ is a comedy movie directed by Sam Wood. It stars Wallace Reid and Bebe Daniels.
+*The Dancin' Fool* is a comedy directed by Sam Wood. It stars Wallace Reid and Bebe Daniels.
 
 **Synopsis**: When Chester Millard's foot stops tapping during a director's new dancing scene, everyone thinks he is crazy. Crazier than Carrie Allen, who sleeps with everyone. Chester is committed to an asylum and left to his own devices. He escapes and performs at a party, and not only does he regain his dancing spirit but his privilege too.
 
@@ -920,7 +920,7 @@ Wikipedia: [The Dancin' Fool](https://en.wikipedia.org/wiki/The%20Dancin%27%20Fo
 
 ## Dangerous Business
 
-_Dangerous Business_ is a comedy movie directed by Roy William Neill. It stars Constance Talmadge and Kenneth Harlan.
+*Dangerous Business* is a comedy directed by Roy William Neill. It stars Constance Talmadge and Kenneth Harlan.
 
 **Synopsis**: Constance Talmadge is a honeymoon-bound bride when she has a crisis of conscience and returns home to cancel her engagement to the reporter played by Kenneth Harlan who follows up to get the scoop for his newspaper. She tells her father her true love is a Midwestern farmer, the very man whose land would be in grave danger if her interference in the company's business continued. Talmadge in desperation to keep her true love uninvolved is besieged by the newspaper reporters, who need to get this big headline, and is saved when he starts reading the newspaper instead. She then goes on her honeymoon in peace.
 
@@ -928,7 +928,7 @@ Wikipedia: [Dangerous Business](https://en.wikipedia.org/wiki/Dangerous%20Busine
 
 ## Dangerous Days
 
-_Dangerous Days_ is a drama movie directed by Reginald Barker. It stars Lawson Butt, Clarissa Selwynne, and Rowland V. Lee.
+*Dangerous Days* is a drama directed by Reginald Barker. It stars Lawson Butt, Clarissa Selwynne, and Rowland V. Lee.
 
 **Synopsis**: In Dangerous Days, a protester is killed by a policeman. The dead protester is the brother of Arthur Masterman. The rest of this movie is Masterman trying to find out what really happened.
 
@@ -940,7 +940,7 @@ Wikipedia: [Dangerous Days](https://en.wikipedia.org/wiki/Dangerous%20Days%20%28
 
 ## The Dangerous Paradise
 
-_The Dangerous Paradise_ is a drama movie directed by William P. S. Earle. It stars Louise Huff and Harry Benham.
+*The Dangerous Paradise* is a drama directed by William P. S. Earle. It stars Louise Huff and Harry Benham.
 
 **Synopsis**: Sibyl Van Bibber has endured much in her life. After moving in with her stepmother when her father loses his money, she learns that her mother's sister has passed away, leaving Sibyl her fortune under one condition: that she never leave her home on the island of Deep Harbor. However, the violent society that Sibyl thought she had escaped finally catches up, and she finds herself attracted to a man who has a dark past.
 
@@ -950,7 +950,7 @@ Wikipedia: [The Dangerous Paradise](https://en.wikipedia.org/wiki/The%20Dangerou
 
 ## The Dangerous Talent
 
-_The Dangerous Talent_ is a drama movie directed by George L. Cox. It stars Margarita Fischer and Beatrice Van.
+*The Dangerous Talent* is a drama directed by George L. Cox. It stars Margarita Fischer and Beatrice Van.
 
 **Synopsis**: Set against the backdrop of an international opera diva's scandalous retirement, this film centers on Lily who, at the age of seven, rode her bike, solo, to her Suzuki lesson. Grown up, Lily, now doubles at her grandfather's violin shop, joins the Symphony for Youth Orchestra, falls in love with Phil, and everything seems like an audition for an opera. Lily's one-woman show is stuck, but her voice isn't. She's making her way; she's stuck, but she's gonna make it.
 
@@ -958,7 +958,7 @@ Wikipedia: [The Dangerous Talent](https://en.wikipedia.org/wiki/The%20Dangerous%
 
 ## Dangerous to Men
 
-_Dangerous to Men_ is a comedy movie directed by William C. Dowlan. It stars Viola Dana and Milton Sills.
+*Dangerous to Men* is a comedy directed by William C. Dowlan. It stars Viola Dana and Milton Sills.
 
 **Synopsis**: Dangerous to Men is a comedy about a lady, "Kitty McCoy", that is newly released from Jail. Al Din is her old flame that has kept their love alive, with wait trips to the Jail. So, Kitty decides to marry Al Din, but her past tells her to trust no one, which includes Al Din. Kitty, Al Din, and their daughter (May) begin doing deeds to make fast money, looking for reasons to distrust the other.
 
@@ -966,7 +966,7 @@ Wikipedia: [Dangerous to Men](https://en.wikipedia.org/wiki/Dangerous%20to%20Men
 
 ## The Daredevil
 
-_The Daredevil_ is a western movie directed by Tom Mix. It stars Tom Mix and Eva Novak.
+*The Daredevil* is a western directed by Tom Mix. It stars Tom Mix and Eva Novak.
 
 **Synopsis**: Tom Mix disguises himself in black clothing and a black mask which covers his whole face in order to stop the bank robbery of the Mesa Valley Bank which he just discovered is being executed by Eva Novak and her men. When Tom learns Novak is working undercover to track a crime kingpin, Mix hunts down the gangster Novak is looking for which leads him to a woman who rode around town with skull around her neck. Once he discovers her from his last job he goes to a saloon to question her. Once she walks in, she removes a chastity belt from her clothes and tries seducing Tom Mix, he lets her know he didn’t show up for romantic purposes and the woman reveals herself to be Eva Novak in disguise moreover she was the person who Tom Mix has been apprehending.
 
@@ -976,7 +976,7 @@ Wikipedia: [The Daredevil](https://en.wikipedia.org/wiki/The%20Daredevil%20%2819
 
 ## A Dark Lantern
 
-_A Dark Lantern_ is a drama movie directed by John S. Robertson. It stars Alice Brady and Reginald Denny.
+*A Dark Lantern* is a drama directed by John S. Robertson. It stars Alice Brady and Reginald Denny.
 
 **Synopsis**: A Dark Lantern is a 1922 Lionel Barrymore film. It is about the hardships of mining coal.
 
@@ -984,7 +984,7 @@ Wikipedia: [A Dark Lantern](https://en.wikipedia.org/wiki/A%20Dark%20Lantern)
 
 ## Darling Mine
 
-_Darling Mine_ is a drama movie directed by Laurence Trimble. It stars Olive Thomas and Walter McGrail.
+*Darling Mine* is a drama directed by Laurence Trimble. It stars Olive Thomas and Walter McGrail.
 
 **Synopsis**: In West Virginia, there is a lot of coal mining going on. One day, Trigger Myers bus picks up a nine-year-old Orrin and his two younger brothers, and their last name is Darling and they live in a company house and they go to a company school and their father, Henry Darling, is a drill operator. Everyone at the mines is supposed to look out for their family and befriend them and be part of their family. One day, their father tells them that they're moving, and he never tells them why. They're wondering if their father will show up at their new school, and the kids are teasing the wrong littler girl and she apologizes and they become friends.
 
@@ -994,7 +994,7 @@ Wikipedia: [Darling Mine](https://en.wikipedia.org/wiki/Darling%20Mine)
 
 ## The Dark Mirror
 
-_The Dark Mirror_ is a drama movie directed by Charles Giblyn. It stars Dorothy Dalton and Huntley Gordon.
+*The Dark Mirror* is a drama directed by Charles Giblyn. It stars Dorothy Dalton and Huntley Gordon.
 
 **Synopsis**: Fifteen-year-old David Durham lives in a New England town in 1880's when there are no girls in the town because the river has flooded over the town. David discovers that his little sister is missing, so he sets out to find her, guided by a female voice in the forest. This voice takes them to the standing stones in the cemetery. He meets AJ. They go in the cemetery to release AJ's dad in the afterlife. AJ speaks in a different language in the dead man's boat. Duncan shows up in AJ's boat. She takes David in her boat to Jacob's Hall, where he finds his sister.
 
@@ -1002,7 +1002,7 @@ Wikipedia: [The Dark Mirror](https://en.wikipedia.org/wiki/The%20Dark%20Mirror%2
 
 ## A Daughter of Two Worlds
 
-_A Daughter of Two Worlds_ is a drama movie directed by James Young. It stars Norma Talmadge and William Shea.
+*A Daughter of Two Worlds* is a drama directed by James Young. It stars Norma Talmadge and William Shea.
 
 **Synopsis**: This 1919 silent film is about Ann Lord, the daughter of British officer Earl Lord, in India in 1830. Ann falls in in love in Raj Singh, in spite in her father's disapproval because Raj belongs to the native race. The youngest daughter of Earl is supposed to marry an English officer named Rothesay to bring about an alliance between the two cultures, but she falls in love with him herself. When she is overheard saying she prefers Raj, she is locked in a room for a day and a night. They get married even though her father doesn't consent, and Colin promises to help them both.
 
@@ -1012,7 +1012,7 @@ Wikipedia: [A Daughter of Two Worlds](https://en.wikipedia.org/wiki/A%20Daughter
 
 ## The Daughter Pays
 
-_The Daughter Pays_ is a drama movie directed by [[Robert Ellis (actor and Robert Ellis]]. It stars Elaine Hammerstein and Norman Trevor.
+*The Daughter Pays* is a drama directed by [[Robert Ellis (actor and Robert Ellis]]. It stars Elaine Hammerstein and Norman Trevor.
 
 **Synopsis**: The Daughter Pays takes place in 1949 Sydney. Helena is wealthy woman with two sons. One’s family abides by the typical teachings of the ancient Greeks and the other son has endured hardship during wartime. Badgered expectations, cliché designs for social classes, and the conflicting morals among the characters are depicted.
 
@@ -1024,7 +1024,7 @@ Wikipedia: [The Daughter Pays](https://en.wikipedia.org/wiki/The%20Daughter%20Pa
 
 ## The Dead Line
 
-_The Dead Line_ is an action movie directed by Dell Henderson. It stars George Walsh and Irene Boyle.
+*The Dead Line* is an action directed by Dell Henderson. It stars George Walsh and Irene Boyle.
 
 **Synopsis**: Channels Telecrypt reports the break-in of the telematic network by uninvited hacker, and she is ordered to close the plant by the deadline of 05:00 GMT.
 
@@ -1032,7 +1032,7 @@ Wikipedia: [The Dead Line](https://en.wikipedia.org/wiki/The%20Dead%20Line%20%28
 
 ## Dead Men Tell No Tales
 
-_Dead Men Tell No Tales_ is an adventure movie directed by Tom Terriss. It stars Catherine Calvert, Percy Marmont, and Holmes Herbert.
+*Dead Men Tell No Tales* is an adventure film directed by Tom Terriss. It stars Catherine Calvert, Percy Marmont, and Holmes Herbert.
 
 **Synopsis**: The movie follows the story Ruth Chasen who is the wife to the famous explorer John Chasen. John has been away for an extended amount of time when he finally returns to the estate after surviving stormy seas. The night he arrives he suffers from prolonged vertigo due to being deprived of any form of gravity. Sins his vertigo persists, Ruth sneaks out to try to find medicine for her husband. Along the way, the man confesses his to Ruth, telling her what happened to lead to his death.
 
@@ -1042,7 +1042,7 @@ Wikipedia: [Dead Men Tell No Tales](https://en.wikipedia.org/wiki/Dead%20Men%20T
 
 ## The Deadlier Sex
 
-_The Deadlier Sex_ is a comedy movie directed by Robert Thornby. It stars Blanche Sweet and Winter Hall.
+*The Deadlier Sex* is a comedy directed by Robert Thornby. It stars Blanche Sweet and Winter Hall.
 
 **Synopsis**: "When Daisy and her friend Harry attempt to rob Harry's rich uncle, the robbery goes wrong and Harry is killed. Daisy leaves Harry's body in the closet and they go to Daisy's house and Harry tries to explain to his wife, Mary, why he's so late coming home. After Daisy goes to Mary's house, Daisy demands more money but Mary refused. The next morning, the uncle discovers the body and the coroners said Harry committed suicide because of all the wounds he has on his stomach. He was determined dead for about four hours. The policeman, Jones, interrogates Daisy and Mary, but Daisy gets into Mary's house and Jones jumps through the window and opens fire. Mary opens fire on the policeman, Jones. It happened so suddenly, the main thing the police officers remember is Daisy shaking them."
 
@@ -1052,7 +1052,7 @@ Wikipedia: [The Deadlier Sex](https://en.wikipedia.org/wiki/The%20Deadlier%20Sex
 
 ## Deadline at Eleven
 
-_Deadline at Eleven_ is a drama movie directed by George Fawcett. It stars Corinne Griffith and Webster Campbell.
+*Deadline at Eleven* is a drama directed by George Fawcett. It stars Corinne Griffith and Webster Campbell.
 
 **Synopsis**: There are two stories that seem to be occurring at first glance. The first is about the Taylors, who are trying to break into the cutthroat society of Beverly Hills, climbing to the top of social ladder, and the second story is the one of an alcoholic reporter trying to talk about his newest story despite his ongoing protestations. Ralph is an alcoholic reporter who has an ongoing problem with alcohol. He has to focus on the issue of the Taylors, who are fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud fraud
 
@@ -1060,7 +1060,7 @@ Wikipedia: [Deadline at Eleven](https://en.wikipedia.org/wiki/Deadline%20at%20El
 
 ## The Deep Purple
 
-_The Deep Purple_ is a crime movie directed by Raoul Walsh. It stars Miriam Cooper and Helen Ware.
+*The Deep Purple* is a crime directed by Raoul Walsh. It stars Miriam Cooper and Helen Ware.
 
 **Synopsis**: A diamond heist at the naval station in Seattle leads the Harbor police to surmise that it was planned by an inside man working with an accomplice who was an expert marksman. During the heist, one of the bad guys is caught off guard, an act which leads to the death of the heroine's husband. This leads the heroine (Miriam Cooper) to assume her role as lead detective. She wants the killer to swing for her husband's death.
 
@@ -1068,7 +1068,7 @@ Wikipedia: [The Deep Purple](https://en.wikipedia.org/wiki/The%20Deep%20Purple%2
 
 ## Deep Waters
 
-_Deep Waters_ is a drama movie directed by Maurice Tourneur. It stars Barbara Bedford and John Gilbert.
+*Deep Waters* is a drama directed by Maurice Tourneur. It stars Barbara Bedford and John Gilbert.
 
 **Synopsis**: Deep Waters is about a female who can't swim who goes with her husband to Baja California hoping to get an endless supply of fish. Instead she's eventually stranded on the Mexican coast during an onslaught of storms.
 
@@ -1078,7 +1078,7 @@ Wikipedia: [Deep Waters](https://en.wikipedia.org/wiki/Deep%20Waters%20%281920%2
 
 ## Desert Love
 
-_Desert Love_ is a western movie directed by Jacques Jaccard. It stars Tom Mix, Francelia Billington, and Eva Novak.
+*Desert Love* is a western directed by Jacques Jaccard. It stars Tom Mix, Francelia Billington, and Eva Novak.
 
 **Synopsis**: Characters John Hillard Desert Pearl Dorset Steel Dollop Riding
 
@@ -1090,7 +1090,7 @@ Wikipedia: [Desert Love](https://en.wikipedia.org/wiki/Desert%20Love)
 
 ## The Desperate Hero
 
-_The Desperate Hero_ is a comedy movie directed by Wesley Ruggles. It stars Owen Moore and Gloria Hope.
+*The Desperate Hero* is a comedy directed by Wesley Ruggles. It stars Owen Moore and Gloria Hope.
 
 **Synopsis**: The movie begins with a group of criminals, dubbed by a reporter as a "cat." Holding a man hostage, they flee the robbery to a mansion for a party, where they claim their gang treasurer has been hiding from the police. The denizens of the mansion want no part of their party-crashing and the cops want them arrested. In the end, the thieves all get arrested and go to jail.
 
@@ -1098,7 +1098,7 @@ Wikipedia: [The Desperate Hero](https://en.wikipedia.org/wiki/The%20Desperate%20
 
 ## The Devil's Claim
 
-_The Devil's Claim_ is a drama movie directed by Charles Swickard. It stars Sessue Hayakawa, Colleen Moore, and Rhea Mitchell.
+*The Devil's Claim* is a drama directed by Charles Swickard. It stars Sessue Hayakawa, Colleen Moore, and Rhea Mitchell.
 
 **Synopsis**: When General Yamaguchi is mortally injured during the Russo-Japanese War, he makes a deal with the Devil so that he will be healed, but has to repay him by leading men to their deaths. Years later, Yamaguchi meets Mrs. Moore, an American. Yamaguchi falls in love with Mrs. Moore, but she is already committed to her American husband named Hal. When Hal goes to fight for America in World War I, Yamaguchi wants to lead Hal to safety. But with his deal with the Devil, how can Yamaguchi save Hal?
 
@@ -1106,7 +1106,7 @@ Wikipedia: [The Devil's Claim](https://en.wikipedia.org/wiki/The%20Devil%27s%20C
 
 ## The Devil's Garden
 
-_The Devil's Garden_ is a drama movie directed by Kenneth Webb. It stars Lionel Barrymore, May McAvoy, and Doris Rankin.
+*The Devil's Garden* is a drama directed by Kenneth Webb. It stars Lionel Barrymore, May McAvoy, and Doris Rankin.
 
 **Synopsis**: The Devil's Garden is a social drama whose subject is the destructive pattern of alcoholism and drug addiction in inter-generational families.
 
@@ -1114,7 +1114,7 @@ Wikipedia: [The Devil's Garden](https://en.wikipedia.org/wiki/The%20Devil%27s%20
 
 ## The Devil's Pass Key
 
-_The Devil's Pass Key_ is a drama movie directed by Erich von Stroheim. It stars Sam de Grasse and Mae Busch.
+*The Devil's Pass Key* is a drama directed by Erich von Stroheim. It stars Sam de Grasse and Mae Busch.
 
 **Synopsis**: Two hunters take refuge inside an abandoned cabin during an Oklahoma snowstorm. With their significant others far away, envious passions come to the fore, culminating in tragedy. This film signifies the American silent film's collapse.
 
@@ -1122,7 +1122,7 @@ Wikipedia: [The Devil's Pass Key](https://en.wikipedia.org/wiki/The%20Devil%27s%
 
 ## The Devil's Riddle
 
-_The Devil's Riddle_ is a drama movie directed by Frank Beal. It stars Gladys Brockwell and William Scott.
+*The Devil's Riddle* is a drama directed by Frank Beal. It stars Gladys Brockwell and William Scott.
 
 **Synopsis**: A lonesome guardian angel becomes absorbed by Earth and gets caught up with chaos and carnal desires.
 
@@ -1130,7 +1130,7 @@ Wikipedia: [The Devil's Riddle](https://en.wikipedia.org/wiki/The%20Devil%27s%20
 
 ## The Devil to Pay
 
-_The Devil to Pay_ is a mystery movie directed by Ernest C. Warde. It stars Roy Stewart, Robert McKim, and Fritzi Brunette.
+*The Devil to Pay* is a mystery directed by Ernest C. Warde. It stars Roy Stewart, Robert McKim, and Fritzi Brunette.
 
 **Synopsis**: As burglary spikes within Atlanta, amateur detective Peter Brown is enlisted by his uncle to solve the crimes.
 
@@ -1138,7 +1138,7 @@ Wikipedia: [The Devil to Pay](https://en.wikipedia.org/wiki/The%20Devil%20to%20P
 
 ## Dice of Destiny
 
-_Dice of Destiny_ is a crime movie directed by Henry King. It stars H. B. Warner and Lillian Rich.
+*Dice of Destiny* is a crime directed by Henry King. It stars H. B. Warner and Lillian Rich.
 
 **Synopsis**: Dice of Destiny is a crime movie about a jewelry store employee who plots a robbery.
 
@@ -1146,7 +1146,7 @@ Wikipedia: [Dice of Destiny](https://en.wikipedia.org/wiki/Dice%20of%20Destiny)
 
 ## Dinty
 
-_Dinty_ is an adventure comedy movie directed by Marshall Neilan. It stars Wesley Barry, Noah Beery, and Colleen Moore.
+*Dinty* is an adventure comedy directed by Marshall Neilan. It stars Wesley Barry, Noah Beery, and Colleen Moore.
 
 **Synopsis**: Dinty a a movie of a boy cocky and a frog's foot. Wesley Barry did a 2 comedy 2 fighting, comedy, fighting, fighting.
 
@@ -1156,7 +1156,7 @@ Wikipedia: [Dinty](https://en.wikipedia.org/wiki/Dinty%20%28film%29)
 
 ## The Discarded Woman
 
-_The Discarded Woman_ is a drama movie directed by Burton L. King. It stars Grace Darling and Rod La Rocque.
+*The Discarded Woman* is a drama directed by Burton L. King. It stars Grace Darling and Rod La Rocque.
 
 **Synopsis**: Director Burton L. King crafts a forgotten story of love and class differences in this silent film. The movie centers on two occasions, one of them involves Judith Marsh (1910), who's banker husband Frederick (1920s) catches her with her footman. A second scenario (1900) is about Tom Winston (1910), who is the only son of the city's wealthiest family. After his leaving for college, he too comes home with his booty call; the marriage gets off on the wrong foot.
 
@@ -1168,7 +1168,7 @@ Wikipedia: [The Discarded Woman](https://en.wikipedia.org/wiki/The%20Discarded%2
 
 ## Dollar for Dollar
 
-_Dollar for Dollar_ is a drama movie directed by Frank Keenan. It stars Kathleen Kirkham and Harry von Meter.
+*Dollar for Dollar* is a drama directed by Frank Keenan. It stars Kathleen Kirkham and Harry von Meter.
 
 **Synopsis**: Janne Cash is in debt $4,000 in credit card debt after years in the Marines. With the help of his friends Buck and Ralph, he tries to raise enough money to pay off his debt.
 
@@ -1184,7 +1184,7 @@ Wikipedia: [Dollar for Dollar](https://en.wikipedia.org/wiki/Dollar%20for%20Doll
 
 ## Dollars and Sense
 
-_Dollars and Sense_ is a drama movie directed by Harry Beaumont. It stars Madge Kennedy and Kenneth Harlan.
+*Dollars and Sense* is a drama directed by Harry Beaumont. It stars Madge Kennedy and Kenneth Harlan.
 
 **Synopsis**: Karen Peters, an orphan who is being raised by her aunt Alice, is dependent on acting for her livelihood. Karen is replaced with younger actors in the theatre company she was working for. The manager offers her a great, but temporary, role in a melodrama to keep her employed.
 
@@ -1192,11 +1192,11 @@ Wikipedia: [Dollars and Sense](https://en.wikipedia.org/wiki/Dollars%20and%20Sen
 
 ## Dollars and the Woman
 
-_Dollars and the Woman_ is a drama movie directed by George Terwilliger. It stars Alice Joyce and Crauford Kent.
+*Dollars and the Woman* is a drama directed by George Terwilliger. It stars Alice Joyce and Crauford Kent.
 
-**Synopsis**: This drama is about Marian Gordon who is a woman who is estranged from her family with the exception of her daughter, Madeline. After Madeline decides to marry out of her social class, this sets off a series of dramatic events between Marian and Madeline.
+**Synopsis**: This drama is about Marian Gordon who is a woman who is estranged from her family with the exception of her daughter, Madeline. After Madeline decides to marry out of her social class, this sets off a series of dramatic events between Marian and Madeline. 
 
-Marian Gordon is a woman who is now estranged from her family with the exception of her daughter, Madeline. One day, Madeline is falsely accused of manslaughter and given short sentence; Madeline decides to flee the country. Madeline realizes the injustice she is running away from.
+Marian Gordon is a woman who is now estranged from her family with the exception of her daughter, Madeline. One day, Madeline is falsely accused of manslaughter and given short sentence; Madeline decides to flee the country. Madeline realizes the injustice she is running away from. 
 
 Madeline returns to try to create peace, but end up reigniting sparks that is not there. Madeline's meddling is not what her mother needs right now, but Madeline doesn't really care; she end up leaving again.
 
@@ -1204,7 +1204,7 @@ Wikipedia: [Dollars and the Woman](https://en.wikipedia.org/wiki/Dollars%20and%2
 
 ## Don't Ever Marry
 
-_Don't Ever Marry_ is a comedy movie directed by Marshall Neilan. It stars Matt Moore and Marjorie Daw.
+*Don't Ever Marry* is a comedy directed by Marshall Neilan. It stars Matt Moore and Marjorie Daw.
 
 **Synopsis**: Pep Larkin is an agent of the Saint Clara Switchboard Company who dreams of marrying his sweetheart, Gertie. Gertie is not the only girl he falls in love with. Though an agent of the Saint Clara Switchboard Company, Pep is still susceptible to switching boards on his service, breaking company rules.
 
@@ -1218,7 +1218,7 @@ Wikipedia: [Don't Ever Marry](https://en.wikipedia.org/wiki/Don%27t%20Ever%20Mar
 
 ## Double Speed
 
-_Double Speed_ is a comedy movie directed by Sam Wood. It stars Wallace Reid and Wanda Hawley.
+*Double Speed* is a comedy directed by Sam Wood. It stars Wallace Reid and Wanda Hawley.
 
 **Synopsis**: Jimmy Fawkes is a handsome reporter who hears that a famous race car driver for the House of Knight race car company will be holding a Friday night party. Excited for the chance of a big scoop, he pops on his necktie, slicks back his hair style, and sets off to the party. When he arrives at the party, Jimmy has to wear a mask because of the Senator's law which prohibits hens from entering.
 
@@ -1230,7 +1230,7 @@ Wikipedia: [Double Speed](https://en.wikipedia.org/wiki/Double%20Speed)
 
 ## A Double-Dyed Deceiver
 
-_A Double-Dyed Deceiver_ is a crime drama movie directed by Alfred E. Green. It stars Jack Pickford and Marie Dunn.
+*A Double-Dyed Deceiver* is a crime drama directed by Alfred E. Green. It stars Jack Pickford and Marie Dunn.
 
 **Synopsis**: Great American Western starring Jack Pickford as a cowboy-turned-criminal. Mary, his sweetheart, wants him to be a fighter of injustice. He falls in love with a socialite, who is really an imposter. When she is planning a rendezvous with a rich criminal, she discovers Shadow's true nature and leaves him. After a series of adventures, he discovers he really loves Mary, and they return to her. Shadow is redeemed by her love.
 
@@ -1238,7 +1238,7 @@ Wikipedia: [A Double-Dyed Deceiver](https://en.wikipedia.org/wiki/A%20Double-Dye
 
 ## Down Home
 
-_Down Home_ is a drama movie directed by Irvin Willat. It stars Leatrice Joy and James O. Barrows.
+*Down Home* is a drama directed by Irvin Willat. It stars Leatrice Joy and James O. Barrows.
 
 **Synopsis**: Two traveling salesmen take a hitchhiking woman to a rurual Louisiana parish where she has been ostracized from her family because she is a divorce. She makes a new life with the help from the townspeople.
 
@@ -1250,7 +1250,7 @@ Wikipedia: [Down Home](https://en.wikipedia.org/wiki/Down%20Home%20%28film%29)
 
 ## Down on the Farm
 
-_Down on the Farm_ is a comedy movie directed by Erle C. Kenton. It stars Louise Fazenda and Harry Gribbon.
+*Down on the Farm* is a comedy directed by Erle C. Kenton. It stars Louise Fazenda and Harry Gribbon.
 
 **Synopsis**: Some country folks mistakenly buy a farm instead of a factory. Now they must learn how to run the farm and the story of their struggles.
 
@@ -1258,7 +1258,7 @@ Wikipedia: [Down on the Farm](https://en.wikipedia.org/wiki/Down%20on%20the%20Fa
 
 ## Dr. Jekyll and Mr. Hyde
 
-_Dr. Jekyll and Mr. Hyde_ is a horror movie directed by John S. Robertson. It stars John Barrymore.
+*Dr. Jekyll and Mr. Hyde* is a horror directed by John S. Robertson. It stars John Barrymore.
 
 **Synopsis**: Dr. Jekyll becomes obsessed with finding a moral equivalent to his experiment, which unleashes the devastating personality of Mr. Hyde who is twisted in his pleasure of being evil. Jekyll wants to control the primal side of himself, but with the release of the potion, his own life is put in jeopardy.
 
@@ -1266,7 +1266,7 @@ Wikipedia: [Dr. Jekyll and Mr. Hyde](https://en.wikipedia.org/wiki/Dr.%20Jekyll%
 
 ## Drag Harlan
 
-_Drag Harlan_ is a western movie directed by J. Gordon Edwards. It stars William Farnum and Jackie Saunders.
+*Drag Harlan* is a western directed by J. Gordon Edwards. It stars William Farnum and Jackie Saunders.
 
 **Synopsis**: A cattleman in an unnamed California location shoots angrily when passed out in a drunken state. The bullet injures a youngster from a rival ranch next door when he returns from fishing. When asked to make amends, the Cattleman refuses and says all the Cattleman's need to do is stop their cattle from tramping down his property. The youngster's family tries to get revenge but ends up looking silly because Whites know Indians all too well and how to stick them with a spear.
 
@@ -1274,7 +1274,7 @@ Wikipedia: [Drag Harlan](https://en.wikipedia.org/wiki/Drag%20Harlan)
 
 ## The Dream Cheater
 
-_The Dream Cheater_ is a horror movie directed by Ernest C. Warde. It stars J. Warren Kerrigan and Wedgwood Nowell.
+*The Dream Cheater* is a horror directed by Ernest C. Warde. It stars J. Warren Kerrigan and Wedgwood Nowell.
 
 **Synopsis**: A man haunted by an unsuccessful magician hires a beautiful woman to help him stop the nightmares. She performs an occult ritual to put an end to them, but it backfires. Not understanding, she joins him in the dream world, where witches are stripping away his reality, but her help may not be enough to save him.
 
@@ -1286,12 +1286,12 @@ Wikipedia: [The Dream Cheater](https://en.wikipedia.org/wiki/The%20Dream%20Cheat
 
 ## Duds
 
-_Duds_ is a mystery movie directed by Thomas R. Mills. It stars Tom Moore, Naomi Childers, and Christine Mayo.
+*Duds* is a mystery directed by Thomas R. Mills. It stars Tom Moore, Naomi Childers, and Christine Mayo.
 
-**Synopsis**: Billy Ray is dating Connie and Flossie and is loving all what he has. He is living next door and they all intrigue and drive him crazy.
+**Synopsis**: Billy Ray is dating Connie and Flossie and is loving all what he has. He is living next door and they all intrigue and drive him crazy. 
 The movie turns dark as those close to Billy Ray die and those he used to be connected to now show their true colors.
-The secrets and lies only now begin to surface as those who love him die.
-The thin thread of sanity is beginning to unravel as those whom deceive must face the dire consequences of their actions.
+The secrets and lies only now begin to surface as those who love him die. 
+The thin thread of sanity is beginning to unravel as those whom deceive must face the dire consequences of their actions. 
 Billy Ray must act quickly to act before he too becomes victimized by his past.
 
 How does the director's use of camera movement contribute to the mood?
@@ -1302,7 +1302,7 @@ Wikipedia: [Duds](https://en.wikipedia.org/wiki/Duds%20%28film%29)
 
 ## The Dwelling Place of Light
 
-_The Dwelling Place of Light_ is a drama movie directed by Jack Conway. It stars Claire Adams and Nigel De Brulier.
+*The Dwelling Place of Light* is a drama directed by Jack Conway. It stars Claire Adams and Nigel De Brulier.
 
 **Synopsis**: The Dwelling Place of Light is about the inner world of the soul, and we witness the efforts of two unselfish doctors to lead a former mental patient back to life and hope. He is emotionally bankrupt and he yields to the evil in him—a dark force whose object is to satisfy his physical ambitions at the expense of another human soul.
 
@@ -1314,7 +1314,7 @@ Wikipedia: [The Dwelling Place of Light](https://en.wikipedia.org/wiki/The%20Dwe
 
 ## Earthbound
 
-_Earthbound_ is a drama movie directed by T. Hayes Hunter. It stars Wyndham Standing, Mahlon Hamilton, and Naomi Childers.
+*Earthbound* is a drama directed by T. Hayes Hunter. It stars Wyndham Standing, Mahlon Hamilton, and Naomi Childers.
 
 **Synopsis**: Following two teenage boys named Toby and Jess, we meet with their slightly eccentric friends and families as they deal with the challenges of adolescence and young adulthood.
 
@@ -1322,7 +1322,7 @@ Wikipedia: [Earthbound](https://en.wikipedia.org/wiki/Earthbound%20%281920%20fil
 
 ## Easy to Get
 
-_Easy to Get_ is a comedy movie directed by Walter Edwards. It stars Marguerite Clark and Rod La Rocque.
+*Easy to Get* is a comedy directed by Walter Edwards. It stars Marguerite Clark and Rod La Rocque.
 
 **Synopsis**: Fast-talking Helen is head of a small-time con team who pulls off a trick, posing as a wealthy dowager, and crosses paths with a handsome, impoverished artist on a bus tour of Los Angeles. In a country of making the best of the cards you've been dealt, theirs is a true passion. As friends and companions, they trap themselves into a web that is difficult to escape, chipping away at the huge walls that they've put up to safeguard their own heart.
 
@@ -1338,7 +1338,7 @@ Wikipedia: [Easy to Get](https://en.wikipedia.org/wiki/Easy%20to%20Get)
 
 ## The Empire of Diamonds
 
-_The Empire of Diamonds_ is a crime movie directed by Léonce Perret. It stars Robert Elliott and Lucy Fox.
+*The Empire of Diamonds* is a crime directed by Léonce Perret. It stars Robert Elliott and Lucy Fox.
 
 **Synopsis**: Jeff Warren, an American diamond manufacturer visits Paris and hires Frenchman, Paul Magagnos to find the man who is killing his diamond shipments. His connection is stopped and killed.
 
@@ -1348,7 +1348,7 @@ Wikipedia: [The Empire of Diamonds](https://en.wikipedia.org/wiki/The%20Empire%2
 
 ## The Eternal Mother
 
-_The Eternal Mother_ is a drama movie directed by Will S. Davis. It stars Florence Reed, Lionel Atwill, and Gareth Hughes.
+*The Eternal Mother* is a drama directed by Will S. Davis. It stars Florence Reed, Lionel Atwill, and Gareth Hughes.
 
 **Synopsis**: This independent film tells the story of two convict brothers who are on the run after stealing some cash during a train robbery. They escape, but the older brother is injured during the robbery. Unable to get back to their hideout, they head to the country for help.
 
@@ -1364,7 +1364,7 @@ Wikipedia: [The Eternal Mother](https://en.wikipedia.org/wiki/The%20Eternal%20Mo
 
 ## Even as Eve
 
-_Even as Eve_ is a comedy movie directed by B. A. Rolfe. It stars Sally Crute and Marc McDermott.
+*Even as Eve* is a comedy directed by B. A. Rolfe. It stars Sally Crute and Marc McDermott.
 
 **Synopsis**: Eve is the story of Adam's journey to find love in an unfriendly new town. Eve, Adam's friend, helps him navigate the bizarre world of the local dating scene, while his roommate searches for Eve's daughter, who ran away nineteen years ago. Adam seeks the truth regarding the family tragedy while transforming himself from a shy, narrow conservative.
 
@@ -1372,7 +1372,7 @@ Wikipedia: [Even as Eve](https://en.wikipedia.org/wiki/Even%20as%20Eve)
 
 ## Everybody's Sweetheart
 
-_Everybody's Sweetheart_ is a comedy drama movie directed by Laurence Trimble. It stars Olive Thomas and William Collier Jr..
+*Everybody's Sweetheart* is a comedy drama directed by Laurence Trimble. It stars Olive Thomas and William Collier Jr..
 
 **Synopsis**: This movie follows Olive who is making $1,000 a night as a chorus girl, but her mother is determined to keep her out of what she considers to be a violent profession. Her Great Aunt Kimberly, played by Billie Burke agrees with her mother. Olive doesn't care what they think and she is determined to pursue her career.
 
@@ -1384,7 +1384,7 @@ Wikipedia: [Everybody's Sweetheart](https://en.wikipedia.org/wiki/Everybody%27s%
 
 ## Everything But the Truth
 
-_Everything But the Truth_ is a comedy movie directed by Eddie Lyons. It stars Eddie Lyons, Lee Moran, and Anne Cornwall.
+*Everything But the Truth* is a comedy directed by Eddie Lyons. It stars Eddie Lyons, Lee Moran, and Anne Cornwall.
 
 **Synopsis**: But the Truth follows Eddie Lyons, who is the narrator and hero, as he tries to keep his relationship with Christie alive after they find out that she has lied to him for all their time together.
 
@@ -1396,19 +1396,19 @@ Wikipedia: [Everything But the Truth](https://en.wikipedia.org/wiki/Everything%2
 
 ## Excuse My Dust
 
-_Excuse My Dust_ is a comedy movie directed by Sam Wood. It stars Wallace Reid and Ann Little.
+*Excuse My Dust* is a comedy directed by Sam Wood. It stars Wallace Reid and Ann Little.
 
 **Synopsis**: Excuse My Dust is about a well-meaning, but inept inventor who's run out of money. Stranded in a dusty, hot town, he clashes with the people around him over money, technology, the future of civilization, women, childrearing, and just about everything else.
 
 </p>
 
-<a href="http://en.wikipedia.org/wiki/Excuse_My_Dust_(1936_film)">http://en.wikipedia.org/wiki/Excuse*My_Dust*(1936_film)</a>
+<a href="http://en.wikipedia.org/wiki/Excuse_My_Dust_(1936_film)">http://en.wikipedia.org/wiki/Excuse_My_Dust_(1936_film)</a>
 
 Wikipedia: [Excuse My Dust](https://en.wikipedia.org/wiki/Excuse%20My%20Dust%20%281920%20film%29)
 
 ## Eyes of the Heart
 
-_Eyes of the Heart_ is a crime movie directed by Paul Powell. It stars Mary Miles Minter, Edmund Burns, and Lucien Littlefield.
+*Eyes of the Heart* is a crime directed by Paul Powell. It stars Mary Miles Minter, Edmund Burns, and Lucien Littlefield.
 
 **Synopsis**: Edmund Burns steals a diamond at a carnival, but it gets cracked. He falls in love with the daughter of the owner, but he turns to crime again to make money. The daughter finds out his identity she rat him out.
 
@@ -1420,9 +1420,9 @@ Wikipedia: [Eyes of the Heart](https://en.wikipedia.org/wiki/Eyes%20of%20the%20H
 
 ## The Face at Your Window
 
-_The Face at Your Window_ is a drama movie directed by Richard Stanton. It stars Gina Relly and Earl Metcalfe.
+*The Face at Your Window* is a drama directed by Richard Stanton. It stars Gina Relly and Earl Metcalfe.
 
-**Synopsis**: When traveling teacher Annie (Relly) arrives in rural Alabama to teach at the rural school where she attended, she feels at home immediately; both with her beautiful surroundings and her former classmates. She observes that things are somewhat different in her home town. Annie is made to feel welcomed even by her former tormentor with whom she had fought in school many times. Feeling no hurry to find employment with her newly in hand teaching certificate in hand in order to move back to the city in which she had grown up in with her newly in London-based parents with whom she was living, Annie falls into teaching art, when she is asked with the school's teacher is missing. After teaching for an extended period of time with encouraging tenure, Annie is assaulted by yet another former classmate, in front of the board members, when she is rejected with security.
+**Synopsis**: When traveling teacher Annie (Relly) arrives in rural Alabama to teach at the rural school where she attended, she feels at home immediately; both with her beautiful surroundings and her former classmates. She observes that things are somewhat different in her home town. Annie is made to feel welcomed even by her former tormentor with whom she had fought in school many times. Feeling no hurry to find employment with her newly in hand teaching certificate in hand in order to move back to the city in which she had grown up in with her newly in London-based parents with whom she was living, Annie falls into teaching art, when she is asked with the school's teacher is missing. After teaching for an extended period of time with encouraging tenure, Annie is assaulted by yet another former classmate, in front of the board members, when she is rejected with security. 
 
 Just before the attack, Annie had been having a clandestine romance with one of her students, whom she learned enjoyed the art class that she taught. When Annie is attacked, Police Chief Finn Torrence (Earl Metcalfe), swears that he will get the perpetrator. The assault ties into a currently running homicide investigation from 1963 from which Chief Torrence' father was personally involved in. The inquiry leads Chief Torrence to fear for Annie's safety and ultimately causes him to make a life-changing decision for both himself and her.
 
@@ -1432,7 +1432,7 @@ Wikipedia: [The Face at Your Window](https://en.wikipedia.org/wiki/The%20Face%20
 
 ## Faith
 
-_Faith_ is a drama movie directed by Howard M. Mitchell. It stars Peggy Hyland and Winter Hall.
+*Faith* is a drama directed by Howard M. Mitchell. It stars Peggy Hyland and Winter Hall.
 
 **Synopsis**: A father, played by George Grizzard (subject of The Panic in Needle Park) is slowly dying. He has 3 children, all of which have left "the nest." His youngest, 12 year old Lizzie, played by Winter Hall, is battling an illness, for which there is no cure. The youngest child knows that she is just a temporary shield for the father to protect his unborn child.
 
@@ -1440,7 +1440,7 @@ Wikipedia: [Faith](https://en.wikipedia.org/wiki/Faith%20%281920%20film%29)
 
 ## The False Road
 
-_The False Road_ is a drama movie directed by Fred Niblo. It stars Enid Bennett and Lloyd Hughes.
+*The False Road* is a drama directed by Fred Niblo. It stars Enid Bennett and Lloyd Hughes.
 
 **Synopsis**: A lonely man throughout his life, Tony Rickard, dominated by his father and with a sibling who was his sole friend, discovers a family quarrel over the estate he inherits. Tony is the only child and the bequest is rich and generous - but by the rigor of the will and the terms of the will he must remain unmarried and alone. Both the sister and the father despise the suggestion that Tony's gruff sheepherding skills lead to happiness and the father doesn't want Tony to end up like him with nobody else to share his accomplishments with.
 
@@ -1448,7 +1448,7 @@ Wikipedia: [The False Road](https://en.wikipedia.org/wiki/The%20False%20Road)
 
 ## The Family Honor
 
-_The Family Honor_ is a drama movie directed by King Vidor. It stars Florence Vidor and Roscoe Karns.
+*The Family Honor* is a drama directed by King Vidor. It stars Florence Vidor and Roscoe Karns.
 
 **Synopsis**: Professor Magnus Milsom retires from the University and decides to spend his remaining years writing a biography of his father who had emigrated to the United States from a factory in a small town in England in pursuit of a better life. Professor Milsom take a trip back to his family home to collect his father's love letters to Magnus's mother in order to have them transcribed, but the townspeople take offense, believing that the letters could never be duplicated. The book is published in London, but in order to secure an American publisher, it needs to take the form of a novel. In the meantime, Professor Milsom saves a family from scandal when their son is wrongly accused of stealing from his father. Finally, much to the happiness of the townspeople, Liza, the granddaughter of a wealthy townspeople falls in love with Magnus and he falls in love with her.
 
@@ -1456,7 +1456,7 @@ Wikipedia: [The Family Honor](https://en.wikipedia.org/wiki/The%20Family%20Honor
 
 ## The Fatal Hour
 
-_The Fatal Hour_ is a drama movie directed by George Terwilliger. It stars Wilfred Lytell and Lionel Pape.
+*The Fatal Hour* is a drama directed by George Terwilliger. It stars Wilfred Lytell and Lionel Pape.
 
 **Synopsis**: The Fatal Hour replaces "Anna Karenina" and "Lady Audley's Secret", and may be one of many determinations of the approach the mystery novel was authored. The plot centers on a psychically fragile bride who learns of her decrepit marriage and incidentally secrets of her rich relatives.
 
@@ -1468,7 +1468,7 @@ Wikipedia: [The Fatal Hour](https://en.wikipedia.org/wiki/The%20Fatal%20Hour%20%
 
 ## The Fear Market
 
-_The Fear Market_ is a drama movie directed by Kenneth Webb. It stars Alice Brady and Frank Losee.
+*The Fear Market* is a drama directed by Kenneth Webb. It stars Alice Brady and Frank Losee.
 
 **Synopsis**: The Fear Market is about an unwed pregnant woman who must compete with heir sisters to win the love of the man who is to provide for her.
 
@@ -1476,7 +1476,7 @@ Wikipedia: [The Fear Market](https://en.wikipedia.org/wiki/The%20Fear%20Market)
 
 ## Felix O'Day
 
-_Felix O'Day_ is a drama movie directed by Robert Thornby. It stars H. B. Warner, Marguerite Snow, and Lillian Rich.
+*Felix O'Day* is a drama directed by Robert Thornby. It stars H. B. Warner, Marguerite Snow, and Lillian Rich.
 
 **Synopsis**: Felix O’Day is a high-ranking member of the Mitteleton County police force who, after being paralyzed during a gang-related shooting, retuned to the force as the county’s first handicapped police officer. The story centers around Felix, who is dealing with previously preconceived perceptions of handicapped people. These perceptions are manifested by the citizens of Mitterset County. The story also centers around Felix, who is dealing with two relationships, the one to Audrey, who he cares for deeply, and another son Sally.
 
@@ -1488,7 +1488,7 @@ Wikipedia: [Felix O'Day](https://en.wikipedia.org/wiki/Felix%20O%27Day)
 
 ## The Fighting Chance
 
-_The Fighting Chance_ is a drama movie directed by Charles Maigne. It stars Anna Q. Nilsson and Conrad Nagel.
+*The Fighting Chance* is a drama directed by Charles Maigne. It stars Anna Q. Nilsson and Conrad Nagel.
 
 **Synopsis**: A man named Colonel Wingate, whose
 
@@ -1496,11 +1496,11 @@ Wikipedia: [The Fighting Chance](https://en.wikipedia.org/wiki/The%20Fighting%20
 
 ## The Fighting Shepherdess
 
-_The Fighting Shepherdess_ is a romance movie directed by Edward José and Millard Webb. It stars Anita Stewart and Wallace MacDonald.
+*The Fighting Shepherdess* is a romance directed by Edward José and Millard Webb. It stars Anita Stewart and Wallace MacDonald.
 
 **Synopsis**: The Fighting Shepherdess is the first Technicolor production for Jose, who relied on it to make his money back after some bad investments. Written on the back of the film at the time were comments referencing Charles Dickens' A Christmas Carol quoting encouraging audience sentiment that one should be able to enjoy this movie "once or twice a week at matinees or with the evening meal."
 
-Anita Stewart, the Shepherdess, is startled by fear when she eavesdrops on three killers who are talking about where to "take care" of their next victim. Stewart overhears the plan because the two robbers have spoken her name to agree with their partner that she is guilty of the crime they planned to commit. Stewart flees for her life to alert the locals, but her escape is thwarted when they capture her.
+Anita Stewart, the Shepherdess, is startled by fear when she eavesdrops on three killers who are talking about where to "take care" of their next victim. Stewart overhears the plan because the two robbers have spoken her name to agree with their partner that she is guilty of the crime they planned to commit. Stewart flees for her life to alert the locals, but her escape is thwarted when they capture her. 
 
 One of the crooks tries to strangle Stewart, who was unsuccessfully trying to hold back her attacker's injury, but is unable to kill her. At the end of the movie, she captures, captures, and renders harmless one of the crooks.
 
@@ -1508,17 +1508,17 @@ Wikipedia: [The Fighting Shepherdess](https://en.wikipedia.org/wiki/The%20Fighti
 
 ## The Figurehead
 
-_The Figurehead_ is a drama movie directed by [[Robert Ellis (actor and Robert Ellis]]. It stars Eugene O'Brien, Anna Q. Nilsson, and Ora Carew.
+*The Figurehead* is a drama directed by [[Robert Ellis (actor and Robert Ellis]]. It stars Eugene O'Brien, Anna Q. Nilsson, and Ora Carew.
 
-**Synopsis**:
+**Synopsis**: 
 
 Wikipedia: [The Figurehead](https://en.wikipedia.org/wiki/The%20Figurehead%20%28film%29)
 
 ## Firebrand Trevison
 
-_Firebrand Trevison_ is a western movie directed by Thomas N. Heffron. It stars Buck Jones and Winifred Westover.
+*Firebrand Trevison* is a western directed by Thomas N. Heffron. It stars Buck Jones and Winifred Westover.
 
-**Synopsis**: The western is about a man who had to fight to save his abducted wife.
+**Synopsis**: The western is about a man who had to fight to save his abducted wife. 
 
 Buck Jones plays the lead character, Mark Goodwin, who had three brothers who were killed by an outlaw. This is the type of movie where Goodwin is on a hunt for another family by the name of Hall. He had done the same with his killed brothers. This is made of Hall's mother, his brother, who are the "male ghoul, ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul ghoul gh
 
@@ -1526,7 +1526,7 @@ Wikipedia: [Firebrand Trevison](https://en.wikipedia.org/wiki/Firebrand%20Trevis
 
 ## Fixed by George
 
-_Fixed by George_ is a comedy movie directed by Eddie Lyons. It stars Lee Moran and Eddie Lyons.
+*Fixed by George* is a comedy directed by Eddie Lyons. It stars Lee Moran and Eddie Lyons.
 
 **Synopsis**: Eddie Lyons (Lee Moran), a hard-working father, moves to a new neighborhood where he’s forced to do battle with a construction crew, his uncooperative supervisor George, and his own assistant scoutmasters. The film follows Eddie as he struggles to stay afloat and do well by his job and family.
 
@@ -1536,7 +1536,7 @@ Wikipedia: [Fixed by George](https://en.wikipedia.org/wiki/Fixed%20by%20George)
 
 ## Flame of Youth
 
-_Flame of Youth_ is a drama movie directed by Howard M. Mitchell. It stars Shirley Mason, Raymond McKee, and Philo McCullough.
+*Flame of Youth* is a drama directed by Howard M. Mitchell. It stars Shirley Mason, Raymond McKee, and Philo McCullough.
 
 **Synopsis**: A youth-obsessed society tries too hard to freeze the "salad days" instead of following Winnie's example of savoring life to the fullest wherever she is. The daughter of a dead television star, she has comforted parents of terminal children, allowed herself to be sold as a bride to rich businessmen who adopt the children, and finally married a visiting cowpoke just to annoy them. Later, she still unwittingly frustrates her daughter by preferring her time with her "failed" first husband, who observes that the neighborhood should find its flowering elsewhere.
 
@@ -1548,9 +1548,9 @@ Wikipedia: [Flame of Youth](https://en.wikipedia.org/wiki/Flame%20of%20Youth%20%
 
 ## Flames of the Flesh
 
-_Flames of the Flesh_ is a drama movie directed by Edward LeSaint. It stars Gladys Brockwell and William Scott.
+*Flames of the Flesh* is a drama directed by Edward LeSaint. It stars Gladys Brockwell and William Scott.
 
-**Synopsis**: Two Montreal insurance agents, Ruth and Oliver, strike up a romance. But Ruth is tired of "oliver"'s little sexual demands. She fills her waiting time waiting for blind dates. When a charming man comes into her life, the fog clears and the sparks fly!
+**Synopsis**: Two Montreal insurance agents, Ruth and Oliver, strike up a romance. But Ruth is tired of "oliver"'s little sexual demands. She fills her waiting time waiting for blind dates. When a charming man comes into her life, the fog clears and the sparks fly! 
 
 What movie genres does Flames of the Flesh belong to?
 
@@ -1560,7 +1560,7 @@ Wikipedia: [Flames of the Flesh](https://en.wikipedia.org/wiki/Flames%20of%20the
 
 ## The Flaming Clue
 
-_The Flaming Clue_ is a crime movie directed by Edwin L. Hollywood. It stars Harry T. Morey and Lucy Fox.
+*The Flaming Clue* is a crime directed by Edwin L. Hollywood. It stars Harry T. Morey and Lucy Fox.
 
 **Synopsis**: Bold confidence broker Herman Maddern has thought out the perfect crime. Ally, Ally, o my high hopes are crushed! Gone are my high hopes who will guide me now through the swirls of death! The directors of these films think they can pull by simply on cool visuals, red lighting, foreboding intros, clunky expository dialogue, and, most importantly, gimmicks. But no! The cinematic stylings of the Flaming Clue rejects this notion! They use color, cinematography, acting, dialogue, bloody violence, overplayed emotional affectations, stunt work, the triumph of the human spirit, carefully edited action sequences, sound design, costumes, set design, screen direction, location shooting, contextualization, mood. These directors are not ashamed to run run run with what they have, making it provide for them powerful catharsis that asks the audience to see the world through the eyes of the characters, as they dance as if their dance was as important as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as
 
@@ -1568,7 +1568,7 @@ Wikipedia: [The Flaming Clue](https://en.wikipedia.org/wiki/The%20Flaming%20Clue
 
 ## The Flapper
 
-_The Flapper_ is a comedy movie directed by Alan Crosland. It stars Olive Thomas and Warren Cook.
+*The Flapper* is a comedy directed by Alan Crosland. It stars Olive Thomas and Warren Cook.
 
 **Synopsis**: Olive Thomas plays Cora Crane, the "new sensation of the Manhattan nightclubs." Captured by movie cameras over a 4-year period, the movie explores Cora's risky lifestyle as against her family's wishes.
 
@@ -1578,7 +1578,7 @@ Wikipedia: [The Flapper](https://en.wikipedia.org/wiki/The%20Flapper)
 
 ## Flying Pat
 
-_Flying Pat_ is a comedy movie directed by F. Richard Jones. It stars Dorothy Gish and James Rennie.
+*Flying Pat* is a comedy directed by F. Richard Jones. It stars Dorothy Gish and James Rennie.
 
 **Synopsis**: Megargeena "Pat" O'Calahan is a gambler, card sharp, and cardsharp. Pat helps her maid to get her inheritance, but bets the other heirs that she can get it done in a day, which she does. Pat borrows money from a group of gangsters, who send their enforcer, "Tommy the Clipper" to teach her a lesson. Pat outwits him and buys two clubs for protection.
 
@@ -1588,7 +1588,7 @@ Wikipedia: [Flying Pat](https://en.wikipedia.org/wiki/Flying%20Pat)
 
 ## Food for Scandal
 
-_Food for Scandal_ is a comedy movie directed by James Cruze. It stars Wanda Hawley and Harrison Ford.
+*Food for Scandal* is a comedy directed by James Cruze. It stars Wanda Hawley and Harrison Ford.
 
 **Synopsis**: Inspired by a real-life scandal, a food columnist's job is jeopardized when a couple cooking a scandalous recipe comes over to her house.
 
@@ -1596,7 +1596,7 @@ Wikipedia: [Food for Scandal](https://en.wikipedia.org/wiki/Food%20for%20Scandal
 
 ## A Fool and His Money
 
-_A Fool and His Money_ is a drama movie directed by [[Robert Ellis (actor and Robert Ellis]]. It stars Eugene O'Brien and Rubye De Remer.
+*A Fool and His Money* is a drama directed by [[Robert Ellis (actor and Robert Ellis]]. It stars Eugene O'Brien and Rubye De Remer.
 
 **Synopsis**: A Texas businessman takes a break from his successful life to bring out his artistic side, but finds it difficult to get back into his former life.
 
@@ -1604,7 +1604,7 @@ Wikipedia: [A Fool and His Money](https://en.wikipedia.org/wiki/A%20Fool%20and%2
 
 ## Footlights and Shadows
 
-_Footlights and Shadows_ is a drama movie directed by John W. Noble. It stars Olive Thomas and Ivo Dawson.
+*Footlights and Shadows* is a drama directed by John W. Noble. It stars Olive Thomas and Ivo Dawson.
 
 **Synopsis**: Most people in the Silver Screen Productions live in small rural farm towns. When they graduate, many of them are expected to make the move to the big city to join the glamourous Lights. Victoria wanders among Footlights and Shadows when she graduates high school, uncertain which path to take
 
@@ -1612,7 +1612,7 @@ Wikipedia: [Footlights and Shadows](https://en.wikipedia.org/wiki/Footlights%20a
 
 ## For Love or Money
 
-_For Love or Money_ is a drama movie directed by Burton L. King. It stars Virginia Lee and Harry Benham.
+*For Love or Money* is a drama directed by Burton L. King. It stars Virginia Lee and Harry Benham.
 
 **Synopsis**: When poor small town girl Virginia Lee tries to manufacture fame to help the struggling town by becoming a Las Vegas showgirl, she experiences a night of being swept up in the high roller world of high stakes gambling and drugs, risking everything to prove herself.
 
@@ -1620,7 +1620,7 @@ Wikipedia: [For Love or Money](https://en.wikipedia.org/wiki/For%20Love%20or%20M
 
 ## For the Soul of Rafael
 
-_For the Soul of Rafael_ is a drama movie directed by Harry Garson. It stars Clara Kimball Young and Bertram Grassby.
+*For the Soul of Rafael* is a drama directed by Harry Garson. It stars Clara Kimball Young and Bertram Grassby.
 
 **Synopsis**: The film follows Rafael, an honorable, wealthy Spaniard with wild passions. His icy exterior shields Rafael from the emotions he spurns. When he is betrayed by his son with his beautiful young wife, all that Rafael takes for granted in his loveless marriage is enlisted to help find an assassin to kill his wife.
 
@@ -1628,13 +1628,13 @@ Wikipedia: [For the Soul of Rafael](https://en.wikipedia.org/wiki/For%20the%20So
 
 ## The Forbidden Thing
 
-_The Forbidden Thing_ is a drama movie directed by Allan Dwan. It stars James Kirkwood Sr. and Helen Jerome Eddy.
+*The Forbidden Thing* is a drama directed by Allan Dwan. It stars James Kirkwood Sr. and Helen Jerome Eddy.
 
-**Synopsis**: An arrogant, insecure, and domineering father, James Kirkwood Sr. (James Kirkwood Sr.), struggles to accept his daughter, Helen Jerome Eddy (Helen Jerome Eddy). She is an accomplished sculptress and he is outraged that he can't control his daughter's love life or creativity.
+**Synopsis**: An arrogant, insecure, and domineering father, James Kirkwood Sr. (James Kirkwood Sr.), struggles to accept his daughter, Helen Jerome Eddy (Helen Jerome Eddy). She is an accomplished sculptress and he is outraged that he can't control his daughter's love life or creativity. 
 
 What's the main conflict in the movie?
 
-The father has a difficult time accepting his daughter.
+The father has a difficult time accepting his daughter. 
 
 What does Helen want?
 
@@ -1648,7 +1648,7 @@ Wikipedia: [The Forbidden Thing](https://en.wikipedia.org/wiki/The%20Forbidden%2
 
 ## Forbidden Trails
 
-_Forbidden Trails_ is a western movie directed by Scott R. Dunlap. It stars Buck Jones and Winifred Westover.
+*Forbidden Trails* is a western directed by Scott R. Dunlap. It stars Buck Jones and Winifred Westover.
 
 **Synopsis**: As outlaw Jay Cole, on the run from Sheriff Dan Ellison, hides out in a village occupied by Native Americans, he meets a girl, Kaya, and stays on to help her on a trip to a sacred site. Dan intervenes and a gunfight ensues. The townspeople, angered at Dan, distribute his belongings and food stocks among themselves, and join with Cole to forestall him.
 
@@ -1662,7 +1662,7 @@ Wikipedia: [Forbidden Trails](https://en.wikipedia.org/wiki/Forbidden%20Trails)
 
 ## The Forbidden Valley
 
-_The Forbidden Valley_ is a drama movie directed by J. Stuart Blackton. It stars May McAvoy and Bruce Gordon.
+*The Forbidden Valley* is a drama directed by J. Stuart Blackton. It stars May McAvoy and Bruce Gordon.
 
 **Synopsis**: The film is about Rachel Carroll, an American trombone player, who is the only surviving child. Her father had taken her on safari to virtual "Heart of Darkness" in central Africa. One day, they meet Knight Corey, the leader of some British travelers on safari. Knight's constant companion is an Airedale pup. Rachel's father is killed by savage cannibals, who also take the life of the Airedale pup. Rachel remains on remote island alone for some months. There, she is captured by cannibals, taken to their village, rescued by Knight, and Rachel accompanies the travelers on their exploration of the forbidden valley. Rachel falls in love with Knight, but even after she is safe with her father back in America, her love remains only an unspoken longing.
 
@@ -1674,7 +1674,7 @@ Wikipedia: [The Forbidden Valley](https://en.wikipedia.org/wiki/The%20Forbidden%
 
 ## The Forbidden Woman
 
-_The Forbidden Woman_ is a drama movie directed by Harry Garson. It stars Clara Kimball Young and Conway Tearle.
+*The Forbidden Woman* is a drama directed by Harry Garson. It stars Clara Kimball Young and Conway Tearle.
 
 **Synopsis**: An unnamed speaker tells a story of a marquis who, having been informed by a clairvoyant man of his death at a festivity, convinces a harem woman, a condemned Spaniard called "The Woman of Toledo," to be his ultimate "companion." She agrees to meet him at night, and the marquis offers the means for her to flee the country one week beforehand.
 
@@ -1686,7 +1686,7 @@ Wikipedia: [The Forbidden Woman](https://en.wikipedia.org/wiki/The%20Forbidden%2
 
 ## The Forged Bride
 
-_The Forged Bride_ is a crime movie directed by Douglas Gerrard. It stars Mary MacLaren and J. Barney Sherry.
+*The Forged Bride* is a crime directed by Douglas Gerrard. It stars Mary MacLaren and J. Barney Sherry.
 
 **Synopsis**: Fearing that cattle rustler Tom McCord will hijack their valuable cattle, a mining businessman agrees to a contract to have his mining engineer turn into a marriageable man. In exchange for Tom McCord's safety during the annual cattle drive, the businessman agrees to this, as a way to make it look as if he were accompanied by a wife.
 
@@ -1698,7 +1698,7 @@ Wikipedia: [The Forged Bride](https://en.wikipedia.org/wiki/The%20Forged%20Bride
 
 ## The Fortune Hunter
 
-_The Fortune Hunter_ is a comedy movie directed by Tom Terriss. It stars Earle Williams and Jean Paige.
+*The Fortune Hunter* is a comedy directed by Tom Terriss. It stars Earle Williams and Jean Paige.
 
 **Synopsis**: A gentleman fortune hunter who is not overly-endowed with brains, loses the prestigious Mount Stephen Prize on the eve of the big match. The trip to England brings an opportunity of love, excitement, and wealth beyond his wildest dreams.
 
@@ -1706,7 +1706,7 @@ Wikipedia: [The Fortune Hunter](https://en.wikipedia.org/wiki/The%20Fortune%20Hu
 
 ## The Fortune Teller
 
-_The Fortune Teller_ is a drama movie directed by Albert Capellani. It stars Marjorie Rambeau, Frederick Burton, and Raymond McKee.
+*The Fortune Teller* is a drama directed by Albert Capellani. It stars Marjorie Rambeau, Frederick Burton, and Raymond McKee.
 
 **Synopsis**: A Parisian fortune teller, Masha, tells Madame Monteux, a woman who seeks to find true love, about her fortune worth $10. To convince her about the power of the cards she has in her hand, she takes Madame Monteux to visit her abusive dark and abusive and uncle and aunt and the family's son who is dying and then recover.
 
@@ -1718,7 +1718,7 @@ Wikipedia: [The Fortune Teller](https://en.wikipedia.org/wiki/The%20Fortune%20Te
 
 ## 45 Minutes from Broadway
 
-_45 Minutes from Broadway_ is a comedy movie directed by Joseph De Grasse. It stars Charles Ray and Dorothy Devore.
+*45 Minutes from Broadway* is a comedy directed by Joseph De Grasse. It stars Charles Ray and Dorothy Devore.
 
 **Synopsis**: 30 Minutes from Broadway is about a 30-minute trolley ride that goes straight through the heart of the scary city. A trolley car driver spends his day sharing stories with passengers about his hometown of Briar Brook. During the trolley ride, you never find out if the trolley ever enters the 29th Street one because its entrance is blocked by a gang of boys playing marbles.
 
@@ -1728,7 +1728,7 @@ Wikipedia: [45 Minutes from Broadway](https://en.wikipedia.org/wiki/45%20Minutes
 
 ## The Fourteenth Man
 
-_The Fourteenth Man_ is a comedy movie directed by Joseph Henabery. It stars Robert Warwick and Bebe Daniels.
+*The Fourteenth Man* is a comedy directed by Joseph Henabery. It stars Robert Warwick and Bebe Daniels.
 
 **Synopsis**: The Fourteenth Man is a comedy movie directed by Joseph Henabery. In the movie, a man who is madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly madly mad
 
@@ -1736,7 +1736,7 @@ Wikipedia: [The Fourteenth Man](https://en.wikipedia.org/wiki/The%20Fourteenth%2
 
 ## The Frisky Mrs. Johnson
 
-_The Frisky Mrs. Johnson_ is a comedy movie directed by Edward Dillon. It stars Billie Burke, Ward Crane, and Lumsden Hare.
+*The Frisky Mrs. Johnson* is a comedy directed by Edward Dillon. It stars Billie Burke, Ward Crane, and Lumsden Hare.
 
 **Synopsis**: The movie starts with Mrs. Johnson expressing her frustration with the women at the club who are unmarried. When she mentions how many she's spoken to, Mrs. Mumford comes to her defense. Mrs. Johnson announces her plan to get married by the end of the year. Friends for over five decades, Mrs. Mumford agrees to join Mrs. Johnson in the pursuit of matrimony. Mrs. Johnson sets her sights on Mr. Anthony, but he rejects her advances. While being pressed to marry by her friend, Mrs. Johnson sets her eye on Mr. Waco. After three months of careful bargaining, Mrs. Johnson agrees to the six month trial period. As the days pass, Mrs. Johnson gets pregnant, shocking Mr. Waco, who suspects she'd been tricking him. Mr. Waco kicks her out of the house, leaving her to ponder her past plans to marry. After four months, Mr. Mumford convinces Mr. Waco to give her a divorce. Feeling at fault for listening to her friend and getting herself in this situation, Mrs. Johnson decides to restart her pledge and gets engaged to Mr. Anthony.
 
@@ -1746,7 +1746,7 @@ Wikipedia: [The Frisky Mrs. Johnson](https://en.wikipedia.org/wiki/The%20Frisky%
 
 ## From Now On
 
-_From Now On_ is a crime movie directed by Raoul Walsh. It stars George Walsh and James Marcus.
+*From Now On* is a crime directed by Raoul Walsh. It stars George Walsh and James Marcus.
 
 **Synopsis**: Joe Montagu, on the run from the police, disguises himself as a minister and shows up on the doorstep of two criminals, James Freeman and Roxie Mitchell. They mistake the minister for the real deal and suddenly the house is full of cops.
 
@@ -1754,7 +1754,7 @@ Wikipedia: [From Now On](https://en.wikipedia.org/wiki/From%20Now%20On%20%281920
 
 ## A Full House
 
-_A Full House_ is a crime movie directed by James Cruze. It stars Bryant Washburn and Lois Wilson.
+*A Full House* is a crime directed by James Cruze. It stars Bryant Washburn and Lois Wilson.
 
 **Synopsis**: Bryant Tucker is a river boat pilot guarding a shipment of money destined for the biggest poker tournament in the country. On the way to the tournament, Tucker is tipped off to a robbery. He tries to signal a warning to other boats on the river to help, but the others refuse to use their signal lamp out of solidarity for the robbers. Tucker arrives at the tournament first and runs a bluff on a poker tournament. Detective Hill, determined to find the robbers from the robbery from the other night arrives at the tournament as Tucker awaits for his tournament playing to start. Tucker continues to bluff until Hill catches on to his activities. Tucker ultimately wins the tournament and gets away with the vast majority of the money.
 
@@ -1764,7 +1764,7 @@ Wikipedia: [A Full House](https://en.wikipedia.org/wiki/A%20Full%20House)
 
 ## The Furnace
 
-_The Furnace_ is a drama movie directed by William Desmond Taylor. It stars Agnes Ayres and Jerome Patrick.
+*The Furnace* is a drama directed by William Desmond Taylor. It stars Agnes Ayres and Jerome Patrick.
 
 **Synopsis**: After showing all the signs of turning in to one of the idle rich, in retribution for his family's sinister secrets, Steve re-discovers his roots when placed in the midst of his father's mining operation in Cornwall. His father's idea of "joking" involves terrorizing Steve, carrying out his discontent with the young man's new found sense of well-being by giving him several physical injuries. Steve is in love with a family's maid, but feels bound by his contract to his father.
 
@@ -1776,7 +1776,7 @@ Wikipedia: [The Furnace](https://en.wikipedia.org/wiki/The%20Furnace%20%28film%2
 
 ## The Gamesters
 
-_The Gamesters_ is a drama movie directed by George L. Cox. It stars Margarita Fischer, Hayward Mack, and Lee Shumway.
+*The Gamesters* is a drama directed by George L. Cox. It stars Margarita Fischer, Hayward Mack, and Lee Shumway.
 
 **Synopsis**: The Gamesters is a drama movie directed by George L. Cox. It stars Margarita Fischer, Hayward Mack, and Lee Shumway. The film starts with a traveler at a small tavern. The traveler is offered to play a card game which turns out to be poker, but the stakes are higher than you would expect from a poker hand. The traveler loses and has to play another hand.
 
@@ -1786,7 +1786,7 @@ Wikipedia: [The Gamesters](https://en.wikipedia.org/wiki/The%20Gamesters)
 
 ## The Garter Girl
 
-_The Garter Girl_ is a drama movie directed by Edward H. Griffith. It stars Corinne Griffith and Sally Crute.
+*The Garter Girl* is a drama directed by Edward H. Griffith. It stars Corinne Griffith and Sally Crute.
 
 **Synopsis**: Henry and Francis Odle fly to the earth and find a reason for not to like humans.
 
@@ -1798,7 +1798,7 @@ Wikipedia: [The Garter Girl](https://en.wikipedia.org/wiki/The%20Garter%20Girl)
 
 ## The Gauntlet
 
-_The Gauntlet_ is a drama movie directed by Edwin L. Hollywood. It stars Harry T. Morey and Frank Hagney.
+*The Gauntlet* is a drama directed by Edwin L. Hollywood. It stars Harry T. Morey and Frank Hagney.
 
 **Synopsis**: This movie centers on John "Mad Dog" Hawkins, a shady boxing promoter, who gives up his honesty for the fast life of working at the racetracks. He supports his family with both gambling on horses and place-setting for rich businessmen. A number of jealousies, envy, greed, envy, and corruption, disrupt his life. Disappointed with his new gig, Mad Dog decides to take some action and plans the assassination of boxing champion "Bum" Johnson. Things go awry, however, when he gets entangled with a group of criminals led by George, their attempted against "Bum" fails, they are caught, and Mad Dog is sentenced to the electric chair.
 
@@ -1808,9 +1808,9 @@ Wikipedia: [The Gauntlet](https://en.wikipedia.org/wiki/The%20Gauntlet%20%281920
 
 ## The Gift Supreme
 
-_The Gift Supreme_ is a drama movie directed by Ollie L. Sellers. It stars Bernard Durning, Seena Owen, and Tully Marshall.
+*The Gift Supreme* is a drama directed by Ollie L. Sellers. It stars Bernard Durning, Seena Owen, and Tully Marshall.
 
-**Synopsis**: Hector sells expensive gifts to the rich and well-connected residents of Washington, D.C. after indulging in his illegally-owned ventriloquist dummy J.S. The two begin a competition in which Hector and J.S. put their knowledge and gifts to use to sell and scam each other for their own benefit.
+**Synopsis**: Hector sells expensive gifts to the rich and well-connected residents of Washington, D.C. after indulging in his illegally-owned ventriloquist dummy J.S. The two begin a competition in which Hector and J.S. put their knowledge and gifts to use to sell and scam each other for their own benefit. 
 
 Give your thoughts on the movie overall?
 
@@ -1820,7 +1820,7 @@ Wikipedia: [The Gift Supreme](https://en.wikipedia.org/wiki/The%20Gift%20Supreme
 
 ## The Gilded Dream
 
-_The Gilded Dream_ is a drama movie directed by Rollin S. Sturgeon. It stars Carmel Myers and Tom Chatterton.
+*The Gilded Dream* is a drama directed by Rollin S. Sturgeon. It stars Carmel Myers and Tom Chatterton.
 
 **Synopsis**: "1889, California’s gold rush is just about played out. The story of Mary Long suffers with the coming of the American Civil War, the distance of her beleaguered husband, and dangers of frontier life. Hopelessness bounds her daily struggles."
 
@@ -1828,7 +1828,7 @@ What is the Code of Silence about?
 
 Code of Silence is an American drama movie released in 1986 by Orion Pictures. It is produced by Jerry Bruckheimer. It stars Kurt Russell, Bob Hoskins, Robert De Niro, Dennis Farina, Cathy Moriarty, Brian Dennehy, David Morse, Bruce McGill, Charles Hallahan, Bart Braverman, and Diane Ladd.
 
-The synopsis of the movie is
+The synopsis of the movie is 
 
 "Like "Hill Street Blues" on the mean streets, this gripping film explores the difficult position of the police officer on the beat . A routine training day leaves two policemen with surprising rage in their eyes. Mike (Kurt Russell) passes his anger on to Terry (Bruce McGill). They violently assault a junkie who talks back to them. The guilty cops go about their daily bidding, able to remember nothing of the incident, burying forever the bitterness they share. Young Danny (David Morse) is in for an erosion of youthful empathy when he is assigned to serve under Mike. Fellow rookie Nicky (Dennis Farina) is determined to be different than his two veteran counterparts. Together these three-partner up in their rampant corruption. The burdens of corruption are increasingly hard to share. Terry, the compulsive gambler, feels compelled to walk out on his debts. Terry goes to the Black Market run by Moritz (Robert De Niro) to sell drugs to finance his losses.
 
@@ -1836,7 +1836,7 @@ Wikipedia: [The Gilded Dream](https://en.wikipedia.org/wiki/The%20Gilded%20Dream
 
 ## The Girl in Number 29
 
-_The Girl in Number 29_ is a drama movie directed by John Ford. It stars Frank Mayo and Elinor Fair.
+*The Girl in Number 29* is a drama directed by John Ford. It stars Frank Mayo and Elinor Fair.
 
 **Synopsis**: There is a very tight relationship between Mother and Daughter. When the small town girl moves to Paris with her Mother, she becomes aware that not all families are like her own. She later finds herself in what she always longed for, regardless of the cost.
 
@@ -1846,7 +1846,7 @@ Wikipedia: [The Girl in Number 29](https://en.wikipedia.org/wiki/The%20Girl%20in
 
 ## The Girl in the Rain
 
-_The Girl in the Rain_ is a mystery movie directed by Rollin S. Sturgeon. It stars Anne Cornwall and Lloyd Bacon.
+*The Girl in the Rain* is a mystery directed by Rollin S. Sturgeon. It stars Anne Cornwall and Lloyd Bacon.
 
 **Synopsis**: Anne Cornwall, the president of the Plum Gable school for girls, is informed that her school has been taken to court by the State. She must put together evidence showing that the girls are being properly cared for or the school will be closed forever.
 
@@ -1858,7 +1858,7 @@ Wikipedia: [The Girl in the Rain](https://en.wikipedia.org/wiki/The%20Girl%20in%
 
 ## The Girl in the Web
 
-_The Girl in the Web_ is a mystery movie directed by Robert Thornby. It stars Blanche Sweet and Nigel Barrie.
+*The Girl in the Web* is a mystery directed by Robert Thornby. It stars Blanche Sweet and Nigel Barrie.
 
 **Synopsis**: In this gothic mystery set in the 19th century, a butterfly collector is found dead by a local widow. The woman is soon arrested as the prime suspect as she is the only person with the motive as the collector was going to buy a butterfly from her. Stella, a novelist is blamed as she wrote the story of the dead man. As the trial proceeds, Stella slowly turns against Eleanor as she is found innocent of the charges. Stella is then convicted of a crime she had committed long ago and Eleanor puts a spider in her room for she believes she had been poisoning the insect. After Eleanor leaves, the spider drops from the cage and is crushed by a foot steps from behind.
 
@@ -1866,7 +1866,7 @@ Wikipedia: [The Girl in the Web](https://en.wikipedia.org/wiki/The%20Girl%20in%2
 
 ## The Girl of My Heart
 
-_The Girl of My Heart_ is an adventure movie directed by Edward LeSaint. It stars Shirley Mason and Raymond McKee.
+*The Girl of My Heart* is an adventure film directed by Edward LeSaint. It stars Shirley Mason and Raymond McKee.
 
 **Synopsis**: The daughter of an auto mechanic wants to make sure her daddy dies a healthy and happy man and may resort to illegal means to accomplish her goal. This black and white film leans heavily on the plight of the poor and working-class.
 
@@ -1878,7 +1878,7 @@ Wikipedia: [The Girl of My Heart](https://en.wikipedia.org/wiki/The%20Girl%20of%
 
 ## Go and Get It
 
-_Go and Get It_ is a comedy mystery movie directed by Marshall Neilan. It stars Pat O'Malley, Wesley Barry, and Agnes Ayres.
+*Go and Get It* is a comedy mystery directed by Marshall Neilan. It stars Pat O'Malley, Wesley Barry, and Agnes Ayres.
 
 **Synopsis**: Cousin Willie and his friend Byron decide to skip town and feel free from fear for a while. Grandma learns of the boys' plan and attempts to protect Willie and Byron from danger. This unsuccessful and trouble finds and follows them and it takes over family.
 
@@ -1886,7 +1886,7 @@ Wikipedia: [Go and Get It](https://en.wikipedia.org/wiki/Go%20and%20Get%20It)
 
 ## Godless Men
 
-_Godless Men_ is a drama movie directed by Reginald Barker. It stars Russell Simpson, Helene Chadwick, and John Bowers.
+*Godless Men* is a drama directed by Reginald Barker. It stars Russell Simpson, Helene Chadwick, and John Bowers.
 
 **Synopsis**: A 100-year-old story of sin and redemption under the most brutal of conditions is told with sobering realism and shocking power.
 
@@ -1898,7 +1898,7 @@ Wikipedia: [Godless Men](https://en.wikipedia.org/wiki/Godless%20Men)
 
 ## Going Some
 
-_Going Some_ is a comedy movie directed by Harry Beaumont. It stars Cullen Landis and Helen Ferguson.
+*Going Some* is a comedy directed by Harry Beaumont. It stars Cullen Landis and Helen Ferguson.
 
 **Synopsis**: A man who just got a new job is conflicted when he meets a flight attendant.
 
@@ -1908,7 +1908,7 @@ Wikipedia: [Going Some](https://en.wikipedia.org/wiki/Going%20Some)
 
 ## The Golden Trail
 
-_The Golden Trail_ is a drama movie directed by Lewis H. Moomaw. It stars Jane Novak and Jean Hersholt.
+*The Golden Trail* is a drama directed by Lewis H. Moomaw. It stars Jane Novak and Jean Hersholt.
 
 **Synopsis**: In this movie, Dorothy Kenton, a young girl from a poor family, tries to find her father, but instead finds the man who killed him, William Lockyer. Lockyer claims that William Garland was actually at his home to kidnap Garland's daughter. Dorothy battles her need for revenge while searching for a father she never properly knew.
 
@@ -1920,7 +1920,7 @@ Wikipedia: [The Golden Trail](https://en.wikipedia.org/wiki/The%20Golden%20Trail
 
 ## Good References
 
-_Good References_ is a comedy movie directed by Roy William Neill. It stars Constance Talmadge and Vincent Coleman.
+*Good References* is a comedy directed by Roy William Neill. It stars Constance Talmadge and Vincent Coleman.
 
 **Synopsis**: A subject of racism, References stars Constance Talmadge as an attractive woman who is fired from her job for racial reasons. It quickly becomes apparent that the coveted managerial position was not the only good thing she will be missing since her boss asserts that there are not enough white women to work for him anymore. Out of desperation, she poses as an Italian immigrant, Mrs. Manuale Melina.
 
@@ -1928,7 +1928,7 @@ Wikipedia: [Good References](https://en.wikipedia.org/wiki/Good%20References)
 
 ## The Great Accident
 
-_The Great Accident_ is a drama movie directed by Harry Beaumont. It stars Tom Moore and Jane Novak.
+*The Great Accident* is a drama directed by Harry Beaumont. It stars Tom Moore and Jane Novak.
 
 **Synopsis**: The Great Accident is a drama, about a car accident.
 
@@ -1936,7 +1936,7 @@ Wikipedia: [The Great Accident](https://en.wikipedia.org/wiki/The%20Great%20Acci
 
 ## The Great Lover
 
-_The Great Lover_ is a drama movie directed by Frank Lloyd. It stars John St. Polis and Claire Adams.
+*The Great Lover* is a drama directed by Frank Lloyd. It stars John St. Polis and Claire Adams.
 
 **Synopsis**: Young American man embarks on surrealistic adventures after becoming entranced by writing of voluptuous Thérèse Aubert. Far from his modest Vermont town, he encounters effeminate, degenerate, tawny-haired adulterer Proust's titular heroine, "great lover" of the title. Proust's Theories become his own, prompting strange phantasmagoria, exemplified by strange figures. Intriguing but sometimes incoherent.
 
@@ -1946,7 +1946,7 @@ Wikipedia: [The Great Lover](https://en.wikipedia.org/wiki/The%20Great%20Lover%2
 
 ## The Great Redeemer
 
-_The Great Redeemer_ is a western movie directed by Clarence Brown. It stars House Peters and Marjorie Daw.
+*The Great Redeemer* is a western directed by Clarence Brown. It stars House Peters and Marjorie Daw.
 
 **Synopsis**: The Great Redeemer is a western movie directed by Clarence Brown. It stars House Peters and Marjorie Daw. The movie revolves around a minister, John Sykes, who visits a corrupt, lawless town where he begins preaching of repentance and righteousness. His preaching gains him many followers and one day he and his followers go to pray and spread the word and the lawless townspeople get angry and set out to murder him and his followers. He tells his followers to arm themselves and the street fight ensues and the lawless townspeople get defeated.
 
@@ -1954,7 +1954,7 @@ Wikipedia: [The Great Redeemer](https://en.wikipedia.org/wiki/The%20Great%20Rede
 
 ## The Great Shadow
 
-_The Great Shadow_ is a drama movie directed by Harley Knoles. It stars Tyrone Power Sr. and Donald Hall.
+*The Great Shadow* is a drama directed by Harley Knoles. It stars Tyrone Power Sr. and Donald Hall.
 
 **Synopsis**: John Falconer starts to see troubles in his personal investments and financial affairs. Convinced that Falconer is a victim of a dishonest business associate, his amateur sleuth daughter goes to Falconer's office looking for clues. When a gunman storms in with a gun pointed at Falconer's daughter, she is overpowered and bound in a parking garage elevator.
 
@@ -1962,7 +1962,7 @@ Wikipedia: [The Great Shadow](https://en.wikipedia.org/wiki/The%20Great%20Shadow
 
 ## Greater Than Fame
 
-_Greater Than Fame_ is a drama movie directed by Alan Crosland. It stars Elaine Hammerstein and Walter McGrail.
+*Greater Than Fame* is a drama directed by Alan Crosland. It stars Elaine Hammerstein and Walter McGrail.
 
 **Synopsis**: When an aspiring young dancer hurt her hand during dance practice, Grace finds her dreams may be shattered. After finding resonance with an old piano, she finds the ambition to pursue music. Her lack of ability for certain instruments at playing forbids her from performing at the talent show, but with the help of her friends, they are able to adapt an instrumental song with lyrics to make a spectacle. Grace finds the courage to eventually play in front of her father after many years.
 
@@ -1970,7 +1970,7 @@ Wikipedia: [Greater Than Fame](https://en.wikipedia.org/wiki/Greater%20Than%20Fa
 
 ## The Greatest Love
 
-_The Greatest Love_ is a drama movie directed by Henry Kolker. It stars Vera Gordon and Bertram Marburgh.
+*The Greatest Love* is a drama directed by Henry Kolker. It stars Vera Gordon and Bertram Marburgh.
 
 **Synopsis**: The Greatest Love is about Nina Winslow, a woman who feels neglected at home so she tries to look-for the attention elsewhere. Buddy, her boss, starts to show her tenderness. As their relationship grows, so does his harassment.
 
@@ -1978,11 +1978,11 @@ Wikipedia: [The Greatest Love](https://en.wikipedia.org/wiki/The%20Greatest%20Lo
 
 ## The Green Flame
 
-_The Green Flame_ is a crime movie directed by Ernest C. Warde. It stars J. Warren Kerrigan and Fritzi Brunette.
+*The Green Flame* is a crime directed by Ernest C. Warde. It stars J. Warren Kerrigan and Fritzi Brunette.
 
-**Synopsis**: Carl Leroux is a detective working for the Pennsylvania state police force who is given the task of solving a series of kidnapping and murder cases. He is partnered with Lieutenant Morris and Detective Sheffe to form a team assigned to solve the crimes.
+**Synopsis**: Carl Leroux is a detective working for the Pennsylvania state police force who is given the task of solving a series of kidnapping and murder cases. He is partnered with Lieutenant Morris and Detective Sheffe to form a team assigned to solve the crimes. 
 
-The three detectives start their search by checking the records of the gasoline stations. They find that most of them use a particular brand of gasoline and they visit the ones that do not to find an attendant who will recognize the murderer. Lieutenant Morris notices a person seated in his car, drops it and gets out of the vehicle. He recognizes the person as Dolly, the woman he is courting and she recognizes him as well and tries to drive away, only to get shot and killed.
+The three detectives start their search by checking the records of the gasoline stations. They find that most of them use a particular brand of gasoline and they visit the ones that do not to find an attendant who will recognize the murderer. Lieutenant Morris notices a person seated in his car, drops it and gets out of the vehicle. He recognizes the person as Dolly, the woman he is courting and she recognizes him as well and tries to drive away, only to get shot and killed. 
 
 Leroux and his team (plus photographers and reporters) traverse the region to put all the criminals away and the movie ends with them fulfilling their task.
 
@@ -1992,7 +1992,7 @@ Wikipedia: [The Green Flame](https://en.wikipedia.org/wiki/The%20Green%20Flame%2
 
 ## Guilty of Love
 
-_Guilty of Love_ is a drama movie directed by Harley Knoles. It stars Dorothy Dalton and Julia Hurley.
+*Guilty of Love* is a drama directed by Harley Knoles. It stars Dorothy Dalton and Julia Hurley.
 
 **Synopsis**: Guilt prone Faith (Dalton) pours all her love and hope into mentoring Young (Hurley), a troubled Mississippi girl who is about to be kicked out of school and sent to a juvenile work camp.
 
@@ -2004,7 +2004,7 @@ Wikipedia: [Guilty of Love](https://en.wikipedia.org/wiki/Guilty%20of%20Love%20%
 
 ## Hairpins
 
-_Hairpins_ is a drama movie directed by Fred Niblo. It stars Enid Bennett, Matt Moore, and William Conklin.
+*Hairpins* is a drama directed by Fred Niblo. It stars Enid Bennett, Matt Moore, and William Conklin.
 
 **Synopsis**: Hairpins is about a woman who was ordered by him husband to sell him to the highest bidder to work in the mines.
 
@@ -2012,7 +2012,7 @@ Wikipedia: [Hairpins](https://en.wikipedia.org/wiki/Hairpins%20%28film%29)
 
 ## Half a Chance
 
-_Half a Chance_ is a drama movie directed by Robert Thornby. It stars Mahlon Hamilton and Lillian Rich.
+*Half a Chance* is a drama directed by Robert Thornby. It stars Mahlon Hamilton and Lillian Rich.
 
 **Synopsis**: The movie is a light hearted dramedy that is as as rich as its artfully styled setting. In the movie, two men meet as adults and follow their mutual love of wildlife photography across the rural Australian Outback. Inspired by a true story.
 
@@ -2020,7 +2020,7 @@ Wikipedia: [Half a Chance](https://en.wikipedia.org/wiki/Half%20a%20Chance)
 
 ## Half an Hour
 
-_Half an Hour_ is a drama movie directed by Harley Knoles. It stars Dorothy Dalton and Charles Richman.
+*Half an Hour* is a drama directed by Harley Knoles. It stars Dorothy Dalton and Charles Richman.
 
 **Synopsis**: A young chamber maid named Deyni wants to become a famous opera singer. Unknown to her, the object of her affections, Nicholas, is an aspiring composer.
 
@@ -2028,7 +2028,7 @@ Wikipedia: [Half an Hour](https://en.wikipedia.org/wiki/Half%20an%20Hour)
 
 ## The Harvest Moon
 
-_The Harvest Moon_ is a drama movie directed by J. Searle Dawley. It stars Doris Kenyon and Wilfred Lytell.
+*The Harvest Moon* is a drama directed by J. Searle Dawley. It stars Doris Kenyon and Wilfred Lytell.
 
 **Synopsis**: Andrew Phipps, a farmer loves his family and tries to work hard for them. His uncle died and left him a lot of money, but his uncle also left a condition that Andrew cannot tell a soul about this money. The trouble starts from there after they talk about this money so he now he is being threatened to death.
 
@@ -2036,7 +2036,7 @@ Wikipedia: [The Harvest Moon](https://en.wikipedia.org/wiki/The%20Harvest%20Moon
 
 ## Headin' Home
 
-_Headin' Home_ is a sports movie directed by Lawrence C. Windom. It stars Babe Ruth and Margaret Seddon.
+*Headin' Home* is a sports directed by Lawrence C. Windom. It stars Babe Ruth and Margaret Seddon.
 
 **Synopsis**: Virginia works for the publishing company, which publishes her father Hillis Frazee Sr.’s leading baseball magazine, "Headin' Home". Frazee must eventually leave the publishing company to take care of his own health. It is up to Virginia to step in, in order to make sure the baseball season is covered in the magazine. She works hard, even convincing Babe Ruth to go to bat for her with Frazee. Babe Ruth shows up at the publishing company to speak with Frazee, but he does not know that Frazee is sick. When Frazee passes away, Virginia gives up the publishing company to focus on the funeral, gone inside herself. The important lessons she learned about Frazee are to trust what you know is right, have the courage to go for what you believe in, and to try to understand before you judge.
 
@@ -2046,7 +2046,7 @@ Wikipedia: [Headin' Home](https://en.wikipedia.org/wiki/Headin%27%20Home)
 
 ## The Heart of a Child
 
-_The Heart of a Child_ is a drama movie directed by Ray C. Smallwood. It stars Alla Nazimova and Charles Bryant.
+*The Heart of a Child* is a drama directed by Ray C. Smallwood. It stars Alla Nazimova and Charles Bryant.
 
 **Synopsis**: Zelda becomes an outcast in her town after she is forced to marry a widower. Along with her daughter Ethel, still fourteen years old, they are shunned by the community. Unable to keep up the mortgage, Zelda sends Ethel to work in a mill where she is sexually assaulted. With little hope of being accepted she eventually runs away.
 
@@ -2054,16 +2054,16 @@ Wikipedia: [The Heart of a Child](https://en.wikipedia.org/wiki/The%20Heart%20of
 
 ## Heart of Twenty
 
-_Heart of Twenty_ is a comedy movie directed by Henry Kolker. It stars Zasu Pitts and Jack Pratt.
+*Heart of Twenty* is a comedy directed by Henry Kolker. It stars Zasu Pitts and Jack Pratt.
 
-**Synopsis**: Gilbert Keller has just married his secretary, Alice Kress. Alice wants to adopt four-year-old Agatha. Alice's senile grandmother, Mrs. Linck, becomes their houseguest wanting to know how Alice will do as a wife. Gilbert reminds her that Gilbert's old girlfriend, Kitty DeWitt, has an eye on him. Alice is astonished to know that her new husband is still in touch with his old girlfriend. Grandma recognizes Kitty as their long-lost daughter, which throws herself and Gilbert into a tizzy.
+**Synopsis**: Gilbert Keller has just married his secretary, Alice Kress. Alice wants to adopt four-year-old Agatha. Alice's senile grandmother, Mrs. Linck, becomes their houseguest wanting to know how Alice will do as a wife. Gilbert reminds her that Gilbert's old girlfriend, Kitty DeWitt, has an eye on him. Alice is astonished to know that her new husband is still in touch with his old girlfriend. Grandma recognizes Kitty as their long-lost daughter, which throws herself and Gilbert into a tizzy. 
 The two lovers deliver on their promise to Agatha, which was their promise to make her happy.
 
 Wikipedia: [Heart of Twenty](https://en.wikipedia.org/wiki/Heart%20of%20Twenty)
 
 ## Heart Strings
 
-_Heart Strings_ is a drama movie directed by J. Gordon Edwards. It stars William Farnum and Paul Cazeneuve.
+*Heart Strings* is a drama directed by J. Gordon Edwards. It stars William Farnum and Paul Cazeneuve.
 
 **Synopsis**: Tormented by writers block, New York City violinist Phillip, helpless to find melody in the world around him, decides to go back home to rural Canada. Back in tranquil Banfield, Phillip tries to rediscover the sounds of the countryside that once emitted from his instrument. He soon discovers that his instrument helps to bring love into the life of Sylvie, a farmer barely managing to run her family farm. Returned to his Canadian life, he surrenders to the sound of an owl's cries and the slow predictability of life.
 
@@ -2077,7 +2077,7 @@ Wikipedia: [Heart Strings](https://en.wikipedia.org/wiki/Heart%20Strings%20%2819
 
 ## Hearts Are Trumps
 
-_Hearts Are Trumps_ is a drama movie directed by Rex Ingram. It stars Winter Hall, Frank Brownlee, and Alice Terry.
+*Hearts Are Trumps* is a drama directed by Rex Ingram. It stars Winter Hall, Frank Brownlee, and Alice Terry.
 
 **Synopsis**: A heartbroken chauffeur steals for his living, starts working for a rich crime lord, takes up with his beautiful daughter under assumed identity, and experiences the brutal aftermaths of the violent family lives he's seen throughout his time driving.
 
@@ -2087,7 +2087,7 @@ Wikipedia: [Hearts Are Trumps](https://en.wikipedia.org/wiki/Hearts%20Are%20Trum
 
 ## Held by the Enemy
 
-_Held by the Enemy_ is a war drama movie directed by Donald Crisp. It stars Agnes Ayres, Lewis Stone, and Wanda Hawley.
+*Held by the Enemy* is a war drama directed by Donald Crisp. It stars Agnes Ayres, Lewis Stone, and Wanda Hawley.
 
 **Synopsis**: When a Confederate prisoner of war camp in Virginia is liberated in 1864, the Yankee prisoners soon learn that they face a harsh winter full of starvation and disease in a Union Army prison. Remembering how they themselves had been put in an inhumane camp when the Confederacy took over Maryland, the Union prisoners decide to fight back when the Federals demand surrendering all their food stores to help their Southern counterparts.
 
@@ -2103,7 +2103,7 @@ Wikipedia: [Held by the Enemy](https://en.wikipedia.org/wiki/Held%20by%20the%20E
 
 ## Held in Trust
 
-_Held in Trust_ is a romance movie directed by John Ince. It stars May Allison and Darrell Foss.
+*Held in Trust* is a romance directed by John Ince. It stars May Allison and Darrell Foss.
 
 **Synopsis**: So much for a marriage of convenience: Marsha and Tom haven't spoken to each other in 15 years and then meet again after Marsha's mother dies and leaves her a few pieces of property. Marsha does not want anything to do with Tom because she still loves him and he does not want her. It doesn't help that he too fights with his feelings for Marsha.
 
@@ -2115,7 +2115,7 @@ Wikipedia: [Held in Trust](https://en.wikipedia.org/wiki/Held%20in%20Trust)
 
 ## Heliotrope
 
-_Heliotrope_ is a drama movie directed by George D. Baker. It stars Wilfred Lytell and Julia Swayne Gordon.
+*Heliotrope* is a drama directed by George D. Baker. It stars Wilfred Lytell and Julia Swayne Gordon.
 
 **Synopsis**: Ervin (Wilfred Lytell) is imprisoned in the gas chamber. The execution device seems to malfunction before Ervin is suffocated. He can't get out of the building, because the guards are watching the entrance. Coincidingly, the governor's helicopter passes overhead, and Ervin starts to construct an ad-hoc ladder.
 
@@ -2123,9 +2123,9 @@ Wikipedia: [Heliotrope](https://en.wikipedia.org/wiki/Heliotrope%20%28film%29)
 
 ## The Hell Ship
 
-_The Hell Ship_ is a drama movie directed by Scott R. Dunlap. It stars Madlaine Traverse and Alan Roscoe.
+*The Hell Ship* is a drama directed by Scott R. Dunlap. It stars Madlaine Traverse and Alan Roscoe.
 
-**Synopsis**: In 1914, Alice Pearl, a seamstress from London, buys passage on the Franconia for New York. There she meets Emil Polsky, who introduces himself as a piano salesman from Baltimore. Emil does his best to charm Alice, who is initially reluctant. Abigail, a 10-year-old musical prodigy accompanying her mother Abigail Bray, a minister's wife from Montreal, gradually becomes a friend of Alice's, and a running gag is that no one ever pays a lot of attention to a 10-year-old. They spend a great deal of time together, and Abigail teaches Alice about the oriental bazaar. Abigail is devastated when she learns that Alice is married, to a man who does not know that she isn't yet thirteen. Walter, their neighbor on the Franconia, proposes marriage to Abigail. Abigail hopes Walter will not be coming to their wedding with his sister Dorothy, who she does not care for. The sister catches on that there may be something more between Walter and Alice, and at one point follows them into the oriental bazaar. At this point Walter realizes that Dorothy is fanatical, is jealous of Alice, and has creepy designs on Abigail. With her help, Abigail's mother forces Walter to give Dorothy an odd job, so she can't come with them to their wedding in Montreal. For their honeymoon, Walter and his bride go to the top of the house with only blankets to spend the night in with hot coals to keep them warm.
+**Synopsis**: In 1914, Alice Pearl, a seamstress from London, buys passage on the Franconia for New York. There she meets Emil Polsky, who introduces himself as a piano salesman from Baltimore. Emil does his best to charm Alice, who is initially reluctant. Abigail, a 10-year-old musical prodigy accompanying her mother Abigail Bray, a minister's wife from Montreal, gradually becomes a friend of Alice's, and a running gag is that no one ever pays a lot of attention to a 10-year-old. They spend a great deal of time together, and Abigail teaches Alice about the oriental bazaar. Abigail is devastated when she learns that Alice is married, to a man who does not know that she isn't yet thirteen. Walter, their neighbor on the Franconia, proposes marriage to Abigail. Abigail hopes Walter will not be coming to their wedding with his sister Dorothy, who she does not care for. The sister catches on that there may be something more between Walter and Alice, and at one point follows them into the oriental bazaar. At this point Walter realizes that Dorothy is fanatical, is jealous of Alice, and has creepy designs on Abigail. With her help, Abigail's mother forces Walter to give Dorothy an odd job, so she can't come with them to their wedding in Montreal. For their honeymoon, Walter and his bride go to the top of the house with only blankets to spend the night in with hot coals to keep them warm. 
 
 Alice's husband's business begins to suffer when England enters the war. Alice is unhappy in her marriage with Alfred, who is often out
 
@@ -2133,7 +2133,7 @@ Wikipedia: [The Hell Ship](https://en.wikipedia.org/wiki/The%20Hell%20Ship)
 
 ## Help Wanted - Male
 
-_Help Wanted - Male_ is a comedy movie directed by Henry King. It stars Blanche Sweet and Frank Leigh.
+*Help Wanted - Male* is a comedy directed by Henry King. It stars Blanche Sweet and Frank Leigh.
 
 **Synopsis**: Blanche Sweet and Frank Leigh take in the Hard Work Fund and Hard Work Fund Club in Hard Work, Iowa and Hard Work. Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work Hard Work
 
@@ -2141,7 +2141,7 @@ Wikipedia: [Help Wanted - Male](https://en.wikipedia.org/wiki/Help%20Wanted%20-%
 
 ## Help Yourself
 
-_Help Yourself_ is a comedy movie directed by Hugo Ballin. It stars Madge Kennedy and Joseph Striker.
+*Help Yourself* is a comedy directed by Hugo Ballin. It stars Madge Kennedy and Joseph Striker.
 
 **Synopsis**: Lady Victoria, who feels like an outcast, befriends Richard, a teenager that has Asperger Syndrome. Richard is drawn to the aristocratic Lady Victoria while she learns to be more accepting of people who are different from herself.
 
@@ -2151,7 +2151,7 @@ Wikipedia: [Help Yourself](https://en.wikipedia.org/wiki/Help%20Yourself%20%2819
 
 ## Her Beloved Villain
 
-_Her Beloved Villain_ is a comedy movie directed by Sam Wood. It stars Wanda Hawley and Tully Marshall.
+*Her Beloved Villain* is a comedy directed by Sam Wood. It stars Wanda Hawley and Tully Marshall.
 
 **Synopsis**: Kenneth Burke, the handsome but bombastic managing editor of "The Yellow Bee Reporter", would get away with almost anything because the respected daily's publisher, Tim Dobe, was an old drunk who enjoyed Burke's successes while Burke ignored Tim's failed advice. Other employees secretly longed to put the arrogant Burke in his place. Alice Wentworth, the spunky blonde reporter, did not follow Tim's policy of treating Burke with kid gloves, nor did his scheming secretary, Rosa Prince. Edward Johmore, the office's uppity cartoonist, became the team's secret weapon. He paved the way for Alice to relentlessly collect incriminating evidence of Burke's wrongdoing. When, at last, the day of reckoning arrived, the staff prepared to see Burke's ultimate humiliation. But, their joyful anticipation turned to puzzlement, next to despair, when Tim downed one more drink, raggedly announced, "Next week I have a big story for you."
 
@@ -2159,7 +2159,7 @@ Wikipedia: [Her Beloved Villain](https://en.wikipedia.org/wiki/Her%20Beloved%20V
 
 ## Her Elephant Man
 
-_Her Elephant Man_ is a drama movie directed by Scott R. Dunlap. It stars Shirley Mason and Alan Roscoe.
+*Her Elephant Man* is a drama directed by Scott R. Dunlap. It stars Shirley Mason and Alan Roscoe.
 
 **Synopsis**: A woman who lives in the forests learns to rescue the elephants who are being hunted by poachers.
 
@@ -2167,7 +2167,7 @@ Wikipedia: [Her Elephant Man](https://en.wikipedia.org/wiki/Her%20Elephant%20Man
 
 ## Her First Elopement
 
-_Her First Elopement_ is a drama movie directed by Sam Wood. It stars Wanda Hawley and Jerome Patrick.
+*Her First Elopement* is a drama directed by Sam Wood. It stars Wanda Hawley and Jerome Patrick.
 
 **Synopsis**: Edwin's aunt Maura is very much in demand as a wedding planner, but her skills are needed by Terry Brennan. Terry has chosen to elope with Edwin instead of her previous commitment, Brad.
 
@@ -2199,7 +2199,7 @@ Wikipedia: [Her First Elopement](https://en.wikipedia.org/wiki/Her%20First%20Elo
 
 ## Her Five-Foot Highness
 
-_Her Five-Foot Highness_ is a drama movie directed by Harry L. Franklin. It stars Edith Roberts and Ogden Crane.
+*Her Five-Foot Highness* is a drama directed by Harry L. Franklin. It stars Edith Roberts and Ogden Crane.
 
 **Synopsis**: A former vaudeville circus act of tiny "people" is discovered in shabby pool hall hurling insults at locals. Pursued by the coppers they conspire to get bums arrested for vagrancy (to get one of their citizens back early for testimony), they decide to play one more small-time bust.
 
@@ -2211,7 +2211,7 @@ Wikipedia: [Her Five-Foot Highness](https://en.wikipedia.org/wiki/Her%20Five-Foo
 
 ## Her Honor the Mayor
 
-_Her Honor the Mayor_ is a drama movie directed by Paul Cazeneuve. It stars Eileen Percy and Ramsey Wallace.
+*Her Honor the Mayor* is a drama directed by Paul Cazeneuve. It stars Eileen Percy and Ramsey Wallace.
 
 **Synopsis**: Georgie is a successful conference speaker who splits her time between her college teaching job and public speaking engagements, but her life changes when she unexpectedly inherits the mayor's job.
 
@@ -2223,7 +2223,7 @@ Wikipedia: [Her Honor the Mayor](https://en.wikipedia.org/wiki/Her%20Honor%20the
 
 ## Her Husband's Friend
 
-_Her Husband's Friend_ is a drama movie directed by Fred Niblo. It stars Enid Bennett and Rowland V. Lee.
+*Her Husband's Friend* is a drama directed by Fred Niblo. It stars Enid Bennett and Rowland V. Lee.
 
 **Synopsis**: A woman (Enid Bennett) learns that her husband is in real estate business in jeopardy, so she implores her husband's friend, who is in the insurance business, to take over in his stead. The friend agrees but in return he asks her to take care of his wife who has committed suicide.
 
@@ -2231,7 +2231,7 @@ Wikipedia: [Her Husband's Friend](https://en.wikipedia.org/wiki/Her%20Husband%27
 
 ## Her Unwilling Husband
 
-_Her Unwilling Husband_ is a comedy movie directed by Paul Scardon. It stars Blanche Sweet and Alan Roscoe.
+*Her Unwilling Husband* is a comedy directed by Paul Scardon. It stars Blanche Sweet and Alan Roscoe.
 
 **Synopsis**: A full elderly woman, Matilda Evans, is bored of living alone in her huge mansion. Matilda falls in love with Lionel Banks, a street halfbreed elevator man, but her housekeeper, Mrs. Cadwalader, objects to this union. Matilda finally hires Lionel to work for her, to please Mrs. Cadwalader, but soon Matilda fires him for being too lazy. Matilda wears the pants in the family, but Mrs. Cadwalader gets her man, William, to marry Matilda. Mrs. Cadwalader then cons William into accepting Matilda’s inheritance when Matilda dies, but Matilda just needs to last three months to receive the inheritance. Matilda decides to live it up for her last three months before she dies.
 
@@ -2241,7 +2241,7 @@ Wikipedia: [Her Unwilling Husband](https://en.wikipedia.org/wiki/Her%20Unwilling
 
 ## High Speed
 
-_High Speed_ is a drama movie directed by Charles Miller. It stars Edward Earle and Gladys Hulette.
+*High Speed* is a drama directed by Charles Miller. It stars Edward Earle and Gladys Hulette.
 
 **Synopsis**: A rude woman is hurt when she falls in love with a mysterious man.
 
@@ -2249,7 +2249,7 @@ Wikipedia: [High Speed](https://en.wikipedia.org/wiki/High%20Speed%20%281920%20f
 
 ## His House in Order
 
-_His House in Order_ is a drama movie directed by Hugh Ford. It stars Elsie Ferguson, Holmes Herbert, and Vernon Steele.
+*His House in Order* is a drama directed by Hugh Ford. It stars Elsie Ferguson, Holmes Herbert, and Vernon Steele.
 
 **Synopsis**: Hugh Ford directs the motion picture Big Butts on historic plantations of the American Southeast. The film explores the notions of femininity on their dime by offering a new old twist on the notion of the antebellum South.
 
@@ -2263,7 +2263,7 @@ Wikipedia: [His House in Order](https://en.wikipedia.org/wiki/His%20House%20in%2
 
 ## His Own Law
 
-_His Own Law_ is a drama movie directed by J. Parker Read and Jr.. It stars Hobart Bosworth and Rowland V. Lee.
+*His Own Law* is a drama directed by J. Parker Read and Jr.. It stars Hobart Bosworth and Rowland V. Lee.
 
 **Synopsis**: Ministers of religion struggle to balance Canon law, which was set in stone centuries ago, and more current societal norms as they mingle with those they have been sworn to shepherd.
 
@@ -2271,13 +2271,13 @@ Wikipedia: [His Own Law](https://en.wikipedia.org/wiki/His%20Own%20Law)
 
 ## His Pajama Girl
 
-_His Pajama Girl_ is a comedy movie directed by Donald Edwards. It stars Billie Rhodes and Harry L. Rattenberry.
+*His Pajama Girl* is a comedy directed by Donald Edwards. It stars Billie Rhodes and Harry L. Rattenberry.
 
-**Synopsis**: In this totally jarring comedy, Billie is a stylish woman in her thirties. She's got a loving fiancé, a fabulous job, and a beautiful New York City apartment. One day, she decides that she knows exactly how to follow the Cinderella fairytale and is going to wear Harry L. Rattenberry's signature, pajamas for a fancy dinner party without Harry knowing the whole thing. She gets a little carried away with a phone date and a way with a wine glass.
+**Synopsis**: In this totally jarring comedy, Billie is a stylish woman in her thirties. She's got a loving fiancé, a fabulous job, and a beautiful New York City apartment. One day, she decides that she knows exactly how to follow the Cinderella fairytale and is going to wear Harry L. Rattenberry's signature, pajamas for a fancy dinner party without Harry knowing the whole thing. She gets a little carried away with a phone date and a way with a wine glass. 
 
-This fatefully quirky romantic comedy is about how our most ambitious intentions can complicate the things we most love.
+This fatefully quirky romantic comedy is about how our most ambitious intentions can complicate the things we most love. 
 
-In this ludicrous comedy, Billie is a stylish woman in her thirties with a loving fiancé, a fabulous job, and a beautiful New York City apartment. One day, she decides that she know exactly how to follow the Cinderella fairytale and is going to wear Harry L. Rattenberry's signature pajamas to a fancy dinner party with Harry without Harry knowing the whole thing. She gets a little carried away on a phone date and a way with a wine glass.
+In this ludicrous comedy, Billie is a stylish woman in her thirties with a loving fiancé, a fabulous job, and a beautiful New York City apartment. One day, she decides that she know exactly how to follow the Cinderella fairytale and is going to wear Harry L. Rattenberry's signature pajamas to a fancy dinner party with Harry without Harry knowing the whole thing. She gets a little carried away on a phone date and a way with a wine glass. 
 
 This fatefully quirky romantic comedy is about how our most ambitious intentions can go awry and complicate the things we most love.
 
@@ -2287,7 +2287,7 @@ Wikipedia: [His Pajama Girl](https://en.wikipedia.org/wiki/His%20Pajama%20Girl)
 
 ## His Wife's Money
 
-_His Wife's Money_ is a drama movie directed by Ralph Ince. It stars Eugene O'Brien and Zena Keefe.
+*His Wife's Money* is a drama directed by Ralph Ince. It stars Eugene O'Brien and Zena Keefe.
 
 **Synopsis**: Eugene O'Brien rescues a seventeen year old girl from a suicide attempt. Zena Keefe falls instantly in love to Eugene, who rescues her from a suicide attempt. In a few days, she discovers both she has been duped by an attractive but naked swindler and he is duping other women.
 
@@ -2295,7 +2295,7 @@ Wikipedia: [His Wife's Money](https://en.wikipedia.org/wiki/His%20Wife%27s%20Mon
 
 ## Hitchin' Posts
 
-_Hitchin' Posts_ is a drama movie directed by John Ford. It stars Frank Mayo and Beatrice Burnham.
+*Hitchin' Posts* is a drama directed by John Ford. It stars Frank Mayo and Beatrice Burnham.
 
 **Synopsis**: Hitchin's Posts is an old Western story about George Hitchin who goes back to his home town after he was accused of murder. He ends up running into Will Summers instead of his uncle John. John used to be indicted for that crime too but was let off. Will's wife Lottie is not that nice to George, but his daughter Janet becomes very fond of him. Will ends up being nominated to run for Mayor of the town, but becomes increasingly corrupt.
 
@@ -2303,11 +2303,11 @@ Wikipedia: [Hitchin' Posts](https://en.wikipedia.org/wiki/Hitchin%27%20Posts)
 
 ## Homer Comes Home
 
-_Homer Comes Home_ is a comedy movie directed by Jerome Storm. It stars Charles Ray and Priscilla Bonner.
+*Homer Comes Home* is a comedy directed by Jerome Storm. It stars Charles Ray and Priscilla Bonner.
 
 **Synopsis**: The film tells the story of a nationally famous comedian, Harry Homer, who tries to give up his hectic life off the stage as a married man to be a devoted father. Returning home from a long tour where he’s been giving shows for the armed forces because of his slight draft deferment due to his heart condition, Harry does not feel respected as a father by his loud and disrespectful kids.
 
----
+* * *
 
 Homer Comes Home
 
@@ -2315,7 +2315,7 @@ Wikipedia: [Homer Comes Home](https://en.wikipedia.org/wiki/Homer%20Comes%20Home
 
 ## Homespun Folks
 
-_Homespun Folks_ is a drama movie directed by John Griffith Wray. It stars Lloyd Hughes and Gladys George.
+*Homespun Folks* is a drama directed by John Griffith Wray. It stars Lloyd Hughes and Gladys George.
 
 **Synopsis**: Jim Bellew proposes to Mrs. Margaret Fennmire as he is worried about the dust bowl and economic crisis. She declines as she is worried about the future of her two sweet little girls. Breckenridge tries to woo Linnie Sweet, a waitress from the Horse Head cafe, only to find she is a widow with a three year old daughter named Priscilla. Linnie is worried she won't be a good mother as she lost her first daughter to an infection.
 
@@ -2329,7 +2329,7 @@ Wikipedia: [Homespun Folks](https://en.wikipedia.org/wiki/Homespun%20Folks)
 
 ## Honest Hutch
 
-_Honest Hutch_ is a drama movie directed by Clarence G. Badger. It stars Will Rogers and Mary Alden.
+*Honest Hutch* is a drama directed by Clarence G. Badger. It stars Will Rogers and Mary Alden.
 
 **Synopsis**: The film centers on the title character, one rank or another in the army. When Honest Hutch is witness to several instances that don’t sit well with his principles, he decides to take drastic measures by preparing his troops for what he thinks may be the end of the world.
 
@@ -2341,7 +2341,7 @@ Wikipedia: [Honest Hutch](https://en.wikipedia.org/wiki/Honest%20Hutch)
 
 ## The Honey Bee
 
-_The Honey Bee_ is a drama movie directed by Rupert Julian. It stars Marguerita Sylva and Nigel Barrie.
+*The Honey Bee* is a drama directed by Rupert Julian. It stars Marguerita Sylva and Nigel Barrie.
 
 **Synopsis**: Marguerita Sylva plays a teacher living a peaceful existence until a group of orphan girls interrupt her life. Nigel Barrie is a skilled criminal who decides to use the teacher as a pawn to help him escape from a situation.
 
@@ -2349,7 +2349,7 @@ Wikipedia: [The Honey Bee](https://en.wikipedia.org/wiki/The%20Honey%20Bee)
 
 ## Honor Bound
 
-_Honor Bound_ is a drama movie directed by Jacques Jaccard. It stars Frank Mayo and Edward Coxen.
+*Honor Bound* is a drama directed by Jacques Jaccard. It stars Frank Mayo and Edward Coxen.
 
 **Synopsis**: The U.S. Army is America's Sword & Shield. There is no responsibility the Army cannot provide the resources to execute. Honor Bound documents the Army Reserve's commitment to providing resources to brigade combat teams. 4 days of interviews on deployments in Iraq, Afghanistan and more than 8 hours of on the ground footage. We examine some of the Army's cutting-edge technology, combat equipment and weaponry that augment this great Army’s work toward victory on the battlefield.
 
@@ -2357,7 +2357,7 @@ Wikipedia: [Honor Bound](https://en.wikipedia.org/wiki/Honor%20Bound%20%281920%2
 
 ## The Hope
 
-_The Hope_ is a comedy movie directed by Herbert Blache. It stars Jack Mulhall and Marguerite De La Motte.
+*The Hope* is a comedy directed by Herbert Blache. It stars Jack Mulhall and Marguerite De La Motte.
 
 **Synopsis**: "A morbid millionaire dies and leaves a last wish that his nurse Jessie have a baby. She is pregnant but this was before she met the millionaire. Fortunately, a hippie philanthropist who had been convinced by a friend to give money to said millionaire thinks he is the father and proposes to Jessie. Judge Garth wants to put an end to this new relationship, so he marries them."
 
@@ -2365,17 +2365,17 @@ Wikipedia: [The Hope](https://en.wikipedia.org/wiki/The%20Hope%20%28film%29)
 
 ## The House of the Tolling Bell
 
-_The House of the Tolling Bell_ is a mystery movie directed by J. Stuart Blackton. It stars May McAvoy and Eulalie Jensen.
+*The House of the Tolling Bell* is a mystery directed by J. Stuart Blackton. It stars May McAvoy and Eulalie Jensen.
 
 **Synopsis**: In 1868, George is a young governess caring for a precocious twelve-year-old, Tillet. Tillet had been living a sheltered existence on a large estate on the coast of Northumberland, England, with her deceased father. Unbeknownst to Tillet, her father was a wealthy and powerful man some believe is a vampire. Her new guardian, who lives in the house, is a mysterious man named Cyril. Cyril is a strange character and appears to be a figure of fear for the locals who live in the estate. Tillet is a lonely girl who misses her elders from her estate from America from the "old country" from America from the "old country." Catherine, Catherine, an older girl from the village, lives near the estate and visits Tillet to get to know her. One day, Catherine does not come for a visit and Tillet is frantic. Tillet visits the village where she cannot find Catherine but discovers a church with a cracked bell. The church is abandoned and barren, but Tillet is drawn back to hear the tolling bell. It speaks to her of her feelings of loneliness and sadness and of a strange dream of a strange man coming to eat her. Tillet realizes Catherine is gone and fears she has been taken by the man who lives in the house.
-After Tillet's discovery, she is suddenly unruly and nagging. She starts throwing tantrums and insisting on wearing different outfits. There is one incident when Tillet suddenly says, "Papa!" and rushes out of the room.
+After Tillet's discovery, she is suddenly unruly and nagging. She starts throwing tantrums and insisting on wearing different outfits. There is one incident when Tillet suddenly says, "Papa!" and rushes out of the room. 
 Tillet's guardians, Neil and Firmin, tell George that Tillet's father that was not the most honorable of men and had a
 
 Wikipedia: [The House of the Tolling Bell](https://en.wikipedia.org/wiki/The%20House%20of%20the%20Tolling%20Bell)
 
 ## The House of Toys
 
-_The House of Toys_ is a drama movie directed by George L. Cox. It stars Seena Owen, Pell Trenton, and Helen Jerome Eddy.
+*The House of Toys* is a drama directed by George L. Cox. It stars Seena Owen, Pell Trenton, and Helen Jerome Eddy.
 
 **Synopsis**: C. J. Grey, a penniless painter, is commissioned to do a portrait of a rich heiress, with the condition being that he must have a romantic relationship with the heiress for a 12-month period.
 
@@ -2383,7 +2383,7 @@ Wikipedia: [The House of Toys](https://en.wikipedia.org/wiki/The%20House%20of%20
 
 ## The House of Whispers
 
-_The House of Whispers_ is a mystery movie directed by Ernest C. Warde. It stars J. Warren Kerrigan and Fritzi Brunette.
+*The House of Whispers* is a mystery directed by Ernest C. Warde. It stars J. Warren Kerrigan and Fritzi Brunette.
 
 **Synopsis**: The movie begins with two girls from a mental hospital checking out a hall of mirrors. They walk into a room and get soaked with a bucket of paint. In another room, they're attacked by a coffin and some bloody hands. The girls notice a room filled with screens and the tell-tale sound of a cuckoo clock. The two young women also see a little girl and warn her about the "evil" and the "bad" and, while she tries to figure out what they mean, they fly out of the hall. The next day, the girls are visited by detective Clark Varga, who is investigating the recent murders of two young working girls. They say that the women were like them and one of them had a keen precognition talent. The detective sends them back to the hospital and asks their doctor for permission to keep them under observation for a while.
 
@@ -2395,7 +2395,7 @@ Wikipedia: [The House of Whispers](https://en.wikipedia.org/wiki/The%20House%20o
 
 ## Huckleberry Finn
 
-_Huckleberry Finn_ is an adventure movie directed by William Desmond Taylor. It stars Lewis Sargent and Wallace Beery.
+*Huckleberry Finn* is an adventure film directed by William Desmond Taylor. It stars Lewis Sargent and Wallace Beery.
 
 **Synopsis**: Huckleberry Finn is an adult show with animation, which was released before movies with animation existed. It depicts adult scenarios with animated adult characters in it. It follows Huck Finn who escapes town with Jim.
 
@@ -2403,7 +2403,7 @@ Wikipedia: [Huckleberry Finn](https://en.wikipedia.org/wiki/Huckleberry%20Finn%2
 
 ## Human Collateral
 
-_Human Collateral_ is a drama movie directed by Lawrence C. Windom. It stars Corinne Griffith and Webster Campbell.
+*Human Collateral* is a drama directed by Lawrence C. Windom. It stars Corinne Griffith and Webster Campbell.
 
 **Synopsis**: Fragments of video tell an illegal immigrant Rosa's journey from Brazil to Brazil, yearning for a better life and seeking her daughter, Aida.
 
@@ -2415,7 +2415,7 @@ Wikipedia: [Human Collateral](https://en.wikipedia.org/wiki/Human%20Collateral)
 
 ## Human Stuff
 
-_Human Stuff_ is a western movie directed by B. Reeves Eason. It stars Harry Carey and Charles Le Moyne.
+*Human Stuff* is a western directed by B. Reeves Eason. It stars Harry Carey and Charles Le Moyne.
 
 **Synopsis**: Running Silver Dollar is a kind-hearted young cowboy that is full of life, adventure and a touch of recklessness. When a ruthless cattle baron arrives in a small town in pursuit of a killer he suspects is hiding the town, Silver Dollar will always help when he can. But there's a bad boy lurking in him too when he discovers a gang of cattle rustlers in the brush who suspect him of carrying the antidote for their poison. When Kitty Malone arrives in town, something in Silver worries that he might lose her to Gary Dawson. So he rides into Dawson's operation and deals with the brute in his own way. Winning Kitty's heart may not be all that he gets.
 
@@ -2425,7 +2425,7 @@ Wikipedia: [Human Stuff](https://en.wikipedia.org/wiki/Human%20Stuff)
 
 ## Humoresque
 
-_Humoresque_ is a drama movie directed by Frank Borzage. It stars Gaston Glass, Vera Gordon, and Alma Rubens.
+*Humoresque* is a drama directed by Frank Borzage. It stars Gaston Glass, Vera Gordon, and Alma Rubens.
 
 **Synopsis**: Musician and son of a coal-mine owner falls in love with a talented dancer and rejects his mother's insistence that he marry the daughter of another coal-mine owner.
 
@@ -2433,7 +2433,7 @@ Wikipedia: [Humoresque](https://en.wikipedia.org/wiki/Humoresque%20%281920%20fil
 
 ## The Husband Hunter
 
-_The Husband Hunter_ is a comedy movie directed by Howard M. Mitchell. It stars Eileen Percy and Emory Johnson.
+*The Husband Hunter* is a comedy directed by Howard M. Mitchell. It stars Eileen Percy and Emory Johnson.
 
 **Synopsis**: Farrah, a housewife and mother of four, gets pleasure from hunting and killing handsome and successful men. However, her long-estranged daughter uncovers her back-steps and wants to invest the same time for enjoyment in the hunt.
 
@@ -2443,7 +2443,7 @@ Wikipedia: [The Husband Hunter](https://en.wikipedia.org/wiki/The%20Husband%20Hu
 
 ## The Idol Dancer
 
-_The Idol Dancer_ is a drama movie directed by D. W. Griffith. It stars Richard Barthelmess, Clarine Seymour, and Creighton Hale.
+*The Idol Dancer* is a drama directed by D. W. Griffith. It stars Richard Barthelmess, Clarine Seymour, and Creighton Hale.
 
 **Synopsis**: In 1902, a foreign correspondent arrives in Tangier to escape worldly cares and the street is his home. He meets an eccentric young American button maker who introduces him to a captivating foreign art form—Fantazi. It is the foreigners’ name for the popular theatre consisting of an exotic blend of acrobatic dancing, music, and theater. Romeo becomes enamored not only with the Fantazi but also with an idol dancer who is to become his wife.
 
@@ -2451,7 +2451,7 @@ Wikipedia: [The Idol Dancer](https://en.wikipedia.org/wiki/The%20Idol%20Dancer)
 
 ## Idols of Clay
 
-_Idols of Clay_ is a drama movie directed by George Fitzmaurice. It stars Mae Murray and David Powell.
+*Idols of Clay* is a drama directed by George Fitzmaurice. It stars Mae Murray and David Powell.
 
 **Synopsis**: A sculptor bids farewell to his old work in a country villa to move to the city to take a job in a foundry.
 
@@ -2461,7 +2461,7 @@ Wikipedia: [Idols of Clay](https://en.wikipedia.org/wiki/Idols%20of%20Clay%20%28
 
 ## If I Were King
 
-_If I Were King_ is a drama movie directed by J. Gordon Edwards. It stars William Farnum and Betty Ross Clarke.
+*If I Were King* is a drama directed by J. Gordon Edwards. It stars William Farnum and Betty Ross Clarke.
 
 **Synopsis**: If I Were King is set in 537 BC. The two-act dramatization portrays the humble beginnings of the Jews. Solomon is on the throne governing his country with wisdom and mercy, until his wife persuades him to show his power and glory and profit and profit and profit and profit and profit and profit and profit and profit and profit and profit and profit and profit and profit and profit and profit. He becomes an avaricious and unprincipled monarch, and disaster soon follows.
 
@@ -2469,7 +2469,7 @@ Wikipedia: [If I Were King](https://en.wikipedia.org/wiki/If%20I%20Were%20King%2
 
 ## 'If Only' Jim
 
-_'If Only' Jim_ is a western movie directed by Jacques Jaccard. It stars Harry Carey, Carol Holloway, and Ruth Royce.
+*'If Only' Jim* is a western directed by Jacques Jaccard. It stars Harry Carey, Carol Holloway, and Ruth Royce.
 
 **Synopsis**: The story is about a cowboy who goes out on his ranch to retrieve a bull, against his wife's will. His wife is expecting a new baby and he doesn't want to leave, but she insists it's a necessity. However, the town's people were sided with his wife and he had to sneak out of the house in order to escape.
 
@@ -2477,7 +2477,7 @@ Wikipedia: ['If Only' Jim](https://en.wikipedia.org/wiki/%27If%20Only%27%20Jim)
 
 ## In Folly's Trail
 
-_In Folly's Trail_ is a drama movie directed by Rollin S. Sturgeon. It stars Carmel Myers and Thomas Holding.
+*In Folly's Trail* is a drama directed by Rollin S. Sturgeon. It stars Carmel Myers and Thomas Holding.
 
 **Synopsis**: Nina Turnbull has to make many changes in her life when she moves to her mother's old house in order to take care of her sick father. When she arrives she finds out that the other woman in the house is her mother, who she thought was dead.
 
@@ -2485,7 +2485,7 @@ Wikipedia: [In Folly's Trail](https://en.wikipedia.org/wiki/In%20Folly%27s%20Tra
 
 ## In Search of a Sinner
 
-_In Search of a Sinner_ is a comedy movie directed by David Kirkland. It stars Constance Talmadge and Rockliffe Fellowes.
+*In Search of a Sinner* is a comedy directed by David Kirkland. It stars Constance Talmadge and Rockliffe Fellowes.
 
 **Synopsis**: The wife of a wealthy aristocrat gets fired after telling her boss he is an alcoholic and then goes on a tabareling spree with the mans son.
 
@@ -2493,7 +2493,7 @@ Wikipedia: [In Search of a Sinner](https://en.wikipedia.org/wiki/In%20Search%20o
 
 ## In the Heart of a Fool
 
-_In the Heart of a Fool_ is a drama movie directed by Allan Dwan. It stars James Kirkwood and Anna Q. Nilsson.
+*In the Heart of a Fool* is a drama directed by Allan Dwan. It stars James Kirkwood and Anna Q. Nilsson.
 
 **Synopsis**: Lester (James Kirkwood) is seduced by much tan, actress Lola (Anna Nilsson) in this 1911 adaptation by noted female playwright Alice Brown. Lola, who has "a summer in Italy, two in Cannes, and one at Harry's in Biarritz"
 
@@ -2501,7 +2501,7 @@ Wikipedia: [In the Heart of a Fool](https://en.wikipedia.org/wiki/In%20the%20Hea
 
 ## In Walked Mary
 
-_In Walked Mary_ is a drama movie directed by George Archainbaud. It stars June Caprice and Thomas Carrigan.
+*In Walked Mary* is a drama directed by George Archainbaud. It stars June Caprice and Thomas Carrigan.
 
 **Synopsis**: Mary is a child of a wealthy man who is neglectful of her. She lives in town and is friends with the children who live in the valley below. When a class from her school goes to summer camp, she gets aboard the bus, and then disappears. One of the parents gives a reward for her return, and soon a race to find her ensues.
 
@@ -2509,7 +2509,7 @@ Wikipedia: [In Walked Mary](https://en.wikipedia.org/wiki/In%20Walked%20Mary)
 
 ## The Inferior Sex
 
-_The Inferior Sex_ is a drama movie directed by Joseph Henabery. It stars Mildred Harris, Milton Sills, and Mary Alden.
+*The Inferior Sex* is a drama directed by Joseph Henabery. It stars Mildred Harris, Milton Sills, and Mary Alden.
 
 **Synopsis**: The Inferior Sex is a film about a couple, Jerry and Lucille, who get called back to Lucille's hometown to care for Jerry's father. Once they arrive, Jerry is quickly puzzled with the town's mentality that the sexes are unequal. Jerry spends most of his time trying to save a local lady from becoming a prostitute, while most of the townsfolk think he is wasting his time.
 
@@ -2519,7 +2519,7 @@ Wikipedia: [The Inferior Sex](https://en.wikipedia.org/wiki/The%20Inferior%20Sex
 
 ## The Inner Voice
 
-_The Inner Voice_ is a drama movie directed by Roy William Neill. It stars E. K. Lincoln and Agnes Ayres.
+*The Inner Voice* is a drama directed by Roy William Neill. It stars E. K. Lincoln and Agnes Ayres.
 
 **Synopsis**: The film is about Dora Peignet (Ayres), who gradually falls victim to the delusion that she is following her dead daughter (Ann Todd) in death.
 
@@ -2533,7 +2533,7 @@ Wikipedia: [The Inner Voice](https://en.wikipedia.org/wiki/The%20Inner%20Voice)
 
 ## The Invisible Divorce
 
-_The Invisible Divorce_ is a drama movie directed by Thomas R. Mills. It stars Walter McGrail and Leatrice Joy.
+*The Invisible Divorce* is a drama directed by Thomas R. Mills. It stars Walter McGrail and Leatrice Joy.
 
 **Synopsis**: A married father is frustrated with his wife, so he ups and leaves with the maid. When months go by with his wife not having any information of his whereabouts, she begins to panic. Her desire for him to see his son forces her on an epic journey on the other side of the continent, on the search for the only man she ever loved.
 
@@ -2541,7 +2541,7 @@ Wikipedia: [The Invisible Divorce](https://en.wikipedia.org/wiki/The%20Invisible
 
 ## The Iron Heart
 
-_The Iron Heart_ is a drama movie directed by Denison Clift. It stars Madlaine Traverse and Edwin B. Tilton.
+*The Iron Heart* is a drama directed by Denison Clift. It stars Madlaine Traverse and Edwin B. Tilton.
 
 **Synopsis**: The movie is about an orphan, Jim Warren, who has been hired to find a stolen safe heist. It was the same night when the Wardner brothers robbed a train and Jim found the treasure heist at the same time.
 
@@ -2549,7 +2549,7 @@ Wikipedia: [The Iron Heart](https://en.wikipedia.org/wiki/The%20Iron%20Heart%20%
 
 ## The Iron Rider
 
-_The Iron Rider_ is a western movie directed by Scott R. Dunlap. It stars William Russell and Vola Vale.
+*The Iron Rider* is a western directed by Scott R. Dunlap. It stars William Russell and Vola Vale.
 
 **Synopsis**: A third-grader is fighting with an older man who is equal in size and skills and wealth, but lacking in patience.
 
@@ -2559,7 +2559,7 @@ Wikipedia: [The Iron Rider](https://en.wikipedia.org/wiki/The%20Iron%20Rider)
 
 ## Isobel or The Trail's End
 
-_Isobel or The Trail's End_ is an adventure movie directed by Edwin Carewe. It stars House Peters and Jane Novak.
+*Isobel or The Trail's End* is an adventure film directed by Edwin Carewe. It stars House Peters and Jane Novak.
 
 **Synopsis**: The film tells the tale of a man searching the backwoods of the Old West for the daughter he has not seen in many years.
 
@@ -2567,7 +2567,7 @@ Wikipedia: [Isobel or The Trail's End](https://en.wikipedia.org/wiki/Isobel%20or
 
 ## It's a Great Life
 
-_It's a Great Life_ is a comedy movie directed by E. Mason Hopper. It stars Cullen Landis, Molly Malone, and Clara Horton.
+*It's a Great Life* is a comedy directed by E. Mason Hopper. It stars Cullen Landis, Molly Malone, and Clara Horton.
 
 **Synopsis**: Clark discovers the better way to live after he contracts smallpox.
 
@@ -2575,7 +2575,7 @@ Wikipedia: [It's a Great Life](https://en.wikipedia.org/wiki/It%27s%20a%20Great%
 
 ## The Jack-Knife Man
 
-_The Jack-Knife Man_ is a drama movie directed by King Vidor. It stars F. A. Turner and Harry Todd.
+*The Jack-Knife Man* is a drama directed by King Vidor. It stars F. A. Turner and Harry Todd.
 
 **Synopsis**: The Jack-Knife Man is a drama movie directed by King Vidor. It is unrelated to any film with the same title released more recently. It stars F. A. Turner and Harry Todd. It is about a newspaper reporter, Artie Shaw, who starts trying to solve a murder of a woman with a gun who had once threatened him with a jack knife. He figures out the killer is the woman's husband, Ned, though he's already dead at this point. Ned had tried to goad him into confessing to the crime, which Artie had him pinned for, but then confesses to another clerk at the police station that he did it.
 
@@ -2585,7 +2585,7 @@ Wikipedia: [The Jack-Knife Man](https://en.wikipedia.org/wiki/The%20Jack-Knife%2
 
 ## Jack Straw
 
-_Jack Straw_ is a comedy movie directed by William C. deMille. It stars Robert Warwick and Carroll McComas.
+*Jack Straw* is a comedy directed by William C. deMille. It stars Robert Warwick and Carroll McComas.
 
 **Synopsis**: Humanitarian Tom L. "Jack" Straw (Robert Warwick) along with all the men living in Jack's town, fend off Indian attack. The film has some authentic and some inaccurate points and events and was not well received by indigenous viewers and people who cared about the truth and the perspective.
 
@@ -2597,7 +2597,7 @@ Wikipedia: [Jack Straw](https://en.wikipedia.org/wiki/Jack%20Straw%20%281920%20f
 
 ## The Jailbird
 
-_The Jailbird_ is a comedy movie directed by Lloyd Ingraham. It stars Douglas MacLean and Doris May.
+*The Jailbird* is a comedy directed by Lloyd Ingraham. It stars Douglas MacLean and Doris May.
 
 **Synopsis**: A man, Connie, is discharged from the military and starts to work at a resort hotel. The disgruntled concierge Connie subordinates to, hands off the duties and Connie soon discovers that these duties include procuring the evening's entertainment staff. Local mobsters, posing as staff members arriving for work, seem content with the bait the concierge Connie puts in front of them...
 
@@ -2607,7 +2607,7 @@ Wikipedia: [The Jailbird](https://en.wikipedia.org/wiki/The%20Jailbird)
 
 ## Jenny Be Good
 
-_Jenny Be Good_ is a drama movie directed by William Desmond Taylor. It stars Mary Miles Minter, Jay Belasco, and Margaret Shelby.
+*Jenny Be Good* is a drama directed by William Desmond Taylor. It stars Mary Miles Minter, Jay Belasco, and Margaret Shelby.
 
 **Synopsis**: Jenny Be Good is about a 10 year old orphan girl, Jenny, who is difficult to control. She becomes involved in gang activity and truancy, until she gets adopted by a well-meaning but conventionally strict family, where she can thrive.
 
@@ -2619,7 +2619,7 @@ Wikipedia: [Jenny Be Good](https://en.wikipedia.org/wiki/Jenny%20Be%20Good)
 
 ## Jes' Call Me Jim
 
-_Jes' Call Me Jim_ is a drama movie directed by Clarence G. Badger. It stars Will Rogers, Irene Rich, and Lionel Belmore.
+*Jes' Call Me Jim* is a drama directed by Clarence G. Badger. It stars Will Rogers, Irene Rich, and Lionel Belmore.
 
 **Synopsis**: Jim Ned is a Texas cowboy who has been hired to clear a plot of government land with a hired helper. His life changes when he meets a cowgirl from the East named Charity, who inherits a horse named Ned, who just happens to be the perfect match for the horse he already has, which he has been trying to sell because she is slowing him down. He becomes jealous of this Easterner and ultimately tries to take the horse from Charity, who also tries to protect her land, but Jim Ned prevents her from doing so.
 
@@ -2629,7 +2629,7 @@ Wikipedia: [Jes' Call Me Jim](https://en.wikipedia.org/wiki/Jes%27%20Call%20Me%2
 
 ## The Joyous Trouble-Makers
 
-_The Joyous Trouble-Makers_ is an adventure movie directed by J. Gordon Edwards. It stars William Farnum and Louise Lovely.
+*The Joyous Trouble-Makers* is an adventure film directed by J. Gordon Edwards. It stars William Farnum and Louise Lovely.
 
 **Synopsis**: The movie is about circus folks and what they do when the circus is closed.
 
@@ -2641,7 +2641,7 @@ Wikipedia: [The Joyous Trouble-Makers](https://en.wikipedia.org/wiki/The%20Joyou
 
 ## Judy of Rogue's Harbor
 
-_Judy of Rogue's Harbor_ is a drama movie directed by William Desmond Taylor. It stars Mary Miles Minter and Charles Meredith.
+*Judy of Rogue's Harbor* is a drama directed by William Desmond Taylor. It stars Mary Miles Minter and Charles Meredith.
 
 **Synopsis**: The play centers around a group of people living in the residents of the Rogue Harbor area. Harvey Hastings and his wife, Judy Hastings, and their daughter, Vivian Hastings, and Emmy and Carl, two working-class people about town, and their relationship with Emmy's sister, Rose, who is married to the wealthy Devon Wetherby.
 
@@ -2649,7 +2649,7 @@ Wikipedia: [Judy of Rogue's Harbor](https://en.wikipedia.org/wiki/Judy%20of%20Ro
 
 ## Just a Wife
 
-_Just a Wife_ is a drama movie directed by Howard C. Hickman. It stars Roy Stewart and Leatrice Joy.
+*Just a Wife* is a drama directed by Howard C. Hickman. It stars Roy Stewart and Leatrice Joy.
 
 **Synopsis**: Joe, an adulterous shoe company owner, is climbing back to the big time, after his previous business went belly-up. One day, he hears of a salesgirl who is making sales like hotcakes (190 in one day, retails). The beauty, calling herself Creola comes to Creola, Oklahoma. However, to his great disappointment, he realizes that she is his daughter, who abandoned the family 10 years ago. Why did she come back?
 
@@ -2657,7 +2657,7 @@ Wikipedia: [Just a Wife](https://en.wikipedia.org/wiki/Just%20a%20Wife)
 
 ## Just Out of College
 
-_Just Out of College_ is a comedy movie directed by Alfred E. Green. It stars Jack Pickford and Molly Malone.
+*Just Out of College* is a comedy directed by Alfred E. Green. It stars Jack Pickford and Molly Malone.
 
 **Synopsis**: College student gets a job as an assistant to a Hollywood celebrity and once he has faced his first challenges of the working world, decides to set out on his own as a successful scriptwriter and producer and also completes his college degree after he realizes that his skills and ambition could lead him there.
 
@@ -2667,7 +2667,7 @@ Wikipedia: [Just Out of College](https://en.wikipedia.org/wiki/Just%20Out%20of%2
 
 ## Just Pals
 
-_Just Pals_ is a western movie directed by John Ford. It stars Buck Jones and Helen Ferguson.
+*Just Pals* is a western directed by John Ford. It stars Buck Jones and Helen Ferguson.
 
 **Synopsis**: Just Pals is a story following a western rancher that was born in California. The rancher, Lee Marriott, is at the age in which the citizens in the region participate in a great roundup in order to buy and sell cattle and horses to and from northern and southern climates. Marriott and his friend go in search for the best animals in the region. But when Marriott finds out that he is in love with a girl close to his age, Kathy Tucker, he forfeits the rodeo and goes into the long drive through the ranches and prairies in order to return in time to convince Kathy that they should be together for good. The story deals with the hardships when the ranchers try to get north when there is a flurry in the plains. The ranchers attempt to kill and eat the buffalo in order to survive and get to the next town and the next cattle and horses market.
 
@@ -2675,7 +2675,7 @@ Wikipedia: [Just Pals](https://en.wikipedia.org/wiki/Just%20Pals)
 
 ## The Kentucky Colonel
 
-_The Kentucky Colonel_ is a drama movie directed by William A. Seiter. It stars Joseph J. Dowling and Frederick Vroom.
+*The Kentucky Colonel* is a drama directed by William A. Seiter. It stars Joseph J. Dowling and Frederick Vroom.
 
 **Synopsis**: Joseph Talbot is a former Confederate soldier who wants to get his citizenship restored. In order to get this Talbot enters a horse competition and is named a Kentucky Colonel. He feels that everything is going great, but the Civil War is not forgotten and his past is about to catch up with him.
 
@@ -2685,7 +2685,7 @@ Wikipedia: [The Kentucky Colonel](https://en.wikipedia.org/wiki/The%20Kentucky%2
 
 ## Kismet
 
-_Kismet_ is a drama movie directed by Louis J. Gasnier. It stars Otis Skinner, Rosemary Theby, and Elinor Fair.
+*Kismet* is a drama directed by Louis J. Gasnier. It stars Otis Skinner, Rosemary Theby, and Elinor Fair.
 
 **Synopsis**: Kismet is a 1925 silent movie about an orphaned Arabian prince whose throne is threatened by an evil sultan.
 
@@ -2693,7 +2693,7 @@ Wikipedia: [Kismet](https://en.wikipedia.org/wiki/Kismet%20%281920%20film%29)
 
 ## The Ladder of Lies
 
-_The Ladder of Lies_ is a drama movie directed by Tom Forman. It stars Ethel Clayton and Jean Acker.
+*The Ladder of Lies* is a drama directed by Tom Forman. It stars Ethel Clayton and Jean Acker.
 
 **Synopsis**: A young man, Tony, is trying to cope with the death of his grandmother and the loss of the family's home as a result of her death. A self-professed optimist, the woman is up the street giving away her worldly possessions, unbeknownst to Tony and takes immediate interest in him and his situation.
 
@@ -2701,7 +2701,7 @@ Wikipedia: [The Ladder of Lies](https://en.wikipedia.org/wiki/The%20Ladder%20of%
 
 ## A Lady in Love
 
-_A Lady in Love_ is a drama movie directed by Walter Edwards. It stars Ethel Clayton and Boyd Irwin.
+*A Lady in Love* is a drama directed by Walter Edwards. It stars Ethel Clayton and Boyd Irwin.
 
 **Synopsis**: A widower, Ogden Tyler, remarries. His new wife, Lillian Boyden, has an inherited family curse, which becomes apparent after she remarries to Ogden; she sees all her husbands die. Lillian tries to save Ogden by fending off an impending tornado.
 
@@ -2709,7 +2709,7 @@ Wikipedia: [A Lady in Love](https://en.wikipedia.org/wiki/A%20Lady%20in%20Love)
 
 ## Lady Rose's Daughter
 
-_Lady Rose's Daughter_ is a drama movie directed by Hugh Ford. It stars Elsie Ferguson and David Powell.
+*Lady Rose's Daughter* is a drama directed by Hugh Ford. It stars Elsie Ferguson and David Powell.
 
 **Synopsis**: A story about a dowry hunter who unfairly critised Lady Rose's daughter
 
@@ -2717,7 +2717,7 @@ Wikipedia: [Lady Rose's Daughter](https://en.wikipedia.org/wiki/Lady%20Rose%27s%
 
 ## The Land of Jazz
 
-_The Land of Jazz_ is a comedy movie directed by Jules Furthman. It stars Eileen Percy, Ruth Stonehouse, and Herbert Heyes.
+*The Land of Jazz* is a comedy directed by Jules Furthman. It stars Eileen Percy, Ruth Stonehouse, and Herbert Heyes.
 
 **Synopsis**: Living in the Australian township of Karoo, Lutie Brown suffers from depression when she is interrupted one day when she is about to take her own life. A newly released Parolee, Blue (Mischa Auer) interrupts her attempted suicide. The two end up in bed together and Lutie finds out she is pregnant. Lutie moves himself and his daughter to a boarding house where the wealthy Dennis Monk moves in and cares for both Lutie and his daughter. Meantime, Lutie finds a love for a professor.
 
@@ -2725,7 +2725,7 @@ Wikipedia: [The Land of Jazz](https://en.wikipedia.org/wiki/The%20Land%20of%20Ja
 
 ## The Last of the Mohicans
 
-_The Last of the Mohicans_ is an adventure movie directed by Clarence Brown and Maurice Tourneur. It stars Wallace Beery.
+*The Last of the Mohicans* is an adventure film directed by Clarence Brown and Maurice Tourneur. It stars Wallace Beery.
 
 **Synopsis**: Claudia Allen is pregnant with twins in 1878 when she falls in love with Lockwood, who is in Julesburg, Colorado in rail town building railroad. Her father is surprised by this and orders her to marry General Herman Prentiss, who is the commander of the fort in Julesburg. Prentiss is against the marriage so Claudia escapes which leads to the marriage not taking place.
 
@@ -2735,7 +2735,7 @@ Wikipedia: [The Last of the Mohicans](https://en.wikipedia.org/wiki/The%20Last%2
 
 ## The Last Straw
 
-_The Last Straw_ is a western movie directed by Denison Clift. It stars Buck Jones and Vivian Rich.
+*The Last Straw* is a western directed by Denison Clift. It stars Buck Jones and Vivian Rich.
 
 **Synopsis**: The Last Straw is a gritty westward journey of Buck Jones and Vivian Rich after Jones is wrongfully accused of theft. Jones and Rich head west to find the real culprit, with the westward journey filled with outrunning gangs and shadowy gunslingers, who covet the valuable objects Jones is carrying for a ransom.
 
@@ -2743,7 +2743,7 @@ Wikipedia: [The Last Straw](https://en.wikipedia.org/wiki/The%20Last%20Straw%20%
 
 ## Leave It to Me
 
-_Leave It to Me_ is a comedy movie directed by Emmett J. Flynn. It stars William Russell and Eileen Percy.
+*Leave It to Me* is a comedy directed by Emmett J. Flynn. It stars William Russell and Eileen Percy.
 
 **Synopsis**: Wracked with indecision, columnist Bill becomes enmeshed with various people who offer incompatible sound bytes of life's wisdom to navigate the maze of his uninteresting day-to-day.
 
@@ -2751,7 +2751,7 @@ Wikipedia: [Leave It to Me](https://en.wikipedia.org/wiki/Leave%20It%20to%20Me%2
 
 ## The Leopard Woman
 
-_The Leopard Woman_ is an adventure movie directed by Wesley Ruggles. It stars Louise Glaum and House Peters.
+*The Leopard Woman* is an adventure film directed by Wesley Ruggles. It stars Louise Glaum and House Peters.
 
 **Synopsis**: The Leopard Woman features a struggling artist Caroline who meets up with a couple of conmans and cannot resist.
 
@@ -2759,7 +2759,7 @@ Wikipedia: [The Leopard Woman](https://en.wikipedia.org/wiki/The%20Leopard%20Wom
 
 ## Let's Be Fashionable
 
-_Let's Be Fashionable_ is a comedy movie directed by Lloyd Ingraham. It stars Douglas MacLean and Doris May.
+*Let's Be Fashionable* is a comedy directed by Lloyd Ingraham. It stars Douglas MacLean and Doris May.
 
 **Synopsis**: This comedy movie follows the journey to find the original style that the former Soviet Union was considered the center of fashion.
 
@@ -2771,7 +2771,7 @@ Wikipedia: [Let's Be Fashionable](https://en.wikipedia.org/wiki/Let%27s%20Be%20F
 
 ## Li Ting Lang
 
-_Li Ting Lang_ is a drama movie directed by Charles Swickard. It stars Sessue Hayakawa and Allan Forrest.
+*Li Ting Lang* is a drama directed by Charles Swickard. It stars Sessue Hayakawa and Allan Forrest.
 
 **Synopsis**: This movie is about the People's warlord of China.
 
@@ -2785,7 +2785,7 @@ Wikipedia: [Li Ting Lang](https://en.wikipedia.org/wiki/Li%20Ting%20Lang)
 
 ## Life
 
-_Life_ is a drama movie directed by Travers Vale. It stars Nita Naldi and Jack Mower.
+*Life* is a drama directed by Travers Vale. It stars Nita Naldi and Jack Mower.
 
 **Synopsis**: The movie opens with a man on the verge of a nervous breakdown. He is lying down on a mat shooting a toy gun into the air while shooting feverishly into the sand. He then goes into a dream sequence, where he is young and successful, and has a happy family. The happy family lasts only a day before the son kills his mother.
 
@@ -2793,7 +2793,7 @@ Wikipedia: [Life](https://en.wikipedia.org/wiki/Life%20%281920%20film%29)
 
 ## Life of the Party
 
-_Life of the Party_ is a comedy movie directed by Joseph Henabery. It stars Roscoe Arbuckle and Winifred Greenwood.
+*Life of the Party* is a comedy directed by Joseph Henabery. It stars Roscoe Arbuckle and Winifred Greenwood.
 
 **Synopsis**: The Life of the Party is about Toby Higgins, who is just out of school and needs money to fund his invention to help fight pneumonia which he hopes to promptly finish. One chance day, Toby throws a party at his house with many invited guests. When his friends all go to leave the house, they are too drunk to get into their car. A big policeman shows up. Toby must bail out his friends or everyone will get in trouble.
 
@@ -2805,7 +2805,7 @@ Wikipedia: [Life of the Party](https://en.wikipedia.org/wiki/Life%20of%20the%20P
 
 ## Life's Twist
 
-_Life's Twist_ is a drama movie directed by Christy Cabanne. It stars Bessie Barriscale and Walter McGrail.
+*Life's Twist* is a drama directed by Christy Cabanne. It stars Bessie Barriscale and Walter McGrail.
 
 **Synopsis**: The trials and tribulations of the Connors family are played out. The Connors are stereotypically Irish. Patriarch Mick (McGrail) is lazy, drinks too much, and speaks with an Irish brogue. He owes money to an Irish gang for his bakery. Mick is taken advantage of by the gang's leaders. The gang's leaders are abusive to his wife (Barriscale) who has an alcohol addiction. He also abuses their daughter. Mick tries to bail out his son Jackie (Padovac), who is in jail. However, Jackie is after his brother Marty (Padovac) who has mental issues. Marty is obsessed with athelude. His wife Peggy (Kathleen Rutte) is also suffering. Mick takes the desperate Peggy under his wing. The film shows what life is like for poor families in Ireland.
 
@@ -2821,7 +2821,7 @@ Wikipedia: [Life's Twist](https://en.wikipedia.org/wiki/Life%27s%20Twist)
 
 ## Lifting Shadows
 
-_Lifting Shadows_ is a drama movie directed by Léonce Perret. It stars Emmy Wehlen, Stuart Holmes, and Wyndham Standing.
+*Lifting Shadows* is a drama directed by Léonce Perret. It stars Emmy Wehlen, Stuart Holmes, and Wyndham Standing.
 
 **Synopsis**: Francisca Gutierrez finds odd jobs as a film censor in Hollywood in the 1920s, as the industry begins to rebel against her.
 
@@ -2831,7 +2831,7 @@ Wikipedia: [Lifting Shadows](https://en.wikipedia.org/wiki/Lifting%20Shadows%20%
 
 ## A Light Woman
 
-_A Light Woman_ is a drama movie directed by George L. Cox. It stars Helen Jerome Eddy, Hallam Cooley, and Claire Du Brey.
+*A Light Woman* is a drama directed by George L. Cox. It stars Helen Jerome Eddy, Hallam Cooley, and Claire Du Brey.
 
 **Synopsis**: Marietta is madly in love with her niece's heartthrob Fletcher. Fletcher reciprocates these feelings until he leaves for college. Without warning, he gets back home, under the disguise of his cousin, Nicholas. Through the summer, Marietta won't leave Nicolas alone, thinking he's her true love. But, Marietta starts to see the true Fletcher again. Fletcher breaks down the original Fletcher, revealing that he fell in love with Marietta all over again.
 
@@ -2841,7 +2841,7 @@ Wikipedia: [A Light Woman](https://en.wikipedia.org/wiki/A%20Light%20Woman%20%28
 
 ## The Little 'Fraid Lady
 
-_The Little 'Fraid Lady_ is a drama movie directed by John G. Adolfi. It stars Mae Marsh and Tully Marshall.
+*The Little 'Fraid Lady* is a drama directed by John G. Adolfi. It stars Mae Marsh and Tully Marshall.
 
 **Synopsis**: Kate Webb, the little 'fraid Lady, lives, alone with her grandfather on his lonely, ocean side farm. Her only companians are her farmer neighbor, Jerry, and his friendly 11-year-old twin children. It's Spring, and Jerry's boys borrow some mules for their foiled small boy's hay ride. Grandfather cleans them out, clapping on an old headstall, and Kate doubts if they can mome more than five rods without scorning the ravel coulter. But their small twin steer obstinately obstinate, and so Jerry loans her his prize female dowdy, who leads them to a smashing success.
 
@@ -2849,7 +2849,7 @@ Wikipedia: [The Little 'Fraid Lady](https://en.wikipedia.org/wiki/The%20Little%2
 
 ## The Little Grey Mouse
 
-_The Little Grey Mouse_ is a drama movie directed by James P. Hogan. It stars Louise Lovely, Sam De Grasse, and Rosemary Theby.
+*The Little Grey Mouse* is a drama directed by James P. Hogan. It stars Louise Lovely, Sam De Grasse, and Rosemary Theby.
 
 **Synopsis**: The Little Grey Mouse is a 1956 animated short that follows the story of a little mouse that becomes separated from her mother when the children's maid tears the house apart. She becomes an independent thinker, eventually learning to survive outside the house, even catching a fish to eat by figuring out how to use the fishhook to capture the bird. She though releived to find her mother at the end, but quickly knocks her out with knocking her head against a rock before realizing what she's done.
 
@@ -2863,7 +2863,7 @@ Wikipedia: [The Little Grey Mouse](https://en.wikipedia.org/wiki/The%20Little%20
 
 ## Little Miss Rebellion
 
-_Little Miss Rebellion_ is a drama movie directed by George Fawcett. It stars Dorothy Gish and Ralph Graves.
+*Little Miss Rebellion* is a drama directed by George Fawcett. It stars Dorothy Gish and Ralph Graves.
 
 **Synopsis**: Riley and his fiancée Connie, who is the daughter of his boss, decide to move to the big city so they can take advantage of Connie's inheritance. They quickly come to realize that they want different things and split up. Riley eventually gets back together with Connie and they plan to take over his boss's lumber company together.
 
@@ -2871,7 +2871,7 @@ Wikipedia: [Little Miss Rebellion](https://en.wikipedia.org/wiki/Little%20Miss%2
 
 ## The Little Shepherd of Kingdom Come
 
-_The Little Shepherd of Kingdom Come_ is a drama movie directed by Wallace Worsley. It stars Jack Pickford, Clara Horton, and Pauline Starke.
+*The Little Shepherd of Kingdom Come* is a drama directed by Wallace Worsley. It stars Jack Pickford, Clara Horton, and Pauline Starke.
 
 **Synopsis**: A melancholic boy played by Jack Pickford, distraught after the death of his mother, spends much of his time fishing, which makes his father very unhappy. The boy goes to college to please his father, but the passion for his dying muteness is waning. He does not want to grow up and take on the family tradition of farming and herd tending of robins and sheep on their small farm. When his father is injured at work, the shepherding is passed onto the son who had been estranged from his father for more than a year. While the task proves to be tedious and time-consuming, he is very drawn to it and the isolated and quiet life the farm and life of a shepherd offers.
 
@@ -2881,7 +2881,7 @@ Wikipedia: [The Little Shepherd of Kingdom Come](https://en.wikipedia.org/wiki/T
 
 ## The Little Wanderer
 
-_The Little Wanderer_ is a drama movie directed by Howard M. Mitchell. It stars Shirley Mason and Raymond McKee.
+*The Little Wanderer* is a drama directed by Howard M. Mitchell. It stars Shirley Mason and Raymond McKee.
 
 **Synopsis**: The Little Wanderer is about a young boy who was sent to board at a boys’ home after his mother tries to kill him. The boy keeps escaping the boys’ home to find his mom. One night, he escapes on Christmas Eve. The next day the child asks the police officer to take him home.
 
@@ -2889,7 +2889,7 @@ Wikipedia: [The Little Wanderer](https://en.wikipedia.org/wiki/The%20Little%20Wa
 
 ## Live Sparks
 
-_Live Sparks_ is a comedy movie directed by Ernest C. Warde. It stars J. Warren Kerrigan and Fritzi Brunette.
+*Live Sparks* is a comedy directed by Ernest C. Warde. It stars J. Warren Kerrigan and Fritzi Brunette.
 
 **Synopsis**: Jimbo is a Bronx native who moves back to Chicago with his two sisters from a south Asian country, where they were being held as political prisoners. Their dad arrives from the old country with a booty of cash courtesy of the United States government and Jimbo and his sisters decide to replace their school uniforms with sparkling and sophisticated and not league and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and league and and and and and and and and and and and and and and and and and and and and and and and and and and and standardized as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and and as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as as
 
@@ -2897,7 +2897,7 @@ Wikipedia: [Live Sparks](https://en.wikipedia.org/wiki/Live%20Sparks)
 
 ## Locked Lips
 
-_Locked Lips_ is a drama movie directed by William C. Dowlan. It stars Tsuru Aoki and Yutaka Abe.
+*Locked Lips* is a drama directed by William C. Dowlan. It stars Tsuru Aoki and Yutaka Abe.
 
 **Synopsis**: This movie tells the story of two women who live with an unfortunate daily situation. Kyoka yearns to be the most beautiful woman with the most white American teeth in Nagoya so she freely shares her jar of bleaching powder with anyone whose smile needs a little retouch. Narumi sometimes poses for Kyoka, distracting customers, but she spends her time posing the two of them for her sketches outside the sushi restaurant where she works. Kyoka's husband's extramarital affair with Narumi dashes her last hope of honest love, but Kyoka pays him no heed, more interested in chasing some rich appetizer-haven hostess for herself, until Narumi tells Kyoka she's pregnant.
 
@@ -2909,7 +2909,7 @@ Wikipedia: [Locked Lips](https://en.wikipedia.org/wiki/Locked%20Lips)
 
 ## Love
 
-_Love_ is a romance movie directed by Wesley Ruggles. It stars Louise Glaum and James Kirkwood Sr..
+*Love* is a romance directed by Wesley Ruggles. It stars Louise Glaum and James Kirkwood Sr..
 
 **Synopsis**: Katherine "Babs" Norton lives a successful yet lonely life in Chicago's wealthy Laguna Beach neighborhood. The only thing she has going for her is a cat, till she adopts a dog from a junkyard and creates a character for a pet feature in a tabloid. Tommy, a longshoreman, finds a small dog and takes him in, but when Katherine finds out it's been caught fighting in a pit fighting arena, she does everything she can to save the animal from being injured again. In the process, Tommy falls in love with her and they live happily ever after.
 
@@ -2917,7 +2917,7 @@ Wikipedia: [Love](https://en.wikipedia.org/wiki/Love%20%281920%20film%29)
 
 ## The Love Expert
 
-_The Love Expert_ is a comedy movie directed by David Kirkland. It stars Constance Talmadge, John Halliday, and Natalie Talmadge.
+*The Love Expert* is a comedy directed by David Kirkland. It stars Constance Talmadge, John Halliday, and Natalie Talmadge.
 
 **Synopsis**: ʼʼThe Love Expertʼʼ is the result of the three Talmadge sisters working together for the first time. Constance Talmadge plays Lady Alys Chaudron, whose ability to calculate permutations and combinations in order to win at all kinds of games has made her a renowned member of European high society. When she moves to America to marry a foolish social climber from the Astor family, Lady Chaudron realizes that she got in way over her head when she is faced with keeping her spouse happy and finding a way to control her scatter-brained step children. John Halliday is an acclaimed writer who cannot seem to make a living from his hard work. Constance gives him a boost by setting him up with the Astor family to write a fake article about them. But when Lord Astor's nephew, played by young Natalie Talmadge, falls for Lady Chaudron, the three siblings set out to save the runaway romance.
 
@@ -2927,7 +2927,7 @@ Wikipedia: [The Love Expert](https://en.wikipedia.org/wiki/The%20Love%20Expert)
 
 ## The Love Flower
 
-_The Love Flower_ is a drama movie directed by D. W. Griffith. It stars Carol Dempster, Richard Barthelmess, and George MacQuarrie.
+*The Love Flower* is a drama directed by D. W. Griffith. It stars Carol Dempster, Richard Barthelmess, and George MacQuarrie.
 
 **Synopsis**: Two friends, Psyche and Narcy, are in an unhappy relationship when misfortune descends down on them. Psyche gets engaged when Narcy leaves her, which devastates Psyche. Narcy, who returns to earn money after his father's death, is full of regret when he learns that Psyche is engaged. Psyche ends her engagement, but it has already been done. With the stress of the engagement, Psyche does not return to see Narcy, which causes Narcy to think that she no longer has feelings for him. Psyche goes through with the marriage, but then she leaves with Narcy to help Narcy's family. The two ad up riding their respective horses, which causes Psyche's horse to die. Even though Psyche has saved Narcy's life, Narcy continues to think she doesn't care about him because she doesn't think he cares about her. Their relationship becomes permanently damaged, but in the end, during a big earthquake, they both perish while saving the other's life.
 
@@ -2935,7 +2935,7 @@ Wikipedia: [The Love Flower](https://en.wikipedia.org/wiki/The%20Love%20Flower)
 
 ## Love's Harvest
 
-_Love's Harvest_ is a drama movie directed by Howard M. Mitchell. It stars Shirley Mason and Raymond McKee.
+*Love's Harvest* is a drama directed by Howard M. Mitchell. It stars Shirley Mason and Raymond McKee.
 
 **Synopsis**: Homer, a one-time farmer, spends his days fixing cars in Utek, Ky., to avoid farming. His son, Brennan, is married to Kathy, and they seem to have a typical, happy family. Kathy is expecting a child, and loves the close relationship she has with her in-laws, who live right down the street. However, when her dad unexpectedly dies, she becomes bitter, withdraws from her social life, and falls into depression. Her family tries in vain to get her out of her funk, but Kathy is a lost cause. Jimmy, her father-in-law, weighs his options, and eventually grows a 211 bulb soybean, which ultimately brings Kathy joy in a time when she needed it most.
 
@@ -2945,7 +2945,7 @@ Wikipedia: [Love's Harvest](https://en.wikipedia.org/wiki/Love%27s%20Harvest)
 
 ## Love, Honor and Behave
 
-_Love, Honor and Behave_ is a comedy movie directed by F. Richard Jones and Erle C. Kenton. It stars Ford Sterling and Charlie Murray.
+*Love, Honor and Behave* is a comedy directed by F. Richard Jones and Erle C. Kenton. It stars Ford Sterling and Charlie Murray.
 
 **Synopsis**: A man from the soap opera As the World Turns returns home from a stint in prison to find that he needs to learn how to live a third of the way.
 
@@ -2953,9 +2953,9 @@ Wikipedia: [Love, Honor and Behave](https://en.wikipedia.org/wiki/Love%2C%20Hono
 
 ## Love, Honor and Obey
 
-_Love, Honor and Obey_ is a drama movie directed by Leander de Cordova. It stars Wilda Bennett and Claire Whitney.
+*Love, Honor and Obey* is a drama directed by Leander de Cordova. It stars Wilda Bennett and Claire Whitney.
 
-**Synopsis**: Two sisters, Elizabeth and Nancy, grow up without, spending their time in boarding schools, in institutions or in the homes of relatives. They meet when Elizabeth has come to spend the summer vacation in the home of their Aunt Ruth, in Iron River, Michigan.
+**Synopsis**: Two sisters, Elizabeth and Nancy, grow up without, spending their time in boarding schools, in institutions or in the homes of relatives. They meet when Elizabeth has come to spend the summer vacation in the home of their Aunt Ruth, in Iron River, Michigan. 
 
 Their aunt is indifferent to Nancy when she tells her she wants to choose her own husband, but Elizabeth defends her. Elizabeth, who is in love with Ruth's son, suddenly learns he loves Nancy.
 
@@ -2963,7 +2963,7 @@ Wikipedia: [Love, Honor and Obey](https://en.wikipedia.org/wiki/Love%2C%20Honor%
 
 ## Love Madness
 
-_Love Madness_ is a crime movie directed by Joseph Henabery. It stars Louise Glaum, Matt Moore, and Noah Beery.
+*Love Madness* is a crime directed by Joseph Henabery. It stars Louise Glaum, Matt Moore, and Noah Beery.
 
 **Synopsis**: Love Madness is a movie about the life of a showgirl.
 
@@ -2971,9 +2971,9 @@ Wikipedia: [Love Madness](https://en.wikipedia.org/wiki/Love%20Madness%20%281920
 
 ## The Luck of Geraldine Laird
 
-_The Luck of Geraldine Laird_ is a drama movie directed by Edward Sloman. It stars Bessie Barriscale and Niles Welch.
+*The Luck of Geraldine Laird* is a drama directed by Edward Sloman. It stars Bessie Barriscale and Niles Welch.
 
-**Synopsis**: Grandmother Rachel Laird leaves her Chicago family's house to her granddaughter Geraldine. Geraldine's luck changes for the worse when she give money to a homeless man begging on the streets, only to be scammed. A recovering alcoholic of 3 years, she starts drinking again to alleviate the hurt of her life. Her prayer is answered when she receives $20,000, but she can't quench the financial stress of her transition.
+**Synopsis**: Grandmother Rachel Laird leaves her Chicago family's house to her granddaughter Geraldine. Geraldine's luck changes for the worse when she give money to a homeless man begging on the streets, only to be scammed. A recovering alcoholic of 3 years, she starts drinking again to alleviate the hurt of her life. Her prayer is answered when she receives $20,000, but she can't quench the financial stress of her transition. 
 
 One day, the homeless man walks back into her life and asks for her phone number. Geraldine then invites him to spend Christmas with her family. Together, they start a foundation with the $20,000.
 
@@ -2981,15 +2981,15 @@ Wikipedia: [The Luck of Geraldine Laird](https://en.wikipedia.org/wiki/The%20Luc
 
 ## The Luck of the Irish
 
-_The Luck of the Irish_ is a drama movie directed by Allan Dwan. It stars James Kirkwood, Anna Q. Nilsson, and Harry Northrup.
+*The Luck of the Irish* is a drama directed by Allan Dwan. It stars James Kirkwood, Anna Q. Nilsson, and Harry Northrup.
 
-**Synopsis**: The Luck of the Irish, a 1920 drama film, is about a young woman finding her sister and who has to choose between her fiancé and her sister. It is set in Ireland.
+**Synopsis**: The Luck of the Irish, a 1920 drama film, is about a young woman finding her sister and who has to choose between her fiancé and her sister.  It is set in Ireland.
 
 Wikipedia: [The Luck of the Irish](https://en.wikipedia.org/wiki/The%20Luck%20of%20the%20Irish%20%281920%20film%29)
 
 ## Madame Peacock
 
-_Madame Peacock_ is a drama movie directed by Ray C. Smallwood. It stars Alla Nazimova and John Steppling.
+*Madame Peacock* is a drama directed by Ray C. Smallwood. It stars Alla Nazimova and John Steppling.
 
 **Synopsis**: Known to his family as Ivan, Madame's son, Mr. Ivan is a bored housewife for all intents and purposes. One day he gets invited to a GES meeting by one of his eccentric neighbors - Hulda Westing-Aerogram. He decides to go to one meeting to see what is so interesting. Ivan becomes swept up in the gullibility of the GES stay-at-home work-at-home, which consists of doing nothing but listening to tapes in the comforts of their own homes. Later in the movie, Lydia Spattisquallo recommends he goes to a meeting in order to have social contact, when all of his old friends are too busy with their own lives to hang around. After he attends the meeting he becomes the group's leader. One day, when Lydia Spattisquallo comes home late, Madame pays them a visit, but Ivan is already in bed. Mrs. Spattisquallo tells Madame that Lydia is pregnant by Ivan, but Lydia refuses to admit this. Madame becomes hysterical, throws the cat down the hall, threatens to throw herself down the stairs, and in the end, runs out in search for her son. Ivan becomes the voice in the final testimonial, in which he describes in his father's voice that Madame is too dumb for her own good.
 
@@ -2999,7 +2999,7 @@ Wikipedia: [Madame Peacock](https://en.wikipedia.org/wiki/Madame%20Peacock)
 
 ## Madame X
 
-_Madame X_ is a drama movie directed by Frank Lloyd. It stars Pauline Frederick.
+*Madame X* is a drama directed by Frank Lloyd. It stars Pauline Frederick.
 
 **Synopsis**: Madame X is a 1914 silent film released during the era of "realism" in cinematography. The story is about a woman, Madame X, who is secretly pregnant with the child of the man she desires, but knows he will despise her once he discovers she is no longer respectable. She sends her clothes to the laundry, sets up a false suicide note, and meets the man who loves her while she struggles with an internal struggle to control her pregnancy, which the audience expects to end in death by necessitating an abortion.
 
@@ -3007,7 +3007,7 @@ Wikipedia: [Madame X](https://en.wikipedia.org/wiki/Madame%20X%20%281920%20film%
 
 ## Madonnas and Men
 
-_Madonnas and Men_ is a drama movie directed by B. A. Rolfe. It stars Anders Randolf, Edmund Lowe, and Gustav von Seyffertitz.
+*Madonnas and Men* is a drama directed by B. A. Rolfe. It stars Anders Randolf, Edmund Lowe, and Gustav von Seyffertitz.
 
 **Synopsis**: Men are are passionate, romantic, poetic, with large appetites, yet morally-oriented. Busty, sexy, back-crimping, blonde, beautiful vixens are usually less upstanding, with an emphasis their sensuality. “Madonnas” are mostly family oriented.
 
@@ -3015,7 +3015,7 @@ Wikipedia: [Madonnas and Men](https://en.wikipedia.org/wiki/Madonnas%20and%20Men
 
 ## Man and His Woman
 
-_Man and His Woman_ is a drama movie directed by J. Stuart Blackton. It stars Herbert Rawlinson, Eulalie Jensen, and May McAvoy.
+*Man and His Woman* is a drama directed by J. Stuart Blackton. It stars Herbert Rawlinson, Eulalie Jensen, and May McAvoy.
 
 **Synopsis**: A show of people attending one of Linda's modeling jobs which is being held in the auditorium of a college
 
@@ -3029,7 +3029,7 @@ Wikipedia: [Man and His Woman](https://en.wikipedia.org/wiki/Man%20and%20His%20W
 
 ## A Man from Nowhere
 
-_A Man from Nowhere_ is a western movie directed by Francis Ford. It stars Jack Hoxie and Frederick Moore.
+*A Man from Nowhere* is a western directed by Francis Ford. It stars Jack Hoxie and Frederick Moore.
 
 **Synopsis**: Daniel Cassidy is an Irish American involved in a bank robbery. Escaping with hundreds of thousands of dollars he is pursued by the gang, who are pursued by the law. Daniel's brother is murdered returning what money he had. Eventually reaching the frontier he is mistaken for a wanted man. Pursued by Colonel Braden, who sends Ben Trace to kill Daniel. They both fall in love with Daniel's stepdaughter, Anna Thayer and they run off together to start a new life.
 
@@ -3049,7 +3049,7 @@ Wikipedia: [A Man from Nowhere](https://en.wikipedia.org/wiki/A%20Man%20from%20N
 
 ## The Man Who Dared
 
-_The Man Who Dared_ is a drama movie directed by Emmett J. Flynn. It stars William Russell and Eileen Percy.
+*The Man Who Dared* is a drama directed by Emmett J. Flynn. It stars William Russell and Eileen Percy.
 
 **Synopsis**: The Man Who Dared is a drama movie set in France in 1914. It is about a businessman and war resister who is interrogated and imprisoned and then permitted to escape and speak in public in Canada in 1916 about his experience.
 
@@ -3057,7 +3057,7 @@ Wikipedia: [The Man Who Dared](https://en.wikipedia.org/wiki/The%20Man%20Who%20D
 
 ## The Man Who Had Everything
 
-_The Man Who Had Everything_ is a drama movie directed by Alfred E. Green. It stars Jack Pickford and Lionel Belmore.
+*The Man Who Had Everything* is a drama directed by Alfred E. Green. It stars Jack Pickford and Lionel Belmore.
 
 **Synopsis**: Chris Macdan fulfills his lifelong dream to work in his parents' New York newspaper business. His success is noticed by high society patrons including Mrs. Livingston Pierce, who woos Chris to become her unofficial escort at exclusive social gatherings. However, when an advertisement for the paper suggests the Macdan might not be the only heir to his parents' business, Mrs. Pierce uncovers shady dealings which put her life in danger.
 
@@ -3065,7 +3065,7 @@ Wikipedia: [The Man Who Had Everything](https://en.wikipedia.org/wiki/The%20Man%
 
 ## The Man Who Lost Himself
 
-_The Man Who Lost Himself_ is a comedy drama movie directed by Clarence G. Badger. It stars William Faversham and Hedda Hopper.
+*The Man Who Lost Himself* is a comedy drama directed by Clarence G. Badger. It stars William Faversham and Hedda Hopper.
 
 **Synopsis**: The film is based on the novel of the same name by Ralph Forbes.
 
@@ -3079,7 +3079,7 @@ Wikipedia: [The Man Who Lost Himself](https://en.wikipedia.org/wiki/The%20Man%20
 
 ## A Manhattan Knight
 
-_A Manhattan Knight_ is a mystery movie directed by George Beranger. It stars George Walsh and Warren Cook.
+*A Manhattan Knight* is a mystery directed by George Beranger. It stars George Walsh and Warren Cook.
 
 **Synopsis**: Lt. Victor Dupree (George Walsh) has resigned from the NYPD. His record has been impeccable to the point that the department is grieving his retirement. For days, the entire police force becomes restless with what he might be up to next. They eventually learn he is becoming a Private Investigator. The department requests he establish the help them lynch a serial killer (Warren Cook) responsible for ten killings. They receive a tip that the killer might be working at an ad agency. Dupree becomes suspicious of his fellow officers, but the truth is closer than he thinks.
 
@@ -3087,7 +3087,7 @@ Wikipedia: [A Manhattan Knight](https://en.wikipedia.org/wiki/A%20Manhattan%20Kn
 
 ## Man's Plaything
 
-_Man's Plaything_ is a drama movie directed by Charles Horan. It stars Montagu Love, Grace Davison, and Stuart Holmes.
+*Man's Plaything* is a drama directed by Charles Horan. It stars Montagu Love, Grace Davison, and Stuart Holmes.
 
 **Synopsis**: Man's Plaything is a movie about a "whistling" entertainer, Bob Carlyle, who entertains English and Canadian troops during the First World War. When his wife and daughter in Canada die of Spanish Flu in 1918, he is left with nothing and goes off to fight with the Canadian Mounted Rifles in Africa. He later meets a married woman, Polly, on leave from the fighting, and they have an affair. Later he goes home to Canada to get his daughter. There, he meets Polly again and they get together again. In the end, Polly has a mental breakdown and he probably goes back to fighting in North Africa.
 
@@ -3095,14 +3095,14 @@ Wikipedia: [Man's Plaything](https://en.wikipedia.org/wiki/Man%27s%20Plaything)
 
 ## The Mark of Zorro
 
-_The Mark of Zorro_ is a swashbuckler movie directed by Fred Niblo. It stars Douglas Fairbanks and Marguerite De La Motte.
+*The Mark of Zorro* is a swashbuckler directed by Fred Niblo. It stars Douglas Fairbanks and Marguerite De La Motte.
 
 **Synopsis**: Robert Alden is searching for his daughter, Angela, who has been kidnapped. He heads to the Valley of the Golden Bear to rescue her, with the help of Jaunito, his faithful servant. Angela is saved, but hears the voice of the kidnapper, who was masked at the time of his capture. Alden is determined to find the man and takes her to the Valley of the Fruit Cake to find him. Angela tries to fight the kidnapper alone, finding him chasing round a girl with a whip. The kidnapper challenges her "as his protector" for the girl, and she accepts. The kidnapper fights Alden, who is able to defeat the kidnapper, only to find out that she was protecting her sister.
 
-Alden is now pursuaded that the kidnapper is Zorro, not knowing that he is Diego, Diego's father, Alejandro. Jane tries to warn her father but they are startled by Jaunito.
+Alden is now pursuaded that the kidnapper is Zorro, not knowing that he is Diego, Diego's father, Alejandro. Jane tries to warn her father but they are startled by Jaunito. 
 
-Oliver is determined to find out who was behind the kidnappings, and Jane goes to find Alejandro. Alden finally fights the kidnapper
-in the mountain, but thanks to Alejandro, Alden is able to defeat the kidnapper, who was Alden's old mentore.
+Oliver is determined to find out who was behind the kidnappings, and Jane goes to find Alejandro. Alden finally fights the kidnapper 
+in the mountain, but thanks to Alejandro, Alden is able to defeat the kidnapper, who was Alden's old mentore. 
 
 Alden is disappointed to find out that Zorro is actually Diego, but decides to let the two marry.
 
@@ -3110,7 +3110,7 @@ Wikipedia: [The Mark of Zorro](https://en.wikipedia.org/wiki/The%20Mark%20of%20Z
 
 ## Marooned Hearts
 
-_Marooned Hearts_ is a drama movie directed by George Archainbaud. It stars Conway Tearle and Zena Keefe.
+*Marooned Hearts* is a drama directed by George Archainbaud. It stars Conway Tearle and Zena Keefe.
 
 **Synopsis**: Gordon and Teddy meet and get engaged. They soon go bankrupt and get divorced.
 
@@ -3122,7 +3122,7 @@ Wikipedia: [Marooned Hearts](https://en.wikipedia.org/wiki/Marooned%20Hearts)
 
 ## The Marriage Pit
 
-_The Marriage Pit_ is a drama movie directed by Frederick A. Thomson. It stars Frank Mayo and Lillian Tucker.
+*The Marriage Pit* is a drama directed by Frederick A. Thomson. It stars Frank Mayo and Lillian Tucker.
 
 **Synopsis**: A group of actors prepare to perform a play on marriage. With a jury of a couple of children, Monty and Gladys Bliss, as a jury, they put divorce divorce forgiveness on trial.
 
@@ -3134,7 +3134,7 @@ Wikipedia: [The Marriage Pit](https://en.wikipedia.org/wiki/The%20Marriage%20Pit
 
 ## Married Life
 
-_Married Life_ is a comedy movie directed by Erle C. Kenton. It stars Ben Turpin, Phyllis Haver, and James Finlayson.
+*Married Life* is a comedy directed by Erle C. Kenton. It stars Ben Turpin, Phyllis Haver, and James Finlayson.
 
 **Synopsis**: Married Life tells the story of George and Margaret, a couple who do not know how to stimulate their marital life and spice up their sleepy town. The movie opens with a film showing how important it is for married couples to remain happily married and not neglect their marriage. However, the couple finds that they cannot do this and they must ultimately separate to salvage their individual lives and careers, and to raise their daughter as well as to avoid smoking smoking out their daughter by working out their disagreements at home.
 
@@ -3142,7 +3142,7 @@ Wikipedia: [Married Life](https://en.wikipedia.org/wiki/Married%20Life%20%281920
 
 ## Mary Ellen Comes to Town
 
-_Mary Ellen Comes to Town_ is a comedy movie directed by Elmer Clifton. It stars Dorothy Gish, Kate Bruce, and Ralph Graves.
+*Mary Ellen Comes to Town* is a comedy directed by Elmer Clifton. It stars Dorothy Gish, Kate Bruce, and Ralph Graves.
 
 **Synopsis**: "Mary Ellen Comes to Town" is a comedy movie directed by Elmer Clifton. It stars Dorothy Gish, Kate Bruce, Ralph Graves, Dorothy Carleton, Murray Hicks, Paul Marion, Louise Clendinning, Edgar Puryear, and Clara Wells.
 
@@ -3154,7 +3154,7 @@ Wikipedia: [Mary Ellen Comes to Town](https://en.wikipedia.org/wiki/Mary%20Ellen
 
 ## Mary's Ankle
 
-_Mary's Ankle_ is a comedy movie directed by Lloyd Ingraham. It stars Douglas MacLean and Doris May.
+*Mary's Ankle* is a comedy directed by Lloyd Ingraham. It stars Douglas MacLean and Doris May.
 
 **Synopsis**: Two criminals are running errands for their boss, Al, which includes breaking into Mary's home to retrieve an antique necklace.
 
@@ -3164,7 +3164,7 @@ Wikipedia: [Mary's Ankle](https://en.wikipedia.org/wiki/Mary%27s%20Ankle)
 
 ## The Master Mind
 
-_The Master Mind_ is a crime movie directed by Kenneth Webb. It stars Lionel Barrymore and Bradley Barker.
+*The Master Mind* is a crime directed by Kenneth Webb. It stars Lionel Barrymore and Bradley Barker.
 
 **Synopsis**: The Master Mind, released in 1928, is about professor Anthony Marsden who has invented a formula called "Super Plexus Plus" for physical recuperation. Marsden is later murdered by his co-worker George Kent, who works to invent an antidote for Marsden's formula to take over the world. There are rumors that Marsden's ghost has appeared to take up the duty.
 
@@ -3174,7 +3174,7 @@ Wikipedia: [The Master Mind](https://en.wikipedia.org/wiki/The%20Master%20Mind%2
 
 ## A Master Stroke
 
-_A Master Stroke_ is a comedy movie directed by Chester Bennett. It stars Earle Williams and Vola Vale.
+*A Master Stroke* is a comedy directed by Chester Bennett. It stars Earle Williams and Vola Vale.
 
 **Synopsis**: This film is a comedy about a treasure hunt. It's about a professor who falls for a woman of a lower class of society and who loves King Midas.
 
@@ -3182,7 +3182,7 @@ Wikipedia: [A Master Stroke](https://en.wikipedia.org/wiki/A%20Master%20Stroke)
 
 ## Merely Mary Ann
 
-_Merely Mary Ann_ is a comedy movie directed by Edward LeSaint. It stars Shirley Mason and Casson Ferguson.
+*Merely Mary Ann* is a comedy directed by Edward LeSaint. It stars Shirley Mason and Casson Ferguson.
 
 **Synopsis**: Merely Mary Ann is about a private investigator private investigator that is tasked through a wealthy widow with checking up on the eccentric daughters she has been forced to raise since their father's death. The two daughters hide a dramatic past from their mother and it soon becomes evident that the conspiracy the sisters have been hiding involves something much deeper and diabolical. The mother soon contacts a detective a few days later after fearing for the life of her husband and one of the sisters.
 
@@ -3192,7 +3192,7 @@ Wikipedia: [Merely Mary Ann](https://en.wikipedia.org/wiki/Merely%20Mary%20Ann%2
 
 ## Mid-Channel
 
-_Mid-Channel_ is a drama movie directed by Harry Garson. It stars Clara Kimball Young and J. Frank Glendon.
+*Mid-Channel* is a drama directed by Harry Garson. It stars Clara Kimball Young and J. Frank Glendon.
 
 **Synopsis**: "Mid-Channel" is a mostly Agatha Christie type mystery in which Jean is the guest in a Maine summer cottage and she and the others in the group is aware of a murderer in the group and they play a game to see who is the suspect and who is the victim. Suspicion and paranoia starts to set in and all accusations and motives quickly surface in this fantastic thriller.
 
@@ -3202,9 +3202,9 @@ Wikipedia: [Mid-Channel](https://en.wikipedia.org/wiki/Mid-Channel)
 
 ## The Midlanders
 
-_The Midlanders_ is a drama movie directed by Joseph De Grasse and Ida May Park. It stars Bessie Love and Sydney Deane.
+*The Midlanders* is a drama directed by Joseph De Grasse and Ida May Park. It stars Bessie Love and Sydney Deane.
 
-**Synopsis**: This is the story about the vibrant Kempner family, who lived in Stafford Springs, CT, during the 1850s. Adelaid Kempner (Bessie Love) has no way of knowing how to live without her husband Jacob (Arthur Rankin), who seemed to be the only one with the talent to take care of them all. Her vibrant daughters-in-law, Zelda (Minnie Sheppard), Amy (Lily Hammond), Augusta (Ruth Henson), and Celia (Anna Doyle), help to try and support the family. The only one that do not help is Olga (Judith Allan), who is devasted with the divorce of her husband. But with the help of Celia, they find out how tough it is to live with. Great Grandmother Gertie (Sorrell Brooke) is too old to care for anything, so it's up to the four who are women. Ruth (Elinor McCoy), Steena (Marie Picard), Florence (Maud May Ross), and Elizabeth (Suzanne Handfield) help to do the chores that Grandmother cannot do. Augusta's spoiled daughter Jean (Jeanie McCarren) would rather worry about her teacher than worry about money to purchase a school book. Sometimes, the family has a hard time finding a tenant to keep up with the help, forcing them to work together for a living.
+**Synopsis**: This is the story about the vibrant Kempner family, who lived in Stafford Springs, CT, during the 1850s. Adelaid Kempner (Bessie Love) has no way of knowing how to live without her husband Jacob (Arthur Rankin), who seemed to be the only one with the talent to take care of them all. Her vibrant daughters-in-law, Zelda (Minnie Sheppard), Amy (Lily Hammond), Augusta (Ruth Henson), and Celia (Anna Doyle), help to try and support the family. The only one that do not help is Olga (Judith Allan), who is devasted with the divorce of her husband. But with the help of Celia, they find out how tough it is to live with. Great Grandmother Gertie (Sorrell Brooke) is too old to care for anything, so it's up to the four who are women. Ruth (Elinor McCoy), Steena (Marie Picard), Florence (Maud May Ross), and Elizabeth (Suzanne Handfield) help to do the chores that Grandmother cannot do. Augusta's spoiled daughter Jean (Jeanie McCarren) would rather worry about her teacher than worry about money to purchase a school book. Sometimes, the family has a hard time finding a tenant to keep up with the help, forcing them to work together for a living. 
 
 It was the time during the fabulous American Civil War, and their southern neighbors want nothing to do with them. It may have been a time of confusion and turmoil, but the Kempner daughters-in-law know the only way they can get through this is to stay together. In the winter, Austra proposes
 
@@ -3212,7 +3212,7 @@ Wikipedia: [The Midlanders](https://en.wikipedia.org/wiki/The%20Midlanders)
 
 ## The Midnight Bride
 
-_The Midnight Bride_ is a comedy movie directed by William J. Humphrey. It stars Gladys Leslie and Virginia Valli.
+*The Midnight Bride* is a comedy directed by William J. Humphrey. It stars Gladys Leslie and Virginia Valli.
 
 **Synopsis**: The Midnight Bride is a well known but probably untrue story which took place in 1860 in the U.S. state of Kentucky. A girl is supposedly murdered on her wedding night because her future husband disapproved of her to the point of rage.
 
@@ -3232,7 +3232,7 @@ Wikipedia: [The Midnight Bride](https://en.wikipedia.org/wiki/The%20Midnight%20B
 
 ## Milestones
 
-_Milestones_ is a drama movie directed by Paul Scardon. It stars Lewis Stone and Alice Hollister.
+*Milestones* is a drama directed by Paul Scardon. It stars Lewis Stone and Alice Hollister.
 
 **Synopsis**: The parents of a handicapped boy come up with the idea of sending the boy away for "rehabilitation" because they believe the boy is tainted because he was born out of wedlock.
 
@@ -3242,7 +3242,7 @@ Wikipedia: [Milestones](https://en.wikipedia.org/wiki/Milestones%20%281920%20fil
 
 ## The Miracle of Money
 
-_The Miracle of Money_ is a drama movie directed by Hobart Henley. It stars Margaret Seddon and Bess Gearhart Morrison.
+*The Miracle of Money* is a drama directed by Hobart Henley. It stars Margaret Seddon and Bess Gearhart Morrison.
 
 **Synopsis**: Two married sisters want to communicate more with their children when they find out that one of them is getting married. They come together and instead of giving their daughter an elaborate and expensive wedding, to show her the care and love she endures in their relationship and in their family, they give her a well created and heartwarming ceremony.
 
@@ -3250,7 +3250,7 @@ Wikipedia: [The Miracle of Money](https://en.wikipedia.org/wiki/The%20Miracle%20
 
 ## The Misfit Wife
 
-_The Misfit Wife_ is a drama movie directed by Edmund Mortimer. It stars Alice Lake and Forrest Stanley.
+*The Misfit Wife* is a drama directed by Edmund Mortimer. It stars Alice Lake and Forrest Stanley.
 
 **Synopsis**: The Misfit Wife stars Alice Lake as Alice, a woman who became a wife and mother and then reached a point where she was unhappy and felt like she wasn't fulfilling her potential-which is where The Misfit Wife started. Alice begins to rethink her wedded and maternal ways and looks for a solution all while feeling stretched too thin and dealing with daily responsibilities.
 
@@ -3258,7 +3258,7 @@ Wikipedia: [The Misfit Wife](https://en.wikipedia.org/wiki/The%20Misfit%20Wife)
 
 ## The Misleading Lady
 
-_The Misleading Lady_ is a comedy movie directed by George Irving. It stars Bert Lytell and Lucy Cotton.
+*The Misleading Lady* is a comedy directed by George Irving. It stars Bert Lytell and Lucy Cotton.
 
 **Synopsis**: The Misleading Lady is a silent comedy and the story is about a womanizer named Bruce Duncan who has a businesswoman named Jane Huxford spying on him, spying of course to put him in jail.
 
@@ -3266,7 +3266,7 @@ Wikipedia: [The Misleading Lady](https://en.wikipedia.org/wiki/The%20Misleading%
 
 ## Miss Hobbs
 
-_Miss Hobbs_ is a comedy movie directed by Donald Crisp. It stars Wanda Hawley, Harrison Ford, and Helen Jerome Eddy.
+*Miss Hobbs* is a comedy directed by Donald Crisp. It stars Wanda Hawley, Harrison Ford, and Helen Jerome Eddy.
 
 **Synopsis**: In the film, Edith, an outsider of social circles in England, falls in love with Lord Rankin, an idle playboy. As Tierquill's advances to wed the girl before she becomes of age, Tierquill's overseer Hobbs threatens to reveal the truth of his relationship Tierquill. Hobbs' wife blackmails Tierquill to let her engage him in an affair for $4,000. However, Eddie uncovers the affair and tells him to get over his infatuation with Hobbs or she will reveal his dirty deed.
 
@@ -3276,7 +3276,7 @@ Wikipedia: [Miss Hobbs](https://en.wikipedia.org/wiki/Miss%20Hobbs)
 
 ## A Modern Salome
 
-_A Modern Salome_ is a drama movie directed by Leonce Perret. It stars Hope Hampton and Percy Standing.
+*A Modern Salome* is a drama directed by Leonce Perret. It stars Hope Hampton and Percy Standing.
 
 **Synopsis**: A Modern Salome is about two female ballet dancers, Julie and Nadia, who are competing to win the lead female role of Salome in the opera "Salome" by Richard Strauss. As the competition intensifies, they fall prey to career jealousy, exposing dark secrets.
 
@@ -3286,7 +3286,7 @@ Wikipedia: [A Modern Salome](https://en.wikipedia.org/wiki/A%20Modern%20Salome)
 
 ## Molly and I
 
-_Molly and I_ is a drama movie directed by Howard M. Mitchell. It stars Shirley Mason and Alan Roscoe.
+*Molly and I* is a drama directed by Howard M. Mitchell. It stars Shirley Mason and Alan Roscoe.
 
 **Synopsis**: The movie tells the story of a husband and wife who make a pact to commit suicide together. Molly, the wife, is very much in love with her husband and has reflected on their pact long and hard.
 
@@ -3294,7 +3294,7 @@ Wikipedia: [Molly and I](https://en.wikipedia.org/wiki/Molly%20and%20I)
 
 ## The Mollycoddle
 
-_The Mollycoddle_ is an adventure movie directed by Victor Fleming. It stars Douglas Fairbanks, Wallace Beery, and Ruth Renick.
+*The Mollycoddle* is an adventure film directed by Victor Fleming. It stars Douglas Fairbanks, Wallace Beery, and Ruth Renick.
 
 **Synopsis**: Mollycoddle is a dramatic comedy with a happy ending. Mollycoddle is a young man who is living with his Aunt. His father, from whom he was taken as a child, wants him to come and visit, but Mollycoddle thinks he is too good for his dad and the work of the family business. He is framed for stealing, and must defend himself and prove his innocence.
 
@@ -3302,7 +3302,7 @@ Wikipedia: [The Mollycoddle](https://en.wikipedia.org/wiki/The%20Mollycoddle)
 
 ## The Money Changers
 
-_The Money Changers_ is a drama movie directed by Jack Conway. It stars Robert McKim and Claire Adams.
+*The Money Changers* is a drama directed by Jack Conway. It stars Robert McKim and Claire Adams.
 
 **Synopsis**: This movie tells the story of a baseball team owner, Ronald Stewart, who is in debt with his sponsors and players. The only way out is through his genius.
 
@@ -3310,7 +3310,7 @@ Wikipedia: [The Money Changers](https://en.wikipedia.org/wiki/The%20Money%20Chan
 
 ## Moon Madness
 
-_Moon Madness_ is a drama movie directed by Colin Campbell. It stars Edith Storey, Sam De Grasse, and Josef Swickard.
+*Moon Madness* is a drama directed by Colin Campbell. It stars Edith Storey, Sam De Grasse, and Josef Swickard.
 
 **Synopsis**: Landon Cole (Edith Storey) joins her mentor Lois (Joan Copeland) at the juvenile-detention center somewhere outside Minneapolis, Minnesota, where Landon spent her adolescent years. The enigmatic raincoats-clad Lois is Landon's spiritual guide, providing solace and understanding while shuttling Landon back to happier, more innocent days before she became an outsider.
 
@@ -3320,7 +3320,7 @@ Wikipedia: [Moon Madness](https://en.wikipedia.org/wiki/Moon%20Madness%20%281920
 
 ## The Mother of His Children
 
-_The Mother of His Children_ is a drama movie directed by Edward LeSaint. It stars Gladys Brockwell and William Scott.
+*The Mother of His Children* is a drama directed by Edward LeSaint. It stars Gladys Brockwell and William Scott.
 
 **Synopsis**: After the death of their spouses, four women are left with broken families, disappointed loved ones, and quick selfish New York City men eager to take advantage of them. The women are all mothers, the mothers of these men's children. Wedged between their lofty media careers, high stakes parents' meetings, and the daily demands of the mothers of their children, the four try to maintain sanity, dignity, and hold on to hope for themselves and their loved ones.
 
@@ -3328,7 +3328,7 @@ Wikipedia: [The Mother of His Children](https://en.wikipedia.org/wiki/The%20Moth
 
 ## Mrs. Temple's Telegram
 
-_Mrs. Temple's Telegram_ is a comedy movie directed by James Cruze. It stars Bryant Washburn, Wanda Hawley, and Carmen Phillips.
+*Mrs. Temple's Telegram* is a comedy directed by James Cruze. It stars Bryant Washburn, Wanda Hawley, and Carmen Phillips.
 
 **Synopsis**: A case of mistaken identity leads to complete miscommunication in this comedy.
 
@@ -3336,7 +3336,7 @@ Mrs. Constance Temple is an widow living in New York City who has inherited a fo
 
 Mrs. Temple is pursued by a criminal and her carriage is kidnapped and robbed, apparently by the criminal. Mrs. Temple's granddaughter sends a telegram to the New York Police Department under the name "Lady Temple" and provides a description of the criminal and the carriage. The telegram appears to be lost.
 
-The crux of the story in "Mrs. Temple's Telegram" revolves around an unnamed detective (Wanda Hawley) at the New York Police Department who expects Mrs. Temple's telegram and does not receive it. Tracking down the telegram, the department discovers that Mrs. Temple's granddaughter had sent the message. Mrs. Temple had mistaken a stranger for her granddaughter and told him the details of the kidnapping.
+The crux of the story in "Mrs. Temple's Telegram" revolves around an unnamed detective (Wanda Hawley) at the New York Police Department who expects Mrs. Temple's telegram and does not receive it. Tracking down the telegram, the department discovers that Mrs. Temple's granddaughter had sent the message. Mrs. Temple had mistaken a stranger for her granddaughter and told him the details of the kidnapping. 
 The mistaken identity between Mrs. Temple and her grandson leads to miscommunication and culminates in a disastrous misunderstanding.
 
 In the end of the movie, the detective wakes up from a dream and tells a fellow officer of a plan to "watch the ambo chauffeur of a Mrs. Temple for a while". The implication being that there is a sequel to this film of a plan being made to rescue the poor woman.
@@ -3347,7 +3347,7 @@ Wikipedia: [Mrs. Temple's Telegram](https://en.wikipedia.org/wiki/Mrs.%20Temple%
 
 ## The Mutiny of the Elsinore
 
-_The Mutiny of the Elsinore_ is an action movie directed by Edward Sloman. It stars Mitchell Lewis and Helen Ferguson.
+*The Mutiny of the Elsinore* is an action directed by Edward Sloman. It stars Mitchell Lewis and Helen Ferguson.
 
 **Synopsis**: When Mike Upton comes across a building that has just been robbed, he enlists George Sims to track down the thieves. It turns out the thieves are members of Upton's old criminal gang, led by his old partner Frank, who was abandoned by Upton.
 
@@ -3355,7 +3355,7 @@ Wikipedia: [The Mutiny of the Elsinore](https://en.wikipedia.org/wiki/The%20Muti
 
 ## My Husband's Other Wife
 
-_My Husband's Other Wife_ is a drama movie directed by J. Stuart Blackton. It stars Sylvia Breamer and May McAvoy.
+*My Husband's Other Wife* is a drama directed by J. Stuart Blackton. It stars Sylvia Breamer and May McAvoy.
 
 **Synopsis**: The Selch family members fight among themselves to keep a big inheritance.
 
@@ -3363,7 +3363,7 @@ Wikipedia: [My Husband's Other Wife](https://en.wikipedia.org/wiki/My%20Husband%
 
 ## My Lady's Garter
 
-_My Lady's Garter_ is a mystery movie directed by Maurice Tourneur. It stars Wyndham Standing and Sylvia Breamer.
+*My Lady's Garter* is a mystery directed by Maurice Tourneur. It stars Wyndham Standing and Sylvia Breamer.
 
 **Synopsis**: Arthur Russell is a struggling stockbroker traveling to Cairo on business with his colleagues. After an accident on the Nile, he ends up in jail with a dance hall girl, Elisa. They have an evening of lovemaking with plenty of drinking before Arthur has to leave the country. The British consul grills Elisa, even though she resisted his advances, but eventually she claims they are married and he coughs up the ransom money for his release. Before Arthur leaves, he stops at his father's tower and finds Elisa's picture there.
 
@@ -3373,7 +3373,7 @@ Wikipedia: [My Lady's Garter](https://en.wikipedia.org/wiki/My%20Lady%27s%20Gart
 
 ## Neighbors
 
-_Neighbors_ is a comedy movie directed by Edward F. Cline and Buster Keaton. It stars Buster Keaton and Virginia Fox.
+*Neighbors* is a comedy directed by Edward F. Cline and Buster Keaton. It stars Buster Keaton and Virginia Fox.
 
 **Synopsis**: Two kids live next to a stone monastery and the walls and windows on the side of the monastery amaze them and getting to explore them drive of the movie.
 
@@ -3381,11 +3381,11 @@ Wikipedia: [Neighbors](https://en.wikipedia.org/wiki/Neighbors%20%281920%20film%
 
 ## The New York Idea
 
-_The New York Idea_ is a comedy movie directed by Herbert Blache. It stars Alice Brady, Lowell Sherman, and Hedda Hopper.
+*The New York Idea* is a comedy directed by Herbert Blache. It stars Alice Brady, Lowell Sherman, and Hedda Hopper.
 
 **Synopsis**: The New York Idea is a comedy movie directed by Herbert Blache. It stars Alice Brady, Lowell Sherman, and Hedda Hopper. The movie is about a gruff and self-centered playwright and director and his wife, a witty and elegant woman who is in the cast of the play in which the husband is directing.
 
-The husband's imperious disposition and the ambiguity between the characters, along with their external adventures and domestic squabbles, form the basis of this story. Their play is to be the world premiere of "Siamese Slippers" and their lives are about to be turned upside-down.
+The husband's imperious disposition and the ambiguity between the characters, along with their external adventures and domestic squabbles, form the basis of this story. Their play is to be the world premiere of "Siamese Slippers" and their lives are about to be turned upside-down. 
 
 The husband's play is hindered by the constant loop of the entire question of the black daughter of one of the cast members, and the daughter is not chosen to be in the play and be part of this premiere. The effects of the daughter and her performance is a driving force in driving the husband to madness and they eventually strike up a sort of partnership with one another to complete the performance of the play.
 
@@ -3397,7 +3397,7 @@ Wikipedia: [The New York Idea](https://en.wikipedia.org/wiki/The%20New%20York%20
 
 ## Nineteen and Phyllis
 
-_Nineteen and Phyllis_ is a comedy movie directed by Joseph De Grasse. It stars Charles Ray and Clara Horton.
+*Nineteen and Phyllis* is a comedy directed by Joseph De Grasse. It stars Charles Ray and Clara Horton.
 
 **Synopsis**: The movie focuses on nineteen year old Lawrence who is a young CEO. His empathy doesn’t match his ambition. While on a date, he befriends a waitress that he is infatuated with. He starts to date this waitress and life blossoms. But soon enough, the young man is back to his original self. He is busy and everything starts to die.
 
@@ -3409,7 +3409,7 @@ Wikipedia: [Nineteen and Phyllis](https://en.wikipedia.org/wiki/Nineteen%20and%2
 
 ## Nomads of the North
 
-_Nomads of the North_ is a crime drama movie directed by David Hartford. It stars Betty Blythe, Lon Chaney, and Lewis Stone.
+*Nomads of the North* is a crime drama directed by David Hartford. It stars Betty Blythe, Lon Chaney, and Lewis Stone.
 
 **Synopsis**: Nomads of the North is about two serial killers, Slade and Simpson, who come to a remote town for timber and become the subjects of the townspeople's ire.
 
@@ -3417,7 +3417,7 @@ Wikipedia: [Nomads of the North](https://en.wikipedia.org/wiki/Nomads%20of%20the
 
 ## The North Wind's Malice
 
-_The North Wind's Malice_ is a drama movie directed by Paul Bern. It stars Tom Santschi and Joe King.
+*The North Wind's Malice* is a drama directed by Paul Bern. It stars Tom Santschi and Joe King.
 
 **Synopsis**: A city girl, longing for a simpler life in the country, runs away to the Kansas prairie, but is soon confronted by the realities of the harsh realm of nature where not even the north wind can offer courtesy.
 
@@ -3425,7 +3425,7 @@ Wikipedia: [The North Wind's Malice](https://en.wikipedia.org/wiki/The%20North%2
 
 ## Nothing But Lies
 
-_Nothing But Lies_ is a comedy movie directed by Lawrence C. Windom. It stars Taylor Holmes and Justine Johnstone.
+*Nothing But Lies* is a comedy directed by Lawrence C. Windom. It stars Taylor Holmes and Justine Johnstone.
 
 **Synopsis**: Pat Benatar is on tour with GiGi Kingbee's All-Girl Band persuading their music to sell, GiGi is trying to hold the band together, but the only thing Pat wants to do is party!
 
@@ -3433,7 +3433,7 @@ Wikipedia: [Nothing But Lies](https://en.wikipedia.org/wiki/Nothing%20But%20Lies
 
 ## Nothing But the Truth
 
-_Nothing But the Truth_ is a comedy movie directed by David Kirkland. It stars Taylor Holmes and Poppy Wyndham.
+*Nothing But the Truth* is a comedy directed by David Kirkland. It stars Taylor Holmes and Poppy Wyndham.
 
 **Synopsis**: Emma returns to her hometown following the tragic death of her sister's young daughter, Mikey. Emma's sister, Melissa, is lost in grief and cannot focus on anything other than her loss. As her family gathers to console each other, Emma must pick up the pieces of her life and tell the truth to her other sister, Kate, about what really happened to their family.
 
@@ -3443,7 +3443,7 @@ Wikipedia: [Nothing But the Truth](https://en.wikipedia.org/wiki/Nothing%20But%2
 
 ## Notorious Miss Lisle
 
-_Notorious Miss Lisle_ is a drama movie directed by James Young. It stars Katherine MacDonald and Nigel Barrie.
+*Notorious Miss Lisle* is a drama directed by James Young. It stars Katherine MacDonald and Nigel Barrie.
 
 **Synopsis**: Anna Lee, donning her titular new stage name-notorious Miss Lisle-gathers around her an acting troupe, all afflicted with what she believes are crippling speech impediments. They are willing to concede whatever she requires of them. This includes her lover Edward Hyrne, who assumes the name of Lady Arabella, while she is Eliza Dacres.
 
@@ -3461,7 +3461,7 @@ Wikipedia: [Notorious Miss Lisle](https://en.wikipedia.org/wiki/Notorious%20Miss
 
 ## The Notorious Mrs. Sands
 
-_The Notorious Mrs. Sands_ is a drama movie directed by Christy Cabanne. It stars Bessie Barriscale and Forrest Stanley.
+*The Notorious Mrs. Sands* is a drama directed by Christy Cabanne. It stars Bessie Barriscale and Forrest Stanley.
 
 **Synopsis**: The story is based on the life of Sadie Jessie Beverly Sands Pomeroy, an African American woman born to an African American mother and a white father. As a girl, she learns to take care of her mother and siblings, though their house lacks any luxuries during the early 1900s. She goes on to graduate from the Hampton Institute with three degrees. She waits until she graduates before marrying Professor Alvin Pomeroy, who is much older than her, with whom she builds a happy life. It is equally courageous and tragic that Sadie is the only woman to be backed up by her husband in her struggle against racism during the Great Depression.
 
@@ -3473,7 +3473,7 @@ Wikipedia: [The Notorious Mrs. Sands](https://en.wikipedia.org/wiki/The%20Notori
 
 ## Number 17
 
-_Number 17_ is an adventure movie directed by George Beranger. It stars George Walsh and Louis Wolheim.
+*Number 17* is an adventure film directed by George Beranger. It stars George Walsh and Louis Wolheim.
 
 **Synopsis**: Number 17 refers to a secret spy society that enlists students by placing a notice in a campus book. Much of the movie features a school football game.
 
@@ -3481,11 +3481,11 @@ Wikipedia: [Number 17](https://en.wikipedia.org/wiki/Number%2017%20%281920%20fil
 
 ## Number 99
 
-_Number 99_ is a drama movie directed by Ernest C. Warde. It stars J. Warren Kerrigan and Fritzi Brunette.
+*Number 99* is a drama directed by Ernest C. Warde. It stars J. Warren Kerrigan and Fritzi Brunette.
 
-**Synopsis**: Seeking revenge for his family's betrayal, Number 99 smokes a crater in the earth, shoots a missile in space, and causes a collision of populations.
+**Synopsis**: Seeking revenge for his family's betrayal, Number 99 smokes a crater in the earth, shoots a missile in space, and causes a collision of populations. 
 
-A summary of number 99
+A summary of number 99 
 
 -war, loneliness, sci fi
 
@@ -3495,7 +3495,7 @@ Wikipedia: [Number 99](https://en.wikipedia.org/wiki/Number%2099%20%28film%29)
 
 ## Nurse Marjorie
 
-_Nurse Marjorie_ is a drama movie directed by William Desmond Taylor. It stars Mary Miles Minter, Clyde Fillmore, and George Periolat.
+*Nurse Marjorie* is a drama directed by William Desmond Taylor. It stars Mary Miles Minter, Clyde Fillmore, and George Periolat.
 
 **Synopsis**: Nurse Marjorie is an adaptation of one of Lillian Frank’s 1913 novels. It centers around Nurse Marjorie who has to take care of the family children after the death of her boss. When Nurse Marjorie starts spending too much time with one of the girls, her betrayed girlfriend Lucille, cuts both sleeves off of Marjorie’s dress to humiliate her.
 
@@ -3511,7 +3511,7 @@ Wikipedia: [Nurse Marjorie](https://en.wikipedia.org/wiki/Nurse%20Marjorie)
 
 ## Occasionally Yours
 
-_Occasionally Yours_ is a drama movie directed by James W. Horne. It stars Lew Cody and Betty Blythe.
+*Occasionally Yours* is a drama directed by James W. Horne. It stars Lew Cody and Betty Blythe.
 
 **Synopsis**: The wealthy and haughty Alexander Rodell and his wife Irene, who live in Newport, Rhode Island, decide to invest in an historic estate, renovate it and replace some of the old furnishings. The Lodges, owners of the Barbey place, Barbey Hall, want to turn it into a country hotel. Looking more as a symbol of authority and superiority than as owners, the Rodells actually lack social taste and good taste and their entrance to the house, with all their noise and hubbub, ends up by offending the owners and the Tucker Family servants. So, despite their meeting and their first clashes, Rodell and Irene more and more misunderstand and, after she dumped the contents of her crystal decanter over his wife, Mrs. Tucker eventually bears too much of their rudeness to bear and insists they leave the property. They insist on keeping the furniture that have all served in the aristocratic Creole mansion, Creole Place. After an accident that will also contribute to their hatred, Irene ends up by killing the old Mrs. Tucker. Irene is convicted for murder and sentenced to death by hanging. Schyler Tilden, Irene's lawyer who loves Irene, offers to build a private railroad to save her.
 
@@ -3525,7 +3525,7 @@ Wikipedia: [Occasionally Yours](https://en.wikipedia.org/wiki/Occasionally%20You
 
 ## Officer 666
 
-_Officer 666_ is a comedy movie directed by Harry Beaumont. It stars Tom Moore, Jean Calhoun, and Jerome Patrick.
+*Officer 666* is a comedy directed by Harry Beaumont. It stars Tom Moore, Jean Calhoun, and Jerome Patrick.
 
 **Synopsis**: Officer 666 is a comedy movie directed by Harry Beaumont. It stars Tom Moore, Jean Calhoun, and Jerome Patrick. The movie is about an officer who gets a new diet to lose weight but when his sister arrives for a visit, his new diet gets interrupted.
 
@@ -3541,7 +3541,7 @@ Wikipedia: [Officer 666](https://en.wikipedia.org/wiki/Officer%20666%20%281920%2
 
 ## Old Dad
 
-_Old Dad_ is a drama movie directed by Lloyd Ingraham. It stars Mildred Harris, John St. Polis, and Myrtle Stedman.
+*Old Dad* is a drama directed by Lloyd Ingraham. It stars Mildred Harris, John St. Polis, and Myrtle Stedman.
 
 **Synopsis**: Anisha is living a lonely life with her dad, Jenkins, who is always absent. One day, she meets a group of girls, and she starts sticking with them, even though she has trouble breaking free from her dad’s control. When her father tries to prevent her from going to a party, she rebels. There, she meets Ronnie. Ronnie plays a conning, smooth old man who is only interested in exploiting his naive daughter’s innocence. When Ronnie starts forcing various types of advances on Anisha, she decides to finally confront him and demand silence from him.
 
@@ -3549,7 +3549,7 @@ Wikipedia: [Old Dad](https://en.wikipedia.org/wiki/Old%20Dad)
 
 ## An Old Fashioned Boy
 
-_An Old Fashioned Boy_ is a comedy movie directed by Jerome Storm. It stars Charles Ray and Ethel Shannon.
+*An Old Fashioned Boy* is a comedy directed by Jerome Storm. It stars Charles Ray and Ethel Shannon.
 
 **Synopsis**: A rambunctious, rough and tumble "old fashioned boy," 16-year-old Roosevelt "Bud" Duncan tries to convince his sister Verna that the girls she has introduced him to won't marry a poor man. When Verna gets engaged to the deputy mayor, Bud turns his attentions to a minister's daughter, Alma. But he can't seem to come up with a way to convince her to elope with him because his way of showing his feelings for her is to make her jealous by kissing town girls.
 
@@ -3557,7 +3557,7 @@ Wikipedia: [An Old Fashioned Boy](https://en.wikipedia.org/wiki/An%20Old%20Fashi
 
 ## Old Lady 31
 
-_Old Lady 31_ is a comedy drama movie directed by John Ince. It stars Emma Dunn and Henry Harmon.
+*Old Lady 31* is a comedy drama directed by John Ince. It stars Emma Dunn and Henry Harmon.
 
 **Synopsis**: Old Lady 31 takes place in Dothan, Alabama where the Mayor decides to give 16-year-olds the vote. Old Lady 31 is a protest group of opposition to the change. The thirty-something year olds that make up this group are personally offended that 16-year-olds now have as much political power as they do. They take to the streets with their blood-covered lawn signs, vying for conservative voters' attention before the city council can vote on the rigged legislation. However, they find the formula to legalize teen drinking too tempting to resist, and sneak into a law class, hilariously complicating the only chance to simply petition the Mayor.
 
@@ -3565,7 +3565,7 @@ Wikipedia: [Old Lady 31](https://en.wikipedia.org/wiki/Old%20Lady%2031)
 
 ## On with the Dance
 
-_On with the Dance_ is a drama movie directed by George Fitzmaurice. It stars Mae Murray, David Powell, and Holmes Herbert.
+*On with the Dance* is a drama directed by George Fitzmaurice. It stars Mae Murray, David Powell, and Holmes Herbert.
 
 **Synopsis**: Encumbered, Jessie joins the chorus of an Irish-American vaudeville troupe, "Kremlin." Hammed, Jessie's erstwhile lover, is also a member of the company. Hammed wins $10,000 in the Irish Sweepstakes and poetically announces that he'll "spend my last dollar on a glass of dry champagne," and to the plaudits of the troupe's woman-orchestra, marches off in search of a bartender. Jessie drifts about the theatre, increasingly burdened with his self-appointed cares for Hammed and bis driving ambition to play "Hamlet." Suspense is aroused when the she concludes, in costume, by reciting the "play within a play," and Hammed, who has been strolling in--sober--near the close, solicits almost reverently, albeit comically, her opinion of Hamlet.
 
@@ -3579,7 +3579,7 @@ Wikipedia: [On with the Dance](https://en.wikipedia.org/wiki/On%20with%20the%20D
 
 ## Once a Plumber
 
-_Once a Plumber_ is a comedy movie directed by Eddie Lyons. It stars Eddie Lyons and Lee Moran.
+*Once a Plumber* is a comedy directed by Eddie Lyons. It stars Eddie Lyons and Lee Moran.
 
 **Synopsis**: Originally overdubbed and dubbed in French and Italian, Peter and Lee Moran and Eddie and his son Dominick starred and directed the feature-length comedy, depicting two plumbing brothers and their counterpart father struggling with family and jobs.
 
@@ -3593,7 +3593,7 @@ Wikipedia: [Once a Plumber](https://en.wikipedia.org/wiki/Once%20a%20Plumber)
 
 ## Once to Every Woman
 
-_Once to Every Woman_ is a drama movie directed by Allen Holubar. It stars Dorothy Phillips and Margaret Mann.
+*Once to Every Woman* is a drama directed by Allen Holubar. It stars Dorothy Phillips and Margaret Mann.
 
 **Synopsis**: Miriam Rush is a journalist for the News Journal who lives an unhappy life with her husband, Chester. The only happiness she has is Lisa, who was orphaned at a young age. When Chester suddenly dies, Lisa is no longer privy to the means necessary to get the surgery she needs to survive cancer.
 
@@ -3605,7 +3605,7 @@ Wikipedia: [Once to Every Woman](https://en.wikipedia.org/wiki/Once%20to%20Every
 
 ## One Hour Before Dawn
 
-_One Hour Before Dawn_ is a mystery movie directed by Henry King. It stars H. B. Warner and Anna Q. Nilsson.
+*One Hour Before Dawn* is a mystery directed by Henry King. It stars H. B. Warner and Anna Q. Nilsson.
 
 **Synopsis**: This is a mystery film directed by H.B. Warner. It stars Anna Q. Nilsson as a newlywed who goes on a camping trip with her husband and a minister. They run into a minister that was also the minister from her time period. Her husband confesses that he killed his wife, then commits suicide. The wife and minister go to inform his wife and return home. They tell the sheriff and they arrest the minister and look for the man.
 
@@ -3617,7 +3617,7 @@ Wikipedia: [One Hour Before Dawn](https://en.wikipedia.org/wiki/One%20Hour%20Bef
 
 ## The Orphan
 
-_The Orphan_ is a western movie directed by J. Gordon Edwards. It stars William Farnum, Louise Lovely, and Henry Hebert.
+*The Orphan* is a western directed by J. Gordon Edwards. It stars William Farnum, Louise Lovely, and Henry Hebert.
 
 **Synopsis**: A sheriff who teams up with a gunslinger to catch the Apache who kidnapped his daughter.
 
@@ -3625,7 +3625,7 @@ Wikipedia: [The Orphan](https://en.wikipedia.org/wiki/The%20Orphan%20%281920%20f
 
 ## Other Men's Shoes
 
-_Other Men's Shoes_ is a drama movie directed by Edgar Lewis. It stars Crauford Kent and Irene Boyle.
+*Other Men's Shoes* is a drama directed by Edgar Lewis. It stars Crauford Kent and Irene Boyle.
 
 **Synopsis**: Jerry and Joe are two friends who work in the shoe industry. Jerry is arrogant and Joe is patient with most people around him. Joe's charity towards Jerry's attitude is constantly rewarded with Jerry constantly berating Joe for his shortcomings. Jerry is constantly embarrassed by Joe for not being successful enough at work, with women or at anything else. They constantly argue, which only fuels the fire with their son's constantly telling them where they're going wrong. Eventually one of them dies, leaving the survivor to examine the life he had with the other.
 
@@ -3633,7 +3633,7 @@ Wikipedia: [Other Men's Shoes](https://en.wikipedia.org/wiki/Other%20Men%27s%20S
 
 ## Out of the Snows
 
-_Out of the Snows_ is a drama movie directed by Ralph Ince. It stars Ralph Ince and Zena Keefe.
+*Out of the Snows* is a drama directed by Ralph Ince. It stars Ralph Ince and Zena Keefe.
 
 **Synopsis**: Out of the Snows is a drama film that depicts the struggles that the Selika family endures to survive.
 
@@ -3645,7 +3645,7 @@ Wikipedia: [Out of the Snows](https://en.wikipedia.org/wiki/Out%20of%20the%20Sno
 
 ## Out of the Storm
 
-_Out of the Storm_ is a drama movie directed by William Parke. It stars Barbara Castleton, John Bowers, and Sidney Ainsworth.
+*Out of the Storm* is a drama directed by William Parke. It stars Barbara Castleton, John Bowers, and Sidney Ainsworth.
 
 **Synopsis**: Employment clerk Eliza Dalton is fired. She and her 4 year old daughter find shelter in a church with her friends and colleagues.
 
@@ -3653,7 +3653,7 @@ Wikipedia: [Out of the Storm](https://en.wikipedia.org/wiki/Out%20of%20the%20Sto
 
 ## Outside the Law
 
-_Outside the Law_ is a crime thriller movie directed by Tod Browning. It stars Priscilla Dean and Wheeler Oakman.
+*Outside the Law* is a crime thriller directed by Tod Browning. It stars Priscilla Dean and Wheeler Oakman.
 
 **Synopsis**: Several years ago, Paul Foltrigg Jr. is wrongfully arrested for armed robbery. He manages to escape jail briefly, but is re-captured. A gangster named Dixie Taylor pays off his prison cronies to establish Taylor's gang in Taylor's desired Chicago territory. Taylor is faster in the rise to power, but they are also nailed for robbery. Taylor manages to escape from custody, but is finally shot dead in the courthouse lobby during the escape. Taylor had caused the death of Paul's younger brother, Debbie. Taylor's protege, Limpy Louie, vows revenge on Taylor's killer. Louie gets his chance when Taylor is on the lam walking the streets of East St. Louis. Marcel, a cab driver by day-job, drives Taylor to an abandoned building nearby. There, Louie dispatches Taylor with a single bullet to his head.
 
@@ -3669,7 +3669,7 @@ Wikipedia: [Outside the Law](https://en.wikipedia.org/wiki/Outside%20the%20Law%2
 
 ## Over the Hill to the Poorhouse
 
-_Over the Hill to the Poorhouse_ is a drama movie directed by Harry Millarde. It stars Mary Carr, William Welsh, and Johnnie Walker.
+*Over the Hill to the Poorhouse* is a drama directed by Harry Millarde. It stars Mary Carr, William Welsh, and Johnnie Walker.
 
 **Synopsis**: Anne is about to celebrate her 30th birthday. She's had a successful career, but her poor spending habits, like spending on fashion and the men who hurt her, lead her to be homeless and living on the streets. An unexpected opportunity of teaching older children to read allows her the chance to change her life for the better. She realizes that she can give back to people who could use her help by doing something meaningful.
 
@@ -3677,7 +3677,7 @@ Wikipedia: [Over the Hill to the Poorhouse](https://en.wikipedia.org/wiki/Over%2
 
 ## Overland Red
 
-_Overland Red_ is a western movie directed by Lynn Reynolds. It stars Harry Carey and Vola Vale.
+*Overland Red* is a western directed by Lynn Reynolds. It stars Harry Carey and Vola Vale.
 
 **Synopsis**: A wealthy mine owner and his daughter decide to hire a group of stagecoach scouts to guard against robbers and
 
@@ -3687,7 +3687,7 @@ Wikipedia: [Overland Red](https://en.wikipedia.org/wiki/Overland%20Red)
 
 ## Pagan Love
 
-_Pagan Love_ is a romance movie directed by Hugo Ballin. It stars Mabel Ballin and Togo Yamamoto.
+*Pagan Love* is a romance directed by Hugo Ballin. It stars Mabel Ballin and Togo Yamamoto.
 
 **Synopsis**: It's the first Christmas Eve on Cloud Nine, the first planned community on Mars. Sequoia, a young management trainee on the desolate planet, wants to experience the first Christmas on Mars first-hand on the new mission she's working on. Her new crush on the physical incarnation of her boss's character of Zoroaster leeks information to the public, landing them both in isolation for the holiday.
 
@@ -3695,7 +3695,7 @@ Wikipedia: [Pagan Love](https://en.wikipedia.org/wiki/Pagan%20Love)
 
 ## The Palace of Darkened Windows
 
-_The Palace of Darkened Windows_ is a comedy movie directed by Henry Kolker. It stars Claire Anderson, Arthur Edmund Carewe, and Jay Belasco.
+*The Palace of Darkened Windows* is a comedy directed by Henry Kolker. It stars Claire Anderson, Arthur Edmund Carewe, and Jay Belasco.
 
 **Synopsis**: The Palace of Darkened Windows is the story of Sarande, the ruler of Kalithia. Sarande, who was once Sarande of Iphlon, loses her lover to another woman, so she banishes him to an unknown desert. She throws him her ring, which was made to him by an enemy of Kalithia.
 
@@ -3707,7 +3707,7 @@ Wikipedia: [The Palace of Darkened Windows](https://en.wikipedia.org/wiki/The%20
 
 ## The Paliser Case
 
-_The Paliser Case_ is a mystery movie directed by William Parke. It stars Pauline Frederick and Alan Roscoe.
+*The Paliser Case* is a mystery directed by William Parke. It stars Pauline Frederick and Alan Roscoe.
 
 **Synopsis**: In this murder mystery, a widow's will stipulates that her estate be run by a Board of Directors that includes her two children, with a majority vote to decide any decision. When the widow dies, the decision of the Board is turned on its head with conflicting interests and a missing document, with no clear clear majority having been made with the Board.
 
@@ -3719,7 +3719,7 @@ Wikipedia: [The Paliser Case](https://en.wikipedia.org/wiki/The%20Paliser%20Case
 
 ## Paris Green
 
-_Paris Green_ is a comedy movie directed by Jerome Storm. It stars Charles Ray and Ann May.
+*Paris Green* is a comedy directed by Jerome Storm. It stars Charles Ray and Ann May.
 
 **Synopsis**: Paris Green is an American dramatic black and white movie set in London during the 1930s. The story starts with three con artists mapping out their cunning plan to sell cyanide to two cunning women.
 
@@ -3727,7 +3727,7 @@ Wikipedia: [Paris Green](https://en.wikipedia.org/wiki/Paris%20Green%20%28film%2
 
 ## Parlor, Bedroom and Bath
 
-_Parlor, Bedroom and Bath_ is a comedy movie directed by Edward Dillon. It stars Ruth Stonehouse and Eugene Pallette.
+*Parlor, Bedroom and Bath* is a comedy directed by Edward Dillon. It stars Ruth Stonehouse and Eugene Pallette.
 
 **Synopsis**: Lena Knapp is intending to sell her house, but when she invites an interested couple inside, she becomes convinced they are serious browsers. She proceeds to tell them her whole family history in order to dissuade them from moving in.
 
@@ -3735,7 +3735,7 @@ Wikipedia: [Parlor, Bedroom and Bath](https://en.wikipedia.org/wiki/Parlor%2C%20
 
 ## Partners of the Night
 
-_Partners of the Night_ is a drama movie directed by Paul Scardon. It stars Pinna Nesbit and William B. Davidson.
+*Partners of the Night* is a drama directed by Paul Scardon. It stars Pinna Nesbit and William B. Davidson.
 
 **Synopsis**: "This passionate film premiered at the Sundance Film Festival and was directed by Paul Scardon. The story revolves around a former African dictator and his band of mercenaries as they try to keep their inept Texas based oil company from imploding."
 
@@ -3743,15 +3743,15 @@ Wikipedia: [Partners of the Night](https://en.wikipedia.org/wiki/Partners%20of%2
 
 ## Passers-By
 
-_Passers-By_ is a drama movie directed by J. Stuart Blackton. It stars Herbert Rawlinson and Ellen Cassidy.
+*Passers-By* is a drama directed by J. Stuart Blackton. It stars Herbert Rawlinson and Ellen Cassidy.
 
-**Synopsis**: Passers-By was produced by Edison Studios in 1896. It’s about individuals walking up and down the porch of a house on the beat of the metronome ticking.
+**Synopsis**: Passers-By was produced by Edison Studios in 1896. It’s about individuals walking up and down the porch of a house on the beat of the metronome ticking. 
 
 What are some themes explored in "Passers-By"?
 
 - dainty-tick, beat of the metronome
-- the possibility of humanity
-- people’s feelings
+- the possibility of humanity 
+- people’s feelings 
 - empathy
 
 Passers-By explores the beat of the metronome, the possibility of humanity, and people's feelings. It also explores empathy.
@@ -3760,7 +3760,7 @@ Wikipedia: [Passers-By](https://en.wikipedia.org/wiki/Passers-By)
 
 ## Passion's Playground
 
-_Passion's Playground_ is a drama movie directed by J. A. Barry. It stars Katherine MacDonald and Norman Kerry.
+*Passion's Playground* is a drama directed by J. A. Barry. It stars Katherine MacDonald and Norman Kerry.
 
 **Synopsis**: Rose Green is a young woman suffering from a deep depression. She withdraws from her family and friends and smokes her days away until finding a flower sprouting from a crack in a sidewalk. This motivates her to try to turn her life around and reconnect to the world around her.
 
@@ -3768,7 +3768,7 @@ Wikipedia: [Passion's Playground](https://en.wikipedia.org/wiki/Passion%27s%20Pl
 
 ## The Path She Chose
 
-_The Path She Chose_ is a drama movie directed by Phil Rosen. It stars Anne Cornwall and J. Farrell McDonald.
+*The Path She Chose* is a drama directed by Phil Rosen. It stars Anne Cornwall and J. Farrell McDonald.
 
 **Synopsis**: When her husband disappears, Caroline is determined to find out what happened to him so she can put her life back together. But her search for him is all in vain. Caroline's only hope is to become an investigator herself so she can crack the elusive trail he left.
 
@@ -3776,12 +3776,12 @@ Wikipedia: [The Path She Chose](https://en.wikipedia.org/wiki/The%20Path%20She%2
 
 ## The Peddler of Lies
 
-_The Peddler of Lies_ is a mystery movie directed by William C. Dowlan. It stars Frank Mayo and Ora Carew.
+*The Peddler of Lies* is a mystery directed by William C. Dowlan. It stars Frank Mayo and Ora Carew.
 
-**Synopsis**: Silas Hathaway is arrested only hours after hitting a civilian. Sergeant John O’Hara, in charge of transferring Hathaway to the police station in the police wagon, has a contentious conversation with Hathaway in which Hathaway alleges that his injuries come from an attack in prison. Hathaway asks O’Hara to be sure to report it to his superiors. At the station, Captain Tiark is troubled about Hathaway's claims, which his previous prisoner's stories are incompatible with.
+**Synopsis**: Silas Hathaway is arrested only hours after hitting a civilian. Sergeant John O’Hara, in charge of transferring Hathaway to the police station in the police wagon, has a contentious conversation with Hathaway in which Hathaway alleges that his injuries come from an attack in prison. Hathaway asks O’Hara to be sure to report it to his superiors. At the station, Captain Tiark is troubled about Hathaway's claims, which his previous prisoner's stories are incompatible with. 
 
-The next day, Hathaway's attorney Ed
-Cookson arrives at the station, appearing keen to keep Hathaway in custody. Hathaway asks O’Hara to investigate what he claims was a third offender and goes into detail about his and the former prisoner's tragic childhood.
+The next day, Hathaway's attorney Ed 
+Cookson  arrives at the station, appearing keen to keep Hathaway in custody. Hathaway asks O’Hara to investigate what he claims  was a third offender and goes into detail about his and the former prisoner's tragic childhood.
 
 The scene cuts o Sergeant O’Hara at headquarters, where the lieutenant reluctantly authorizes the investigation, and then back to Hathaway. Through a series of flashbacks we learn that Hathaway’s childhood friend Rose (the third offender) was giving birth to Harelot (a former prisoner) and Hathaway tells Sergeant O’Hara to get ahold of Rose and question her. Afterward, Hathaway begins to thrash around in his cell, experiencing delusions and shouting desperate confessions to O’Hara. Rose is also revealed, alive and well and running a coal and lumber company and tells the authorities that Hathaway's accusations are preposterous. Hathaway initially can't understand his situation, and then he is led back into custody and into the cell
 
@@ -3789,13 +3789,13 @@ Wikipedia: [The Peddler of Lies](https://en.wikipedia.org/wiki/The%20Peddler%20o
 
 ## Peaceful Valley
 
-_Peaceful Valley_ is a comedy movie directed by Jerome Storm. It stars Charles Ray and Harry Myers.
+*Peaceful Valley* is a comedy directed by Jerome Storm. It stars Charles Ray and Harry Myers.
 
-**Synopsis**: A comic mishap at a bank nearly ruins a bank clerk's life. To make matters worse, his fiance decides to leave him because. Unable to pay the mortgage, the clerk's father steps in, turning their former family farm into a dude ranch.
+**Synopsis**: A comic mishap at a bank nearly ruins a bank clerk's life. To make matters worse, his fiance decides to leave him because. Unable to pay the mortgage, the clerk's father steps in, turning their former family farm into a dude ranch. 
 
 What Are some themes in the movie?
 
-Themes in this movie include betrayal, deception, death, and conflict.
+Themes in this movie include betrayal, deception, death, and conflict. 
 
 Why does the banker go to the Clerk's house
 
@@ -3805,9 +3805,9 @@ Wikipedia: [Peaceful Valley](https://en.wikipedia.org/wiki/Peaceful%20Valley%20%
 
 ## Pegeen
 
-_Pegeen_ is a drama movie directed by David Smith. It stars Bessie Love and Edmund Burns.
+*Pegeen* is a drama directed by David Smith. It stars Bessie Love and Edmund Burns.
 
-**Synopsis**: Pegeen is a drama movie directed by David Smith. It stars Bessie Love and Edmund Burns. Edmund is a fugitive from the law who was suspected of manslaughter. In order to clear his name with the law, Edmund is set up by a lawyer nicknamed Rancid who conspires with a greedy bank robber, Joseph. The movie is filled with betrayals and magnificently argued court scenes.
+**Synopsis**: Pegeen is a drama movie directed by David Smith. It stars Bessie Love and Edmund Burns. Edmund is a fugitive from the law who was suspected of manslaughter. In order to clear his name with the law, Edmund is set up by a lawyer nicknamed Rancid who conspires with a greedy bank robber, Joseph. The movie is filled with betrayals and magnificently argued court scenes. 
 
 What does the poster say about the movie?
 
@@ -3817,7 +3817,7 @@ Wikipedia: [Pegeen](https://en.wikipedia.org/wiki/Pegeen%20%28film%29)
 
 ## The Penalty
 
-_The Penalty_ is a crime movie directed by Wallace Worsley. It stars Charles Clary, Lon Chaney, and Doris Pawn.
+*The Penalty* is a crime directed by Wallace Worsley. It stars Charles Clary, Lon Chaney, and Doris Pawn.
 
 **Synopsis**: The Penalty is about two professional criminals, Clemence and Tony, who are thieves, shotbreakers, and murderers. Clemence has a desire for peace, but is always getting Tony into trouble. They are given a job by Boss Clemence. Before they can get the job, they must get Bosses items, which they find out its a map to a gold mine. But Bosses daughter, Adela, wants to marry Ernest, who owns the gold mines, and has the other half of the map. Clemence and Tony get to the gold mines and get it, but the French government wants the gold, and there is a man named Salter who is trying to stop them.
 
@@ -3825,7 +3825,7 @@ Wikipedia: [The Penalty](https://en.wikipedia.org/wiki/The%20Penalty%20%281920%2
 
 ## The Perfect Woman
 
-_The Perfect Woman_ is a comedy movie directed by David Kirkland. It stars Constance Talmadge and Charles Meredith.
+*The Perfect Woman* is a comedy directed by David Kirkland. It stars Constance Talmadge and Charles Meredith.
 
 **Synopsis**: The Perfect Woman is a comedy about a husband and wife who finally decide to live their lives openly and free of social restraints. Upon realizing that they can have a more carefree time together if the wife is a man, they decide that Juliet will disguise herself as a man named James. Interestingly, James manages to have a more fun time with all of the wives of the men he came with on the gentlemen's trip.
 
@@ -3837,9 +3837,11 @@ Wikipedia: [The Perfect Woman](https://en.wikipedia.org/wiki/The%20Perfect%20Wom
 
 ## The Phantom Melody
 
-_The Phantom Melody_ is a drama movie directed by Douglas Gerrard. It stars Monroe Salisbury and Henry A. Barrows.
+*The Phantom Melody* is a drama directed by Douglas Gerrard. It stars Monroe Salisbury and Henry A. Barrows.
 
-**Synopsis**: A former convict with amnesia must begin to explore his past in order to get his memory back.
+**Synopsis**: A former convict with amnesia must begin to explore his past in order to get his memory back. 
+
+
 
 The Phantom Melody was released exclusively on the 18th of August 2020.
 
@@ -3847,7 +3849,7 @@ Wikipedia: [The Phantom Melody](https://en.wikipedia.org/wiki/The%20Phantom%20Me
 
 ## Pink Tights
 
-_Pink Tights_ is a romance movie directed by B. Reeves Eason. It stars Gladys Walton and Jack Perrin.
+*Pink Tights* is a romance directed by B. Reeves Eason. It stars Gladys Walton and Jack Perrin.
 
 **Synopsis**: On the Santa Ana Ranch, near Los Angeles, Arizona is driving forces to watch her coyote sheep on account of an addition of her family. A sudden responsibility excursion prompts Arizona to abandon the east coast and fly oversees to watch her east coast family, without permitted time to contact her east coast fence framework. The east coast fence framework hires Berny, a foundling who is hurling to dispatch a transfer, to take care of the east coast ranch.
 
@@ -3857,7 +3859,7 @@ Wikipedia: [Pink Tights](https://en.wikipedia.org/wiki/Pink%20Tights)
 
 ## Pinto
 
-_Pinto_ is a western comedy movie directed by Victor Schertzinger. It stars Mabel Normand and Cullen Landis.
+*Pinto* is a western comedy directed by Victor Schertzinger. It stars Mabel Normand and Cullen Landis.
 
 **Synopsis**: Clarissa "Pint-Bottle" Jackson is an American girl who is free-spirited and always getting into trouble. She is temporarily separated from her family and is taken in by a kindly Scottish family, who give her their last name of Mackenzie. When her family enjoys six months of peace, the law finds them and Clarissa is sent off to New York. The show's narrator assures the audience that Clarissa will either be repeating her shenanigans or "settling down some" by the time she reaches New York.
 
@@ -3871,7 +3873,7 @@ Wikipedia: [Pinto](https://en.wikipedia.org/wiki/Pinto%20%28film%29)
 
 ## The Pleasure Seekers
 
-_The Pleasure Seekers_ is a drama movie directed by George Archainbaud. It stars Elaine Hammerstein and Webster Campbell.
+*The Pleasure Seekers* is a drama directed by George Archainbaud. It stars Elaine Hammerstein and Webster Campbell.
 
 **Synopsis**: The Pleasure Seekers is a poverty-stricken tale about a volunteer teacher Ruth Barton who has come from a wealthy background to try and help a poor farming community where a passing ornithologist has discovered a rare plant. She must face a difficult decision when one of her students, a humble and charming young boy, dying from a life-threatening wound, is about to be turned out from the only family he has known. The tough, strong-willed little boy appeals to her with his simplicity and loyalty, and her condemnation of the cruelty of the townspeople, who will only help the boy if he leaves his "mother" is a sobering awakening to their true motives.
 
@@ -3879,9 +3881,9 @@ Wikipedia: [The Pleasure Seekers](https://en.wikipedia.org/wiki/The%20Pleasure%2
 
 ## The Plunger
 
-_The Plunger_ is a drama movie directed by Dell Henderson. It stars George Walsh and Virginia Valli.
+*The Plunger* is a drama directed by Dell Henderson. It stars George Walsh and Virginia Valli.
 
-**Synopsis**: Sam Blake wants to be a novelist instead of heating engineer, but is discouraged by his father.
+**Synopsis**: Sam Blake wants to be a novelist instead of heating engineer, but is discouraged by his father. 
 
 That's about all I can think of now.
 
@@ -3893,17 +3895,17 @@ Wikipedia: [The Plunger](https://en.wikipedia.org/wiki/The%20Plunger)
 
 ## The Point of View
 
-_The Point of View_ is a drama movie directed by Alan Crosland. It stars Elaine Hammerstein and Rockliffe Fellowes.
+*The Point of View* is a drama directed by Alan Crosland. It stars Elaine Hammerstein and Rockliffe Fellowes.
 
 **Synopsis**: Elaine Hammerstein plays Stella, a young Jewish woman from Manhattan's Lower East Side who meets Prince Klaus von Rohan, the Prince of Katterbach, on a transatlantic ocean liner crossing from New York City to London.
 
-Elaine Hammerstein plays Stella, a young Jewish woman from Manhattan's Lower East Side who meets Prince Klaus von Rohan, the Prince of Katterbach, on a transatlantic ocean liner crossing from New York City to London.
+Elaine Hammerstein plays Stella, a young Jewish woman from Manhattan's Lower East Side who meets Prince Klaus von Rohan, the Prince of Katterbach, on a transatlantic ocean liner crossing from New York City to London. 
 
-Elaine wants a different life out of New York, and convinces Klaus to marry her, quickly taking up a life of high class. She falls in love with him, but as time passes she confronts the disparity between the two cultures and wants to leave Klaus.
+Elaine wants a different life out of New York, and convinces Klaus to marry her, quickly taking up a life of high class. She falls in love with him, but as time passes she confronts the disparity between the two cultures and wants to leave Klaus. 
 
 In the final scene of the movie, as they dance around the ballroom as the rest of the guests applauds them, they simultaneously agree to divorce as an adoring Elaine bows to Klaus as she walks away.
 
-Elaine wants a different life out of New York, and convinces Klaus to marry her, quickly taking up a life of high class. She falls in love with him, but as time passes she confronts the disparity between the two cultures and wants to leave Klaus.
+Elaine wants a different life out of New York, and convinces Klaus to marry her, quickly taking up a life of high class. She falls in love with him, but as time passes she confronts the disparity between the two cultures and wants to leave Klaus. 
 
 In the final scene of the movie, as they dance around the ballroom as the rest of the guests applauds them, they simultaneously agree to divorce as an adoring Elaine bows to Klaus as she walks away.
 
@@ -3911,7 +3913,7 @@ Wikipedia: [The Point of View](https://en.wikipedia.org/wiki/The%20Point%20of%20
 
 ## Polly of the Storm Country
 
-_Polly of the Storm Country_ is a drama movie directed by Arthur Rosson. It stars Mildred Harris, Emory Johnson, and Charlotte Burton.
+*Polly of the Storm Country* is a drama directed by Arthur Rosson. It stars Mildred Harris, Emory Johnson, and Charlotte Burton.
 
 **Synopsis**: Polly, a Native American woman, lives in the Rio Grande country. She becomes pregnant after meeting her white sweetheart Joe. Joe has come to the country to marry another woman, but wants to marry Polly before she gives birth to his baby. Polly thinks that the only sensible thing to do is to have the baby.
 
@@ -3919,7 +3921,7 @@ Wikipedia: [Polly of the Storm Country](https://en.wikipedia.org/wiki/Polly%20of
 
 ## Polly With a Past
 
-_Polly With a Past_ is a drama movie directed by Leander de Cordova. It stars Ina Claire, Ralph Graves, and Marie Wainwright.
+*Polly With a Past* is a drama directed by Leander de Cordova. It stars Ina Claire, Ralph Graves, and Marie Wainwright.
 
 **Synopsis**: After two decades apart, Polly finally catches up with her high school sweetheart, Phil Hillman, who is now wealthy and engaged to Amy. Amy is suspicious of her hesitancy to promote the wedding so Polly begins to confess her story of love and loss. The past becomes troubling until it becomes impossible to tell.
 
@@ -3929,7 +3931,7 @@ Wikipedia: [Polly With a Past](https://en.wikipedia.org/wiki/Polly%20With%20a%20
 
 ## Pollyanna
 
-_Pollyanna_ is a drama movie directed by Paul Powell. It stars Howard Ralston.
+*Pollyanna* is a drama directed by Paul Powell. It stars Howard Ralston.
 
 **Synopsis**: Six-year-old Pollyanna comes to live with her strict Aunt Polly, who wonders if the little girl's sunny disposition will be able to survive the dark side of the 1800s. Instead, Pollyanna changes everything for the better.
 
@@ -3937,15 +3939,15 @@ Wikipedia: [Pollyanna](https://en.wikipedia.org/wiki/Pollyanna%20%281920%20film%
 
 ## The Poor Simp
 
-_The Poor Simp_ is a comedy movie directed by Victor Heerman. It stars Owen Moore, Nell Craig, and Harry L. Rattenberry.
+*The Poor Simp* is a comedy directed by Victor Heerman. It stars Owen Moore, Nell Craig, and Harry L. Rattenberry.
 
-**Synopsis**: Larry Simp is a sophisticated handsome young man who was dating Mrs. Sullivan, the widowed mother of his sister's friend, Helen. Larry wonders why, when Helen has a new beau, she was not embarrassed to have him meet her moth, so he decides to find out if they are womanizers by himself. He goes to her house, pretending to have broken down on the way to the dentist, prompting Mrs. Sullivan to try seducing Larry to fix the car.
+**Synopsis**: Larry Simp is a sophisticated handsome young man who was dating Mrs. Sullivan, the widowed mother of his sister's friend, Helen. Larry wonders why, when Helen has a new beau, she was not embarrassed to have him meet her moth, so he decides to find out if they are womanizers by himself. He goes to her house, pretending to have broken down on the way to the dentist, prompting Mrs. Sullivan to try seducing Larry to fix the car. 
 
 Mr. Sullivan was not home, so she seduces Larry. On noticing that Larry is not in Hollywood or society, she turns merciless in ridiculing him in the living room in front of the daughter, after which Larry leaves.
 
-It is said that Hattie Worley got drunk when Iris Barry said the "Poor Simp" at Otisville where she was in society.
+It is said that Hattie Worley got drunk when Iris Barry said the "Poor Simp" at Otisville where she was in society. 
 
-The poor simp in the movie is Larry who is dating party. Larry breaks down, so woman gets him in to fix the car. But when he gets in, she questions him about his social class, but when she soon finds out, she ridicules him at the living room where his sister and friend is.
+The poor simp in the movie is Larry who is dating party. Larry breaks down, so woman gets him in to fix the car. But when he gets in, she questions him about his social class, but when she soon finds out, she ridicules him at the living room where his sister and friend is. 
 
 The movie has a old, wealthy woman who does misrepresentations for her daughter and her social class where she treats the man as if he is bad.
 
@@ -3953,18 +3955,18 @@ Wikipedia: [The Poor Simp](https://en.wikipedia.org/wiki/The%20Poor%20Simp)
 
 ## Prairie Trails
 
-_Prairie Trails_ is a western movie directed by George Marshall. It stars Tom Mix and Charles K. French.
+*Prairie Trails* is a western directed by George Marshall. It stars Tom Mix and Charles K. French.
 
 **Synopsis**: The sequel to Live Wire starts with Mix coming to an uninhabited town. He is the only lawman in town and he must uphold the law against all the outlaws who come to town. A fortune in gold arrives and the town is taken over by all the outlaws he chased out. Mix makes his stand and is able to overcome the odds to reunite the town.
 
-The sequel to "Live Wire." Tom is the only lawman left in town. There are no residents. Outlaws come to town. Tom tries to uphold the law all by himself. A second copy arrives with outlaws chasing after gold, but they're defeated.
+The sequel to "Live Wire."  Tom is the only lawman left in town. There are no residents. Outlaws come to town. Tom tries to uphold the law all by himself. A second copy arrives with outlaws chasing after gold, but they're defeated. 
 Prairie Trails is about Tom Mix coming to an uninhabited town where he is the only lawman. There is no one there but him. Outlaws come to town and he tries to uphold the law based on what he learned from 1920s based stories. The outlaws take the town and cause a ton of harm. There is a fortune worth of gold that arrives and the town becomes a battle ground for Tom's honor. The outlaws give up and Tom becomes the hero by reuniting the town.
 
 Wikipedia: [Prairie Trails](https://en.wikipedia.org/wiki/Prairie%20Trails)
 
 ## The Prey
 
-_The Prey_ is a drama movie directed by George L. Sargent. It stars Harry Benham and Alice Joyce.
+*The Prey* is a drama directed by George L. Sargent. It stars Harry Benham and Alice Joyce.
 
 **Synopsis**: Hamar, called The Professor, is a wealthy megalomaniac, who has collected monkeys to train to do his bidding. By the film's end, people have gone to his forest hideaway to rescue their friends, but Hamar has collected too many monkeys, so they have to work out a way to defeat their captives by attacking at night.
 
@@ -3972,7 +3974,7 @@ Wikipedia: [The Prey](https://en.wikipedia.org/wiki/The%20Prey%20%281920%20film%
 
 ## The Price of Redemption
 
-_The Price of Redemption_ is a crime movie directed by Dallas M. Fitzgerald. It stars Bert Lytell and Seena Owen.
+*The Price of Redemption* is a crime directed by Dallas M. Fitzgerald. It stars Bert Lytell and Seena Owen.
 
 **Synopsis**: After robbing a convenience store and killing the store clerk, Frank has a change of heart and returns to the scene of the crime. There, Corrine Vale, Store Owner, is still alive and falls for Frank after time spent talking to and looking at her. Detective Cecil Wyeth and Deputy Hoyt (Corrine's uncle and brother) take over the store and go about setting up traps to catch and kill Frank. Cecil wins competitions and gets hired as a policeman and tries to seek revenge against Frank for killing his brother.
 
@@ -3984,7 +3986,7 @@ Wikipedia: [The Price of Redemption](https://en.wikipedia.org/wiki/The%20Price%2
 
 ## The Prince Chap
 
-_The Prince Chap_ is a drama movie directed by William C. deMille. It stars Thomas Meighan and Kathlyn Williams.
+*The Prince Chap* is a drama directed by William C. deMille. It stars Thomas Meighan and Kathlyn Williams.
 
 **Synopsis**: The Prince Chap recounts the tale of Robert of Greenlea, who takes refuge with peasants after he is disinherited by the act of his father.
 
@@ -3992,7 +3994,7 @@ Wikipedia: [The Prince Chap](https://en.wikipedia.org/wiki/The%20Prince%20Chap)
 
 ## The Prince of Avenue A
 
-_The Prince of Avenue A_ is a drama movie directed by John Ford. It stars James J. Corbett and Richard Cummings.
+*The Prince of Avenue A* is a drama directed by John Ford. It stars James J. Corbett and Richard Cummings.
 
 **Synopsis**: Lisa Moran is a wealthy and spoiled young girl and she and her mother and father and her housekeeper and butler live in a gigantic mansion in the middle of New York City. They often go to fancy parties, and Lisa has a whole wardrobe of clothes and other things. All of her clothes and other things are only used for that one night and then returned to where they were purchased. One night, Billy, a pick pocket, convinces Lisa to take a walk with him and Lisa is curious and the she and Billy get to know each other and he soon reveals to her that he's a pickpocket and ...show more content...
 
@@ -4004,7 +4006,7 @@ Wikipedia: [The Prince of Avenue A](https://en.wikipedia.org/wiki/The%20Prince%2
 
 ## The Purple Cipher
 
-_The Purple Cipher_ is a mystery movie directed by Chester Bennett. It stars Earle Williams and Vola Vale.
+*The Purple Cipher* is a mystery directed by Chester Bennett. It stars Earle Williams and Vola Vale.
 
 **Synopsis**: A detective goes out to solve the mysterious death of his father, who he discovers was murdered by a cult. The detective soon discovers that the cult's headquarters is the old family home, where the father just moved his family.
 
@@ -4012,7 +4014,7 @@ Wikipedia: [The Purple Cipher](https://en.wikipedia.org/wiki/The%20Purple%20Ciph
 
 ## Red Foam
 
-_Red Foam_ is a drama movie directed by Ralph Ince. It stars Zena Keefe and Huntley Gordon.
+*Red Foam* is a drama directed by Ralph Ince. It stars Zena Keefe and Huntley Gordon.
 
 **Synopsis**: The film is about Jane (Zena Keefe) who has been on the corporate ladder for years and she knows it's time to get out before she's jaded for good. She's had it with her soulless boss and her high-priced lifestyle. Jane craves a simpler and quieter life and she knows the only person who can help her is her private counselor.
 
@@ -4020,7 +4022,7 @@ Wikipedia: [Red Foam](https://en.wikipedia.org/wiki/Red%20Foam)
 
 ## The Red Lane
 
-_The Red Lane_ is a drama movie directed by Lynn Reynolds. It stars Frank Mayo and Lillian Rich.
+*The Red Lane* is a drama directed by Lynn Reynolds. It stars Frank Mayo and Lillian Rich.
 
 **Synopsis**: The Red Lane is an adaptation of Herman Wouk's 1994 book of the same name. It tells the story of Herman Wouk's ancestor, Hesekiah Wouk, who becomes an indentured servant in pre-Revolutionary colonial America. After this deal with his fellow Dutch immigrants, he inherits the slaves upon their death. He quickly begins to despise slavery, feeling powerless to control his family's people.
 
@@ -4032,7 +4034,7 @@ Wikipedia: [The Red Lane](https://en.wikipedia.org/wiki/The%20Red%20Lane)
 
 ## Remodeling Her Husband
 
-_Remodeling Her Husband_ is a comedy movie directed by D. W. Griffith. It stars Dorothy Gish and James Rennie.
+*Remodeling Her Husband* is a comedy directed by D. W. Griffith. It stars Dorothy Gish and James Rennie.
 
 **Synopsis**: In Penny, Illinois, a young woman is frustrated that her husband has no aspirations for self-improvement. Her husband is stubborn and believes that his ways are just, and won’t see his wife’s point of view. This pushes her to go to a party on a dare and have a husband, just to prove a point. She chooses a husband from a series of photos who happens to be a carpenter with a respectable job and a respectable life. The frame of the movie is actually experienced by the mechanic who married the woman.
 
@@ -4040,7 +4042,7 @@ Wikipedia: [Remodeling Her Husband](https://en.wikipedia.org/wiki/Remodeling%20H
 
 ## Respectable by Proxy
 
-_Respectable by Proxy_ is a drama movie directed by J. Stuart Blackton. It stars Sylvia Breamer and Eulalie Jensen.
+*Respectable by Proxy* is a drama directed by J. Stuart Blackton. It stars Sylvia Breamer and Eulalie Jensen.
 
 **Synopsis**: Respectable by Proxy tells the story of a woman unable to have children after a doctor's negligence. The woman must find a way to keep her family respected.
 
@@ -4048,11 +4050,11 @@ Wikipedia: [Respectable by Proxy](https://en.wikipedia.org/wiki/Respectable%20by
 
 ## The Restless Sex
 
-_The Restless Sex_ is a drama movie directed by Robert Z. Leonard. It stars Marion Davies and Carlyle Blackwell.
+*The Restless Sex* is a drama directed by Robert Z. Leonard. It stars Marion Davies and Carlyle Blackwell.
 
-**Synopsis**: In this film, wealthy woman Irene Lawrence is abused by her alcoholic husband. Irene's daughter, Eileen is unhappy in her marriage with a man who mistreats her. One day summer when it makes her uncomfortable, she decides to run away from home, and is found unconscious on a beach by a crockery tycoon, Charles Yale. When she wakes, they marry and conceive a son, who they name Mark. Mark disregards his father in favor of his mother. Charles begins a woman in his workplace that befriends him equally in his inmost thoughts.
+**Synopsis**: In this film, wealthy woman Irene Lawrence is abused by her alcoholic husband. Irene's daughter, Eileen is unhappy in her marriage with a man who mistreats her. One day summer when it makes her uncomfortable, she decides to run away from home, and is found unconscious on a beach by a crockery tycoon, Charles Yale. When she wakes, they marry and conceive a son, who they name Mark. Mark disregards his father in favor of his mother. Charles begins a woman in his workplace that befriends him equally in his inmost thoughts. 
 
-Due to his erratic tempers, Irene finally leaves the abusive friend, and decides to get married for second time, to her doctor, Jose Lopez, who had personally tended to her and her children when they were abused by the first husband.
+Due to his erratic tempers, Irene finally leaves the abusive friend, and decides to get married for second time, to her doctor, Jose Lopez, who had personally tended to her and her children when they were abused by the first husband. 
 
 Irene and Charles get along well until they reminisce about the days when they were friends. Mark, her son, loves both his parents, and hopes that they can be friends, or at least get along.
 
@@ -4060,7 +4062,7 @@ Wikipedia: [The Restless Sex](https://en.wikipedia.org/wiki/The%20Restless%20Sex
 
 ## The Revenge of Tarzan
 
-_The Revenge of Tarzan_ is an adventure movie directed by Harry Revier and George M. Merrick. It stars Gene Pollar, Karla Schramm, and Estelle Taylor.
+*The Revenge of Tarzan* is an adventure film directed by Harry Revier and George M. Merrick. It stars Gene Pollar, Karla Schramm, and Estelle Taylor.
 
 **Synopsis**: "An expedition goes searching for a missing native village. There a a hotel, a church and a women is missing, a criminal who has a price on his head. There tribal people worship a jungle god who has been resurrected."
 
@@ -4068,7 +4070,7 @@ Wikipedia: [The Revenge of Tarzan](https://en.wikipedia.org/wiki/The%20Revenge%2
 
 ## The Riddle: Woman
 
-_The Riddle: Woman_ is a drama movie directed by Edward José. It stars Geraldine Farrar, Montagu Love, and Adele Blood.
+*The Riddle: Woman* is a drama directed by Edward José. It stars Geraldine Farrar, Montagu Love, and Adele Blood.
 
 **Synopsis**: A woman of mixed blood, mixed emotions, and mixed languages is an admirable description of Geraldine Farrar's character in this drama about the life of Mary Godemar Schele, who goes through twists of fortune, new loves, and shifted friendships. An illegitimate butcher's daughter, Mary heiresses young, educated, and apparently blameless. She argues with her mother's new husband, who recommends she take the veil to remedy the "disgrace." A wealthy, doting suitor then offers her his hand, but it is lost that he has already set his sight on the woman she shadows on the market-stalls, who is later revealed to be his own first wife. The first wife deflects the suit but challenges him on business, making Mary the third party in their conflict, which is resolved through combat.
 
@@ -4076,7 +4078,7 @@ Wikipedia: [The Riddle: Woman](https://en.wikipedia.org/wiki/The%20Riddle%3A%20W
 
 ## Riders of the Dawn
 
-_Riders of the Dawn_ is a western movie directed by Jack Conway. It stars Roy Stewart and Claire Adams.
+*Riders of the Dawn* is a western directed by Jack Conway. It stars Roy Stewart and Claire Adams.
 
 **Synopsis**: The movie is about Clay Harrison, who avenges the murders of his family, even though his abilities are severely hampered by a bad leg.
 
@@ -4084,13 +4086,13 @@ Wikipedia: [Riders of the Dawn](https://en.wikipedia.org/wiki/Riders%20of%20the%
 
 ## The Right of Way
 
-_The Right of Way_ is a drama movie directed by John Francis Dillon. It stars Bert Lytell, Gibson Gowland, and Leatrice Joy.
+*The Right of Way* is a drama directed by John Francis Dillon. It stars Bert Lytell, Gibson Gowland, and Leatrice Joy.
 
 **Synopsis**: Prompt Paragraph
 
 The RIGHT OF WAY is a movie directed by John Francis Dillon. It is set in the late 1800s with Bert Lytell, Gibson Gowland, and Leatrice Joy starring. Bert is Albert Lawrence, who has charge of the Poplar Street railway station. One day, he meets Amy Westover with whom he falls in love with. But suddenly the handsome John Davenport, is in town to make inquiries. Resisting his advances, she rejects him, too. Because Amy is wearing a wedding ring on her finger, he realizes they are married. As days pass, they talk; it becomes obvious she's not the happy bride.
 
----
+---------------------------------------------------------------------------------------------------------------------------------
 
 The Right of Way is set in the late 1800s with Bert Lytell, Gibson Gowland, and Leatrice Joy starring. Bert is Albert Lawrence, who has charge of the Poplar Street railway station. One day, he meets Amy Westover with whom he falls in love with. But suddenly the handsome John Davenport, is in town to make inquiries. Resisting his advances, she rejects him, too. As days pass, they talk; it becomes obvious she's not the happy bride.
 
@@ -4098,7 +4100,7 @@ Wikipedia: [The Right of Way](https://en.wikipedia.org/wiki/The%20Right%20of%20W
 
 ## The Right to Love
 
-_The Right to Love_ is a drama movie directed by George Fitzmaurice. It stars Mae Murray, David Powell, and Holmes Herbert.
+*The Right to Love* is a drama directed by George Fitzmaurice. It stars Mae Murray, David Powell, and Holmes Herbert.
 
 **Synopsis**: This silent drama Starlett Verity, an attractive TV star who yearns for more out of life than the high-living of her manic millionaire husband, is happy when she finds singing inspires her. Her new fame literally takes her by surprise-her old flame David cuts in on her act and sweeps her away. With the help of the bandleader, she boosts her career and begins to win Harold away from his social climbers. Ultimately, Harold must make a choice between his private life and the pressures of marrying convention. This is a colorized reel from a film from 1919.
 
@@ -4106,7 +4108,7 @@ Wikipedia: [The Right to Love](https://en.wikipedia.org/wiki/The%20Right%20to%20
 
 ## Rio Grande
 
-_Rio Grande_ is a western movie directed by Edwin Carewe. It stars Rosemary Theby and Allan Sears.
+*Rio Grande* is a western directed by Edwin Carewe. It stars Rosemary Theby and Allan Sears.
 
 **Synopsis**: When Ed Headen (Rosemary Theby) and Leon Lewis (Allan Sears) cross the Rio Grande to take gold hidden by thieves to the US, they are ripped off by bandits and take US cash back. When they stop to spend the cash and the bandits show up, they want their gold and cash or their lives. Ed and Leon leave for Mexico and end up back in the bandits' clutches. It all ends in a shoot-out and they escape.
 
@@ -4118,7 +4120,7 @@ Wikipedia: [Rio Grande](https://en.wikipedia.org/wiki/Rio%20Grande%20%281920%20f
 
 ## Risky Business
 
-_Risky Business_ is a drama movie directed by Rollin S. Sturgeon. It stars Gladys Walton and Lillian Lawrence.
+*Risky Business* is a drama directed by Rollin S. Sturgeon. It stars Gladys Walton and Lillian Lawrence.
 
 **Synopsis**: Tired of following the rules, Patricia (Walton) decides to finance her "hobby"—subcontracting in the fashion industry in Paris. There she meets wealthy Christian (Kalmanoff).
 
@@ -4126,7 +4128,7 @@ Wikipedia: [Risky Business](https://en.wikipedia.org/wiki/Risky%20Business%20%28
 
 ## The River's End
 
-_The River's End_ is a western movie directed by Victor Heerman and Marshall Neilan. It stars Lewis Stone, Marjorie Daw, and Jane Novak.
+*The River's End* is a western directed by Victor Heerman and Marshall Neilan. It stars Lewis Stone, Marjorie Daw, and Jane Novak.
 
 **Synopsis**: The River's End premiered in America on September 27, 1922 and distributed by the Coronet Feature Film Company. Lt. Jack Clayton (Lewis Stone) is redeemed and healed by the love of Bettie Hale (Marjorie Daw) and he tells her she was his wife in a previous life. Bettie is torn between family and her growing feelings for Jack. Her brother (Craig Reynolds) sustains an injury on his horse ranch and Jack helps out on the ranch. Jack and Bettie grew close and eventually Jack proposes to Bettie and they get married. He finishes his last fight, and Bettie just just gives birth to Jack's child and they get a shot at happiness and peace.
 
@@ -4134,7 +4136,7 @@ Wikipedia: [The River's End](https://en.wikipedia.org/wiki/The%20River%27s%20End
 
 ## The Road of Ambition
 
-_The Road of Ambition_ is a drama movie directed by William P. S. Earle. It stars Conway Tearle and Gladden James.
+*The Road of Ambition* is a drama directed by William P. S. Earle. It stars Conway Tearle and Gladden James.
 
 **Synopsis**: On his eighteenth birthday, Lionel does not expect anything to come his way--except for a big stack of money his father says will be waiting for him in Dallas. Disappointed when he finds only a card waiting for him, Lionel tells his dad he wants to be a professional boxer to follow in his footsteps. But his dad knows the harsh realities of the life--especially without any money--, so he insists Lionel inherit his business. Reluctant at first, but blinded by the heady lures of success and wealth, Lionel gradually trades fame and accomplishment for family and heartbreak.
 
@@ -4144,7 +4146,7 @@ Wikipedia: [The Road of Ambition](https://en.wikipedia.org/wiki/The%20Road%20of%
 
 ## The Road to Divorce
 
-_The Road to Divorce_ is a drama movie directed by Phil Rosen. It stars Mary MacLaren and William Ellingford.
+*The Road to Divorce* is a drama directed by Phil Rosen. It stars Mary MacLaren and William Ellingford.
 
 **Synopsis**: The Road to Divorce is a tragic movie about a middle-aged woman and wife, who we can see spiraling into depression and tension at home. Still convinced the marriage has enough to heal and be salvaged, she starts to take long and long walks and to take care of herself, and to grant herself some peace and find the person she really is. But she knows it is hard to make up for all those years; she feels her efforts are futile and she starts looking for legal solutions.
 
@@ -4152,7 +4154,7 @@ Wikipedia: [The Road to Divorce](https://en.wikipedia.org/wiki/The%20Road%20to%2
 
 ## Romance
 
-_Romance_ is a romance movie directed by Chester Withey. It stars Doris Keane and Basil Sydney.
+*Romance* is a romance directed by Chester Withey. It stars Doris Keane and Basil Sydney.
 
 **Synopsis**: Nora Kelly goes on a cruise ship for her family's business and meets Paul Drake, the coffee house manager. The attraction has never been so strong. Paul is struggling with his family structure and trying to please both his widowed father and his mother who's wishes of how to live his life are vastly different. Meanwhile, Nora Kelly is trying to balance her work with family, but her father is an old fashioned man who believes only work is crucial for strengthening the family.
 
@@ -4164,7 +4166,7 @@ Wikipedia: [Romance](https://en.wikipedia.org/wiki/Romance%20%281920%20film%29)
 
 ## The Romance Promoters
 
-_The Romance Promoters_ is a comedy movie directed by Chester Bennett. It stars Earle Williams and Helen Ferguson.
+*The Romance Promoters* is a comedy directed by Chester Bennett. It stars Earle Williams and Helen Ferguson.
 
 **Synopsis**: This movie tells the story of two married people, Elmer and Katharine Berry. Outwardly, they seem happy and content with their life, but we learn they've been unhappy for years and they often fight over their lack of desire to have sex. The tensions come to a head when Elmer overhears Katharine and her lover playing racquetball and decides he wants to learn the game. Katharine agrees to help him out reluctantly and they grow closer to each other. However, Katharine is still not interested in sex and Elmer is still struggling with his wife's inconsistency.
 
@@ -4184,7 +4186,7 @@ Wikipedia: [The Romance Promoters](https://en.wikipedia.org/wiki/The%20Romance%2
 
 ## A Romantic Adventuress
 
-_A Romantic Adventuress_ is a drama movie directed by Harley Knoles. It stars Dorothy Dalton and Charles Meredith.
+*A Romantic Adventuress* is a drama directed by Harley Knoles. It stars Dorothy Dalton and Charles Meredith.
 
 **Synopsis**: A Romantic adventuress risks death in her fight to free her captured soldier love from a Nazi prison camp.
 
@@ -4192,7 +4194,7 @@ Wikipedia: [A Romantic Adventuress](https://en.wikipedia.org/wiki/A%20Romantic%2
 
 ## The Rookie's Return
 
-_The Rookie's Return_ is a comedy movie directed by Jack Nelson. It stars Douglas MacLean and Doris May.
+*The Rookie's Return* is a comedy directed by Jack Nelson. It stars Douglas MacLean and Doris May.
 
 **Synopsis**: John Carter Bishop comes home from the war and decides to get back to the life he loves: playing football. He recruits his former football buddies and starts a semi-professional football team. Thrilled with newfound hope and ambition the team and friends fall into a deceptive and gang backed gambling ring that leads to tragic consequences.
 
@@ -4208,7 +4210,7 @@ Wikipedia: [The Rookie's Return](https://en.wikipedia.org/wiki/The%20Rookie%27s%
 
 ## Rose of Nome
 
-_Rose of Nome_ is a drama movie directed by Edward LeSaint. It stars Gladys Brockwell and William Scott.
+*Rose of Nome* is a drama directed by Edward LeSaint. It stars Gladys Brockwell and William Scott.
 
 **Synopsis**: "Rose of Nome" tells the story of a woman who has spent all her life watching and repairing DVDs and how she found her voice and came into her own. Rose (Gladys Brockwell) is a petite woman in Alaska with a joy for life who is one of Pixar's Pixar animators. Her creative nature was stifled by her work creating DVD inserts, where she cut and pasted key moments from films and mended damaged CDs and DVDs. Stunned by her life, she decided to get creative and invented the cover of the Voyagers NASA mission NASA cover and business card.
 
@@ -4216,7 +4218,7 @@ Wikipedia: [Rose of Nome](https://en.wikipedia.org/wiki/Rose%20of%20Nome)
 
 ## Rouge and Riches
 
-_Rouge and Riches_ is a drama movie directed by Harry L. Franklin. It stars Mary MacLaren and Wallace MacDonald.
+*Rouge and Riches* is a drama directed by Harry L. Franklin. It stars Mary MacLaren and Wallace MacDonald.
 
 **Synopsis**: The film centers on a female hitchhiker who is picked up by a fugitive outlaw. She is then put in the middle of an unsavory dilemma between two different criminal factions.
 
@@ -4228,7 +4230,7 @@ Wikipedia: [Rouge and Riches](https://en.wikipedia.org/wiki/Rouge%20and%20Riches
 
 ## Rogues and Romance
 
-_Rogues and Romance_ is a drama movie directed by George B. Seitz. It stars June Caprice and Marguerite Courtot.
+*Rogues and Romance* is a drama directed by George B. Seitz. It stars June Caprice and Marguerite Courtot.
 
 **Synopsis**: A criminal-turned-model working for a department store is invested in the store's detective, a grizzled former cop who assists with a murder investigation. They get a lot closer than either of them ever expected, but high fidelity will have to wait until after this case is resolved.
 
@@ -4236,7 +4238,7 @@ Wikipedia: [Rogues and Romance](https://en.wikipedia.org/wiki/Rogues%20and%20Rom
 
 ## The Round-Up
 
-_The Round-Up_ is a comedy movie directed by George Melford. It stars Roscoe Arbuckle, Irving Cummings, and Mabel Julienne Scott.
+*The Round-Up* is a comedy directed by George Melford. It stars Roscoe Arbuckle, Irving Cummings, and Mabel Julienne Scott.
 
 **Synopsis**: Roscoe Arbuckle plays a travelling salesman who arrives in a small Texas town only to find the only hotel is overbooked. He sneaks into the hotel by climbing in through a window, but after he passes out in his room, the owner goes up to investigate, not knowing that Arbuckle is in there. Arbuckle denies to the owner that he is in his room, but the owner doesn’t believe him. Arbuckle tells the owner that he is in room number 5, but knowing that there are no rooms numbered 5, the owner realizes that Arbuckle is telling the truth. He doesn’t press any further and kicks him out.
 
@@ -4252,7 +4254,7 @@ Wikipedia: [The Round-Up](https://en.wikipedia.org/wiki/The%20Round-Up%20%281920
 
 ## The Sagebrusher
 
-_The Sagebrusher_ is a western movie directed by Edward Sloman. It stars Marguerite De La Motte and Noah Beery.
+*The Sagebrusher* is a western directed by Edward Sloman. It stars Marguerite De La Motte and Noah Beery.
 
 **Synopsis**: The film is about Lily Vale, who becomes engaged to David King with the help of Lory King, who arranges for her to meet him in Los Angeles. After David negotiates with Hector, the Mexican colonel in charge of the escort of the Gold Train, they are sent along with Lily to protect the train. When they arrive in their town, they are received by rumors of the longhorns decamping. When they turn out to be true, they, along with George Westinghouse, their Marshall, patrol the town to the giant's giant. There is mayhem when they are warned of the impending attack of the bandidos, but on meeting with them on the outskirts of town, they are able to figure out that they are merely on the run after the raid. Just in time, the train arrives with the gold, which is loaded at the depot.
 
@@ -4262,11 +4264,11 @@ Wikipedia: [The Sagebrusher](https://en.wikipedia.org/wiki/The%20Sagebrusher)
 
 ## Sand
 
-_Sand_ is a western movie directed by Lambert Hillyer. It stars William S. Hart and Mary Thurman.
+*Sand* is a western directed by Lambert Hillyer. It stars William S. Hart and Mary Thurman.
 
 **Synopsis**: Joe Hodges is a cowboy who goes to visit his old friends in Gold City. He meets up with Steve Dillon, Tom Holt, and Nora Holt. Joe moves in with the Holt's but when they find out Joe is the Lone Ranger they refuse to have him stay in town. Joe moves to the edge of town with his friend Al Dillon. Joe has to ride out of Gold City to pursue a group of bandits called The Gang who are looting towns. Later when discovering the robberies are being coordinated in Brady Brady's saloon in Gold City, The Lone Ranger tries to crash in, but is knocked unconscious.
 
-Jim Fisk recruits Col. Whitehead to capture the Lone Ranger in order to avoid the disruptions they are causing.
+Jim Fisk recruits Col. Whitehead to capture the Lone Ranger in order to avoid the disruptions they are causing. 
 The Lone Ranger gets into a fist fight with the outlaws and the lawmen capture him. When John argues that their investigations implicated Fisk and not the Lone Ranger, Fisk knocks him out and takes him back to the ranch. The lawmen tie up the Lone Ranger, and Fisk announces that he is to be executed for robbery and murder.
 
 Fisk and his men return to the saloon and Joe and the Holt brothers chase them and save the Lone Ranger. Later, Joe and Nora walk and talk and he tells her he must leave after the cattle drive. Nora tells him she's going to leave too and starts crying. Joe comforts her and says "I'll be back" as he leaves for the drive, and Nora leaves to go home as the sun rises.
@@ -4277,7 +4279,7 @@ Wikipedia: [Sand](https://en.wikipedia.org/wiki/Sand%20%281920%20film%29)
 
 ## The Saphead
 
-_The Saphead_ is a comedy movie directed by Herbert Blaché. It stars Buster Keaton and Edward Connelly.
+*The Saphead* is a comedy directed by Herbert Blaché. It stars Buster Keaton and Edward Connelly.
 
 **Synopsis**: It is all about Pete, an average man who is stuck in his small business dealing with people he doesn't want to be around. He does not want to do anything to make his father-in-law happy, but his boss wants him to participate in a sap company with an aging sap maker. He hates the sap because it does not work for him. After he loses, his boss fires him. Pete then decides to create his own sap company called the newest thing with the sap being nitroglycerin.
 
@@ -4291,7 +4293,7 @@ Wikipedia: [The Saphead](https://en.wikipedia.org/wiki/The%20Saphead)
 
 ## The Scoffer
 
-_The Scoffer_ is a drama movie directed by Allan Dwan. It stars Mary Thurman and Philo McCullough.
+*The Scoffer* is a drama directed by Allan Dwan. It stars Mary Thurman and Philo McCullough.
 
 **Synopsis**: Two orphans are adopted by a "millionaire" woman, one being the woman's grandchild, the other being her secretary's orphaned son. The millionaires fortune is invested in stocks, so when telling her secretary to trade it for something more valuable, she finds out the stocks are worthless. The secretary finds out this stock-trading company was swindling. They go to the police with that information, but the police prosecution costs 10,000 dollars. They have that money saved, but didn't have enough. The millionaire finds out, finds out where these officers are located, finds out they are scheming without arresting them, finds out how much it costs, finds out where the money is, finds out about the grandchild's great dane, finds out about her secretary's lost dane, finds out where this dog was hiding, finds out about their plan, finds out how to stop these officers, finds out where she should go, finds out how much she should shout, finds out the doctor's name, finds out who he really is, finds out that he is el el doctor, finds out that doctor didn't marry the millionaire's sister, finds out that doctor lied about these marriages. She finds out he is the real doctor, finds out that doctor is standing, finds out where doctor stands, finds out why doctor stands, finds out these reasons. The doctor finds the millionaire, finds the rich woman's child, finds what she finds, finds out what she finds, finds out that these officers are, finds out that they are scheming, finds out that they are. The doctor finds out that they are scheming, finds out about the grandchild's great dane, finds out about her secretary
 
@@ -4299,7 +4301,7 @@ Wikipedia: [The Scoffer](https://en.wikipedia.org/wiki/The%20Scoffer)
 
 ## Scratch My Back
 
-_Scratch My Back_ is a comedy movie directed by Sidney Olcott. It stars Helene Chadwick and T. Roy Barnes.
+*Scratch My Back* is a comedy directed by Sidney Olcott. It stars Helene Chadwick and T. Roy Barnes.
 
 **Synopsis**: A polio victim must find a new job to keep up with the payments for the therapy he needs for his paralysis. He does everything he can to woo Selah Gray, the richest girl in town, but her cruel taunts make him hers.
 
@@ -4311,7 +4313,7 @@ Wikipedia: [Scratch My Back](https://en.wikipedia.org/wiki/Scratch%20My%20Back%2
 
 ## The Scuttlers
 
-_The Scuttlers_ is a drama movie directed by J. Gordon Edwards. It stars William Farnum and Jackie Saunders.
+*The Scuttlers* is a drama directed by J. Gordon Edwards. It stars William Farnum and Jackie Saunders.
 
 **Synopsis**: A guy reporter turns up in a small town and meets a couple of locals and an old and distinguished and wealthy and powerful and sexy and mysterious and maybe possible maybe possible widow who may not be dead and who helps him break a story she needs help with.
 
@@ -4325,7 +4327,7 @@ Wikipedia: [The Scuttlers](https://en.wikipedia.org/wiki/The%20Scuttlers)
 
 ## The Sea Rider
 
-_The Sea Rider_ is a drama movie directed by Edwin L. Hollywood. It stars Harry T. Morey and Alice Calhoun.
+*The Sea Rider* is a drama directed by Edwin L. Hollywood. It stars Harry T. Morey and Alice Calhoun.
 
 **Synopsis**: The Sea Rider is a drama movie directed by Edwin L. Hollywood. It stars Harry T. Morey and Alice Calhoun.
 
@@ -4333,7 +4335,7 @@ Wikipedia: [The Sea Rider](https://en.wikipedia.org/wiki/The%20Sea%20Rider)
 
 ## The Sea Wolf
 
-_The Sea Wolf_ is a drama movie directed by George Melford. It stars Noah Beery, Raymond Hatton, and Mabel Julienne Scott.
+*The Sea Wolf* is a drama directed by George Melford. It stars Noah Beery, Raymond Hatton, and Mabel Julienne Scott.
 
 **Synopsis**: The Sea Wolf tells the story of Sir Philip (Noah Beery), Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir Sir
 
@@ -4341,7 +4343,7 @@ Wikipedia: [The Sea Wolf](https://en.wikipedia.org/wiki/The%20Sea%20Wolf%20%2819
 
 ## The Secret Gift
 
-_The Secret Gift_ is a drama movie directed by Harry L. Franklin. It stars Gladys Walton and Lee Kohlmar.
+*The Secret Gift* is a drama directed by Harry L. Franklin. It stars Gladys Walton and Lee Kohlmar.
 
 **Synopsis**: This drama centers on Queenie and Pete, a couple who lives in the Ghetto and has their worries and issues. They find solace and determination in caring for others, all people that are outsiders to society. Their desire for happiness is their secret gift that they bestow on others.
 
@@ -4349,7 +4351,7 @@ Wikipedia: [The Secret Gift](https://en.wikipedia.org/wiki/The%20Secret%20Gift)
 
 ## Seeds of Vengeance
 
-_Seeds of Vengeance_ is a drama movie directed by Oliver L. Sellers. It stars Bernard J. Durning and Eugenie Besserer.
+*Seeds of Vengeance* is a drama directed by Oliver L. Sellers. It stars Bernard J. Durning and Eugenie Besserer.
 
 **Synopsis**: Erik (Burger) Beringer has renounced his nationality and church side in order to groom two horses in Vermont and live in peace and endure his world's nighttime's winter's darkness. However, when a young girl (Virginia) and her mother (Eugenie) abruptly leave their Philadelphia-based home and respective controlling and cruel drunkard fathers (Durning and Besserer) in an attempt to make a fresh start in Vermont to live in peace and model their lives after what Erik lives, three raging forces of life converge: Erik's true love for Virginia and Eugenie and his former faith in the Holy Bible and the American way in the Post-9-11 and Post-Bush world.
 
@@ -4365,7 +4367,7 @@ Wikipedia: [Seeds of Vengeance](https://en.wikipedia.org/wiki/Seeds%20of%20Venge
 
 ## The Servant Question
 
-_The Servant Question_ is a comedy movie directed by Dell Henderson. It stars William Collier Sr. and Virginia Lee.
+*The Servant Question* is a comedy directed by Dell Henderson. It stars William Collier Sr. and Virginia Lee.
 
 **Synopsis**: To escape a life of poverty Owen Stocker purchases a servant. When the servant arrives on the train with her five brothers, Rebecca's Irish citizenship on his Irish passport, claiming to be Leah, is discovered, and the servant on the train is Owen's.
 
@@ -4377,7 +4379,7 @@ Wikipedia: [The Servant Question](https://en.wikipedia.org/wiki/The%20Servant%20
 
 ## Sex
 
-_Sex_ is a drama movie directed by Fred Niblo. It stars Louise Glaum, Irving Cummings, and Viola Barry.
+*Sex* is a drama directed by Fred Niblo. It stars Louise Glaum, Irving Cummings, and Viola Barry.
 
 **Synopsis**: A society girl gets involved with an aristocrat and they both fall in love. For their affair to be maintained, the woman agrees to follow his commands. The aristocrat, as a result, is mean and jealous. After the woman is insulted, they make up and the aristocrat leaves her. He tells her she is now free.
 
@@ -4385,7 +4387,7 @@ Wikipedia: [Sex](https://en.wikipedia.org/wiki/Sex%20%28film%29)
 
 ## The Shadow of Rosalie Byrnes
 
-_The Shadow of Rosalie Byrnes_ is a drama movie directed by George Archainbaud. It stars Elaine Hammerstein and Edward Langford.
+*The Shadow of Rosalie Byrnes* is a drama directed by George Archainbaud. It stars Elaine Hammerstein and Edward Langford.
 
 **Synopsis**: The old man tells the story of when his grandfather's beautiful young wife Rosalie Byrnes mysteriously became ill and died not long after their marriage. The family begins to believe that she was poisoned by Rosalie's old rejected beau, Laurence Broadbent, who traveled in smoke-filled opium dens in China, when they start recalling the curses placed on the Byrnes's fortune by Rosalie's gypsy ancestress, centuries ago.
 
@@ -4393,7 +4395,7 @@ Wikipedia: [The Shadow of Rosalie Byrnes](https://en.wikipedia.org/wiki/The%20Sh
 
 ## The Shark
 
-_The Shark_ is a drama movie directed by Dell Henderson. It stars George Walsh and Robert Broderick.
+*The Shark* is a drama directed by Dell Henderson. It stars George Walsh and Robert Broderick.
 
 **Synopsis**: In 1878, a son finds his father whom he thought had died in the Yellowstone. The father finds his son, and finds which life his son has lead in the wilderness.
 
@@ -4401,7 +4403,7 @@ Wikipedia: [The Shark](https://en.wikipedia.org/wiki/The%20Shark%20%281920%20fil
 
 ## She Couldn't Help It
 
-_She Couldn't Help It_ is a comedy movie directed by Maurice S. Campbell. It stars Bebe Daniels and Emory Johnson.
+*She Couldn't Help It* is a comedy directed by Maurice S. Campbell. It stars Bebe Daniels and Emory Johnson.
 
 **Synopsis**: A struggling mother of five is sent to an island to look for a runaway friend with a reward of $500.
 
@@ -4416,7 +4418,7 @@ Wikipedia: [She Couldn't Help It](https://en.wikipedia.org/wiki/She%20Couldn%27t
 
 ## She Loves and Lies
 
-_She Loves and Lies_ is a comedy drama movie directed by Chester Withey. It stars Norma Talmadge and Conway Tearle.
+*She Loves and Lies* is a comedy drama directed by Chester Withey. It stars Norma Talmadge and Conway Tearle.
 
 **Synopsis**: Hank and Dolly, two shopkeepers in the fictional town of Newburg, are in love and plan to get married. Hank must ask his friend, Judge Crosby, for help. Crosby turns the tables on Hank and then does everything in his power to drive a wedge between Hank and Dolly.
 
@@ -4424,9 +4426,11 @@ Wikipedia: [She Loves and Lies](https://en.wikipedia.org/wiki/She%20Loves%20and%
 
 ## Shod with Fire
 
-_Shod with Fire_ is a western movie directed by Emmett J. Flynn. It stars William Russell and Helen Ferguson.
+*Shod with Fire* is a western directed by Emmett J. Flynn. It stars William Russell and Helen Ferguson.
 
 **Synopsis**: This silent feature documents the quest of a lone rebel cowboy in a frontier town in search of a girl who was abducted by Indians.
+
+
 
 A lone cowboy wanders into a frontier town and hears tell that a girl has been abducted by an Indian assailant. He volunteers to go after her and seeks the help of a friendly sheriff who has a good horse in a trade. The sheriff is injured in a shootout with a deputy in a bank robbery, so he jumps from a balcony. Jack Jack rides his horse to rescue the girl from the Indians and take her back to the town.
 
@@ -4436,7 +4440,7 @@ Wikipedia: [Shod with Fire](https://en.wikipedia.org/wiki/Shod%20with%20Fire)
 
 ## Shore Acres
 
-_Shore Acres_ is a drama movie directed by Rex Ingram. It stars Alice Lake and Robert D. Walker.
+*Shore Acres* is a drama directed by Rex Ingram. It stars Alice Lake and Robert D. Walker.
 
 **Synopsis**: Shore Acres tells the story of a group of eccentric beach dwellers on Long Island who plot against their unscrupulous landlord.
 
@@ -4446,7 +4450,7 @@ Wikipedia: [Shore Acres](https://en.wikipedia.org/wiki/Shore%20Acres%20%281920%2
 
 ## Sick Abed
 
-_Sick Abed_ is a comedy movie directed by Sam Wood. It stars Wallace Reid and Bebe Daniels.
+*Sick Abed* is a comedy directed by Sam Wood. It stars Wallace Reid and Bebe Daniels.
 
 **Synopsis**: A woman catches her before wedded husband passionately kissing his nurse and she leaves him. He scrambles for someone else to marry. She's afraid she's fallen too fast for another before she's over her first and he and goes and marries someone else and becomes pregnant.
 
@@ -4454,7 +4458,7 @@ Wikipedia: [Sick Abed](https://en.wikipedia.org/wiki/Sick%20Abed)
 
 ## The Silent Barrier
 
-_The Silent Barrier_ is a drama movie directed by William Worthington. It stars Sheldon Lewis and Corinne Barker.
+*The Silent Barrier* is a drama directed by William Worthington. It stars Sheldon Lewis and Corinne Barker.
 
 **Synopsis**: William Worthington is an inmate on the train of the prison. He meets Marilyn, an immigrant girl who is on the journey of becoming an American. There was an incident on the train, an emergency brake, and the emergency brake completes its task. Suddenly, the emergency brake fails.
 
@@ -4462,7 +4466,7 @@ Wikipedia: [The Silent Barrier](https://en.wikipedia.org/wiki/The%20Silent%20Bar
 
 ## Silk Hosiery
 
-_Silk Hosiery_ is a comedy movie directed by Fred Niblo. It stars Enid Bennett and Geoffrey Webb.
+*Silk Hosiery* is a comedy directed by Fred Niblo. It stars Enid Bennett and Geoffrey Webb.
 
 **Synopsis**: The story is about the main character's life when married to a much younger man.
 
@@ -4470,7 +4474,7 @@ Wikipedia: [Silk Hosiery](https://en.wikipedia.org/wiki/Silk%20Hosiery)
 
 ## Silk Husbands and Calico Wives
 
-_Silk Husbands and Calico Wives_ is a drama movie directed by Alfred E. Green. It stars House Peters and Mary Alden.
+*Silk Husbands and Calico Wives* is a drama directed by Alfred E. Green. It stars House Peters and Mary Alden.
 
 **Synopsis**: A respectable man decides to leave his hometown after he is labeled as the man who killed the towntete's pretty wife. His wife joins him, and together they become con artists, only two work.
 
@@ -4478,7 +4482,7 @@ Wikipedia: [Silk Husbands and Calico Wives](https://en.wikipedia.org/wiki/Silk%2
 
 ## The Silver Horde
 
-_The Silver Horde_ is an adventure movie directed by Frank Lloyd. It stars Myrtle Stedman and Betty Blythe.
+*The Silver Horde* is an adventure film directed by Frank Lloyd. It stars Myrtle Stedman and Betty Blythe.
 
 **Synopsis**: Mabel Wright is the daughter of a wealthy businessman who dies. Concerns arise she has inherited his shrew or evil traits. He leaves her a quarter of his fortune which will terminate if she doesn't marry six hunting companions who also receive sections. The other rich man declines the offer to make the attractive Mabel an honorable woman. She declines to wed the hunting party because she remains loyal to her old girlfriend who loves her.
 
@@ -4486,11 +4490,11 @@ Wikipedia: [The Silver Horde](https://en.wikipedia.org/wiki/The%20Silver%20Horde
 
 ## Simple Souls
 
-_Simple Souls_ is a drama movie directed by Robert Thornby. It stars Blanche Sweet and Charles Meredith.
+*Simple Souls* is a drama directed by Robert Thornby. It stars Blanche Sweet and Charles Meredith.
 
-**Synopsis**: A young girl has a terrible secret, she feeds on the souls of old people and steals their memories.
+**Synopsis**: A young girl has a terrible secret, she feeds on the souls of old people and steals their memories. 
 
-The worst part is that she's unaware of this burgeoning talent and the hypnotic allure her beauty and dark power is having on her unsuspecting victims. Suddenly, no one seems safe and someone has to stop her before she destroys the life and relationship of her devoted boyfriend and perfect girlfriend.
+The worst part is that she's unaware of this burgeoning talent and the hypnotic allure her beauty and dark power is having on her unsuspecting victims. Suddenly, no one seems safe and someone has to stop her before she destroys the life and relationship of her devoted boyfriend and perfect girlfriend. 
 
 But how can anyone stop her, if she doesn't even know she exists?
 
@@ -4504,7 +4508,7 @@ Wikipedia: [Simple Souls](https://en.wikipedia.org/wiki/Simple%20Souls)
 
 ## The Sin That Was His
 
-_The Sin That Was His_ is a drama movie directed by Hobart Henley. It stars William Faversham, Lucy Cotton, and Pedro de Cordoba.
+*The Sin That Was His* is a drama directed by Hobart Henley. It stars William Faversham, Lucy Cotton, and Pedro de Cordoba.
 
 **Synopsis**: The Sin that was His focuses on Judge Carlton‘s life. The film starts with him walking out of jail after serving time for the accidental killing of his wife. He briefly reunites with his daughter Gloria. Returning to work, he comes to find that an ambitious politician has plans to convict Carlton‘s client to influence the jury.
 
@@ -4512,7 +4516,7 @@ Wikipedia: [The Sin That Was His](https://en.wikipedia.org/wiki/The%20Sin%20That
 
 ## Sink or Swim
 
-_Sink or Swim_ is a comedy movie directed by Richard Stanton. It stars George Walsh and Enid Markey.
+*Sink or Swim* is a comedy directed by Richard Stanton. It stars George Walsh and Enid Markey.
 
 **Synopsis**: As an impoverished teen, Queenie is abandoned by her aunt and uncle and left to fend for herself on the streets. Arriving at a birthday party with plans to feed herself and find a pillow so she can sleep on the roof of a clothing store, she answers a personal ad to be a caretaker and meets an older and eccentric man and his prize Airedale.
 
@@ -4520,13 +4524,13 @@ Wikipedia: [Sink or Swim](https://en.wikipedia.org/wiki/Sink%20or%20Swim%20%2819
 
 ## Sinners
 
-_Sinners_ is a drama movie directed by Kenneth Webb. It stars Alice Brady and Augusta Anderson.
+*Sinners* is a drama directed by Kenneth Webb. It stars Alice Brady and Augusta Anderson.
 
 **Synopsis**: A film about a female drama teacher who is fired for a line in her play is a nice woman and struggles with a temptation to cheat on her devoted, hard-working husband with a handsome, refined stranger.
 
-Janet Vivens is a graduate from the Chicago's Gabriel School of Drama and Theatre and aspires to teach. She enters as a chorus member into a stock company and took on dramatics as a side occupation. Faced with the daily loneliness stemming from an unrequited love for the handsome J.W Parsons who is also enlisted as dramatics partner, she decided turn the tables and fall in love with him, feeling frustrated and disappointed when he refuses her.
+Janet Vivens is a graduate from the Chicago's Gabriel School of Drama and Theatre and aspires to teach. She enters as a chorus member into a stock company and took on dramatics as a side occupation. Faced with the daily loneliness stemming from an unrequited love for the handsome J.W Parsons who is also enlisted as dramatics partner, she decided turn the tables and fall in love with him, feeling frustrated and disappointed when he refuses her. 
 
-She volunteered as a drama participant and directs a one-act play, called "Sinners", for a country amateur theatre tournament she wrote. The contest's prize is $500. She had submitted a lengthy biographical sketch for the tournament and her instructor Professor Craig Clayton had no idea that she was the Janet Vivens who varied with him on the issue of the conflictless play after it had been staged. He fires her.
+She volunteered as a drama participant and directs a one-act play, called "Sinners", for a country amateur theatre tournament she wrote. The contest's prize is $500. She had submitted a lengthy biographical sketch for the tournament and her instructor Professor Craig Clayton had no idea that she was the Janet Vivens who varied with him on the issue of the conflictless play after it had been staged. He fires her. 
 
 Janet, desperate to redeem herself, tries to persuade the whole company of the theatre company of professional players and professional staff to be convincing and present originality, and she has J.W Parsons there to help her. Her husband goes without her.
 
@@ -4536,7 +4540,7 @@ Wikipedia: [Sinners](https://en.wikipedia.org/wiki/Sinners%20%281920%20film%29)
 
 ## The Sins of Rosanne
 
-_The Sins of Rosanne_ is a drama movie directed by Tom Forman. It stars Ethel Clayton, Jack Holt, and Fontaine La Rue.
+*The Sins of Rosanne* is a drama directed by Tom Forman. It stars Ethel Clayton, Jack Holt, and Fontaine La Rue.
 
 **Synopsis**: Looking back on her beautiful transformation, Rosanne manages to have insight on how to best help others avoid the same fate of drugs, sex, & the fast life.
 
@@ -4546,7 +4550,7 @@ Wikipedia: [The Sins of Rosanne](https://en.wikipedia.org/wiki/The%20Sins%20of%2
 
 ## The Sins of St. Anthony
 
-_The Sins of St. Anthony_ is a comedy movie directed by James Cruze. It stars Bryant Washburn and Lucien Littlefield.
+*The Sins of St. Anthony* is a comedy directed by James Cruze. It stars Bryant Washburn and Lucien Littlefield.
 
 **Synopsis**: A group of gamblers are being framed for murdering their notorious slum landlord. While there are many suspects are eligible for the crime, the gambler who devised the plan to frame the others is the only person who keeps popping up at the crime scene
 
@@ -4558,7 +4562,7 @@ Wikipedia: [The Sins of St. Anthony](https://en.wikipedia.org/wiki/The%20Sins%20
 
 ## A Sister to Salome
 
-_A Sister to Salome_ is a drama movie directed by Edward LeSaint. It stars Gladys Brockwell and Edwin B. Tilton.
+*A Sister to Salome* is a drama directed by Edward LeSaint. It stars Gladys Brockwell and Edwin B. Tilton.
 
 **Synopsis**: A Salome (Gladys Brockwell) kidnaps the daughter of the doctor (Edwin B. Tilton) who treated her badly, to be sheltered in an old mansion, but her heart cannot stand the evil that dominates there. She returns the child to the doctor, who again treats her badly, because he thinks he owes her nothing. The doctor's conscience accuses him, though, and he set out to find Salome. He finds her pregnant and destitute. Having acted unselfishly, he offers her refuge for the birth of her child - where both will be safe.
 
@@ -4566,7 +4570,7 @@ Wikipedia: [A Sister to Salome](https://en.wikipedia.org/wiki/A%20Sister%20to%20
 
 ## The Six Best Cellars
 
-_The Six Best Cellars_ is a comedy movie directed by Donald Crisp. It stars Wanda Hawley and Bryant Washburn.
+*The Six Best Cellars* is a comedy directed by Donald Crisp. It stars Wanda Hawley and Bryant Washburn.
 
 **Synopsis**: Six drunken dads decide to compare their cars at a tavern. The men compare their cars in categories of gas mileage, built-in navigation units, trunk space, and horsepower.
 
@@ -4574,7 +4578,7 @@ Wikipedia: [The Six Best Cellars](https://en.wikipedia.org/wiki/The%20Six%20Best
 
 ## The Skywayman
 
-_The Skywayman_ is a drama movie directed by James P. Hogan. It stars Ormer Locklear and Louise Lovely.
+*The Skywayman* is a drama directed by James P. Hogan. It stars Ormer Locklear and Louise Lovely.
 
 **Synopsis**: After the death of his father, Mitch lives in the American plains with his cousin Clark. Mitch's mother wasn't able to take Mitch because of family responsibility, so Mitch is close to his cousin, but he is lonely. Clark brings back a nuisance hawk to Mitch's house, then one day the hawk brings up the Hawk. The bird undergoes transformations, then lures Mitch to enter into his past life. The Hawk takes Mitch to Chaco Canyon in the 12th century. Mitch is suddenly living his life with his brother Wayna who lives in New Mexico. At the same time, Mitch falls in love with Yaya for the first time. The three siblings try to prevent invaders from leaving their land, but they don't succeed. The invaders are the ones who migrated to the American plains. 117 years later, Mitch is reincarnated as his own son.
 
@@ -4582,7 +4586,7 @@ Wikipedia: [The Skywayman](https://en.wikipedia.org/wiki/The%20Skywayman)
 
 ## A Slave of Vanity
 
-_A Slave of Vanity_ is a drama movie directed by Henry Otto. It stars Pauline Frederick, Arthur Hoyt, and Nigel Barrie.
+*A Slave of Vanity* is a drama directed by Henry Otto. It stars Pauline Frederick, Arthur Hoyt, and Nigel Barrie.
 
 **Synopsis**: A Slave of Vanity is a successful play written by Edith Newgrove. On the night of the opening, Cyril Westhoff goes on stage dressed wrong. When he goes backstage, all of the actors are gone because Newgrove refuses to work with anyone who has any connection to Westhoff. The next day, the whole cast quit. Out of desperation, Newgrove takes the play on the road. The cast includes two waitresses, an engineer, and others, who each fill in where needed. The play gradually builds in success.
 
@@ -4594,11 +4598,11 @@ Wikipedia: [A Slave of Vanity](https://en.wikipedia.org/wiki/A%20Slave%20of%20Va
 
 ## Slaves of Pride
 
-_Slaves of Pride_ is a drama movie directed by George Terwilliger. It stars Alice Joyce and Percy Marmont.
+*Slaves of Pride* is a drama directed by George Terwilliger. It stars Alice Joyce and Percy Marmont.
 
-**Synopsis**: A dramatized movie in which a community in Maine have to face how the Civil War has strained their political beliefs. Alice Joyce, Ethel Barrymore, Lynn Fontanne star.
+**Synopsis**: A dramatized movie in which a community in Maine have to face how the Civil War has strained their political beliefs. Alice Joyce, Ethel Barrymore, Lynn Fontanne star. 
 
-Slaves of Pride is about a community in Maine with tensions surrounding the Civil War.
+Slaves of Pride is about a community in Maine with tensions surrounding the Civil War. 
 
 Who stars in this film?
 
@@ -4608,7 +4612,7 @@ Wikipedia: [Slaves of Pride](https://en.wikipedia.org/wiki/Slaves%20of%20Pride)
 
 ## The Slim Princess
 
-_The Slim Princess_ is a comedy movie directed by Victor Schertzinger. It stars Mabel Normand and Tully Marshall.
+*The Slim Princess* is a comedy directed by Victor Schertzinger. It stars Mabel Normand and Tully Marshall.
 
 **Synopsis**: The movie starts with Mable Normand's character, the Slim Princess, being locked in chains in Nicks' furniture store because she was not able to pay for her furniture. Soon enough, her arch nemesis Tramp Trigg shows up to taunt her. However, once he sees her in her robe, he falls in love with her. While he's in love with her, she convinces him to marry her in the name of pity.
 
@@ -4618,7 +4622,7 @@ Wikipedia: [The Slim Princess](https://en.wikipedia.org/wiki/The%20Slim%20Prince
 
 ## Smoldering Embers
 
-_Smoldering Embers_ is a drama movie directed by Frank Keenan. It stars Frank Keenan, Jay Belasco, and Katherine Van Buren.
+*Smoldering Embers* is a drama directed by Frank Keenan. It stars Frank Keenan, Jay Belasco, and Katherine Van Buren.
 
 **Synopsis**: An introduction into what it might me like to grow up with the challenging and unpredictable reality that comes with living with a parent in a minimum-security prison. This is the story of what it means for a child to struggle with the isolation and stigma of having a parent incarcerated.
 
@@ -4626,7 +4630,7 @@ Wikipedia: [Smoldering Embers](https://en.wikipedia.org/wiki/Smoldering%20Embers
 
 ## So Long Letty
 
-_So Long Letty_ is a comedy movie directed by Al Christie. It stars Colleen Moore and Walter Hiers.
+*So Long Letty* is a comedy directed by Al Christie. It stars Colleen Moore and Walter Hiers.
 
 **Synopsis**: A maid who is out of work decides to change her whole life, but it turns out the only job she can get is working in a beauty salon.
 
@@ -4638,11 +4642,11 @@ Wikipedia: [So Long Letty](https://en.wikipedia.org/wiki/So%20Long%20Letty%20%28
 
 ## Someone in the House
 
-_Someone in the House_ is a drama movie directed by John Ince. It stars Edmund Lowe and Vola Vale.
+*Someone in the House* is a drama directed by John Ince. It stars Edmund Lowe and Vola Vale.
 
 **Synopsis**: George McCord, a famous detective from the Sherlock Holmes lore, heads to Pasadena to help his niece find a stolen prize bull terrier.
 
-In this drama, George McCord--a famous detective from the Sherlock Holmes lore--heads to Pasadena to help his niece find a stolen prize bull terrier, Pirelli. The day he arrives, the dog is found, but before he can head back to New York, he is requested to snoop around suspected blackmailers. A movie adaption of the 1929 novel by Leslie McFarlane, Someone in the House was originally released on November 2, 1927.
+In this drama, George McCord--a famous detective from the Sherlock Holmes lore--heads to Pasadena to help his niece find a stolen prize bull terrier, Pirelli. The day he arrives, the dog is found, but before he can head back to New York, he is requested to snoop around suspected blackmailers. A movie adaption of the 1929 novel by Leslie McFarlane, Someone in the House was originally released on November 2, 1927. 
 
 Hell Stood Still is a film adaption of the 1910 Broadway play by W. Somerset Maugham that premiered on July 17, 1931.
 
@@ -4650,7 +4654,7 @@ Wikipedia: [Someone in the House](https://en.wikipedia.org/wiki/Someone%20in%20t
 
 ## Something Different
 
-_Something Different_ is a drama movie directed by Roy William Neill. It stars Constance Binney, Lucy Fox, and Ward Crane.
+*Something Different* is a drama directed by Roy William Neill. It stars Constance Binney, Lucy Fox, and Ward Crane.
 
 **Synopsis**: Lucy Fox inherits a small fortune, but her guardian, Peter Walker, insists she give it to him. When his henchmen threaten her assistant, Morella, Lucy tells her she is going off to Paris. Once she arrives, she spends the next few weeks on the voyage, on the boulevard, at the opera, reading Zola on the long, rainy afternoons on the Seine. When the henchmen insist the money be handed over, Lucy has idea on how to handle them.
 
@@ -4658,7 +4662,7 @@ Wikipedia: [Something Different](https://en.wikipedia.org/wiki/Something%20Diffe
 
 ## Something to Think About
 
-_Something to Think About_ is a drama movie directed by Cecil B. DeMille. It stars Elliott Dexter, Gloria Swanson, and Monte Blue.
+*Something to Think About* is a drama directed by Cecil B. DeMille. It stars Elliott Dexter, Gloria Swanson, and Monte Blue.
 
 **Synopsis**: Jim Absolon is a hopeless romantic, trying to find the perfect girl. He meets Tracey while eating in a public park, and initially approaches her with a series of friendly questions. When she tells him she is a model and some time for a new boyfriend just does not fit into her busy schedule, he takes it all in good humor. They end up spending the afternoon together, and the polite, desperate Romeo walked her up to her apartment door, punctuating his actions with his favorite line, "You know, the carnival dance man walks backwards." As she reaches for the doorknob, she turns and asks him to kiss her, and he refuses.
 
@@ -4668,9 +4672,9 @@ Wikipedia: [Something to Think About](https://en.wikipedia.org/wiki/Something%20
 
 ## The Song of the Soul
 
-_The Song of the Soul_ is a drama movie directed by John W. Noble. It stars Vivian Martin and Fritz Leiber.
+*The Song of the Soul* is a drama directed by John W. Noble. It stars Vivian Martin and Fritz Leiber.
 
-**Synopsis**: In this cryptic drama, a young woman visits a fortune teller expecting to hear a prediction, but instead receives a series of contemplative guidance about how to enjoy her life.
+**Synopsis**: In this cryptic drama, a young woman visits a fortune teller expecting to hear a prediction, but instead receives a series of contemplative guidance about how to enjoy her life. 
 
 "The Song of the Soul" tells the story of a young woman who visits a fortune-teller in order to get a prediction, but instead receives a series of contemplative guidance about how to enjoy her life.
 
@@ -4682,7 +4686,7 @@ Wikipedia: [The Song of the Soul](https://en.wikipedia.org/wiki/The%20Song%20of%
 
 ## The Soul of Youth
 
-_The Soul of Youth_ is a drama movie directed by William Desmond Taylor. It stars Lewis Sargent and Lila Lee.
+*The Soul of Youth* is a drama directed by William Desmond Taylor. It stars Lewis Sargent and Lila Lee.
 
 **Synopsis**: The Soul of Youth is about a young man's desperation to provide for himself, his sister, and his father who is tired of having nothing.
 
@@ -4690,7 +4694,7 @@ Wikipedia: [The Soul of Youth](https://en.wikipedia.org/wiki/The%20Soul%20of%20Y
 
 ## Sooner or Later
 
-_Sooner or Later_ is a comedy movie directed by Wesley Ruggles. It stars Owen Moore and Seena Owen.
+*Sooner or Later* is a comedy directed by Wesley Ruggles. It stars Owen Moore and Seena Owen.
 
 **Synopsis**: Early 20th Century The story begins with two main characters, Jim Forbes who is a senior partner of a New York law firm. Forbes suspects his wife is having an affair with another man. Molly Moore, his secretary, is secretly filing his case information in order to blackmail him. Jim tries to expose his wife's affair with bribery, but Molly manages to convince him otherwise.
 
@@ -4704,7 +4708,7 @@ Wikipedia: [Sooner or Later](https://en.wikipedia.org/wiki/Sooner%20or%20Later%2
 
 ## The Spirit of Good
 
-_The Spirit of Good_ is a drama movie directed by Paul Cazeneuve. It stars Madlaine Traverse and Dick La Reno.
+*The Spirit of Good* is a drama directed by Paul Cazeneuve. It stars Madlaine Traverse and Dick La Reno.
 
 **Synopsis**: Marc and Joe, two Americans meet again after ten years to close a business transaction. Marc is already married and has a fulfilling life, while Joe is dissatisfied with his public service job. They meet for dinner and tension slowly mounts as remarks and feelings escalate to their past time of acting out fantasies of lust and violence.
 
@@ -4712,7 +4716,7 @@ Wikipedia: [The Spirit of Good](https://en.wikipedia.org/wiki/The%20Spirit%20of%
 
 ## A Splendid Hazard
 
-_A Splendid Hazard_ is a drama movie directed by Allan Dwan. It stars Henry B. Walthall and Rosemary Theby.
+*A Splendid Hazard* is a drama directed by Allan Dwan. It stars Henry B. Walthall and Rosemary Theby.
 
 **Synopsis**: An innocent man gets involved in the wild and vicious world of boxing and gambling and has to choose whether to turn his back and abandon it all or stay to fight for his manhood.
 
@@ -4720,7 +4724,7 @@ Wikipedia: [A Splendid Hazard](https://en.wikipedia.org/wiki/A%20Splendid%20Haza
 
 ## The Sporting Duchess
 
-_The Sporting Duchess_ is a drama movie directed by George Terwilliger. It stars Alice Joyce and Percy Marmont.
+*The Sporting Duchess* is a drama directed by George Terwilliger. It stars Alice Joyce and Percy Marmont.
 
 **Synopsis**: The Sporting Duke is a drama movie directed by George Terwilliger. It stars Alice Joyce and Percy Marmont. Give a synopsis of the movie.
 Profile: In this 1908 silent film produced by Kalem productions, Alice studies voice lessons from Professor Manning, a tyrant of an instructor who forces the child to sing through her lunch hour. Alice vows to win a singing competition that will earn a trip to Italy. Meanwhile, a circus troubadour, Gilbert Mack, is wooing her with his guitar outside of her home, and she soon succumbs to his charms, promising her father to have a ’serious talk with him'
@@ -4729,9 +4733,9 @@ Wikipedia: [The Sporting Duchess](https://en.wikipedia.org/wiki/The%20Sporting%2
 
 ## Square Shooter
 
-_Square Shooter_ is a western movie directed by Paul Cazeneuve. It stars Buck Jones and Charles K. French.
+*Square Shooter* is a western directed by Paul Cazeneuve. It stars Buck Jones and Charles K. French.
 
-**Synopsis**: Bandits killed the leader of a wagon train and plan to steal the gold the leader was carrying for paying off bandits and Native Americans and no one is willing to step in and stop the bandits. A bounty hunter who has ridden for months to get here and save the day.
+**Synopsis**: Bandits killed the leader of a wagon train and plan to steal the gold the leader was carrying for paying off bandits and Native Americans and no one is willing to step in and stop the bandits. A bounty hunter who has ridden for months to get here and save the day. 
 
 After watching this movie, describe the conclusion of the film.
 
@@ -4741,7 +4745,7 @@ Wikipedia: [Square Shooter](https://en.wikipedia.org/wiki/Square%20Shooter%20%28
 
 ## The Star Rover
 
-_The Star Rover_ is a drama movie directed by Edward Sloman. It stars Courtenay Foote and Thelma Percy.
+*The Star Rover* is a drama directed by Edward Sloman. It stars Courtenay Foote and Thelma Percy.
 
 **Synopsis**: A man is unjustly imprisoned for over a decade after being framed for a crime. After being released, he vows to clear his name and have revenge on those who conspired to put him behind bars.
 
@@ -4749,7 +4753,7 @@ Wikipedia: [The Star Rover](https://en.wikipedia.org/wiki/The%20Star%20Rover%20%
 
 ## The Stealers
 
-_The Stealers_ is a drama movie directed by Christy Cabanne. It stars William H. Tooker and Norma Shearer.
+*The Stealers* is a drama directed by Christy Cabanne. It stars William H. Tooker and Norma Shearer.
 
 **Synopsis**: Following a bank robbery that went sour in Michigan in 1938, a gang of criminals comes together to form a heist in Minnesota. They have a week to complete their task, despite being pursued by a Chicago detective working from Minnesota.
 Actors: Charles Russell, William Tooker, Norma Shearer, Chief Moose Moran, Chief of Detectives Charles Stingley, Chief of Detectives William Clark, Texas Guinan
@@ -4768,7 +4772,7 @@ Wikipedia: [The Stealers](https://en.wikipedia.org/wiki/The%20Stealers)
 
 ## The Stolen Kiss
 
-_The Stolen Kiss_ is a romance movie directed by Kenneth Webb. It stars Constance Binney and Rod La Rocque.
+*The Stolen Kiss* is a romance directed by Kenneth Webb. It stars Constance Binney and Rod La Rocque.
 
 **Synopsis**: A burglar steals a kiss with a housemaid, who mistakenly believes they are to be married.
 
@@ -4784,7 +4788,7 @@ Wikipedia: [The Stolen Kiss](https://en.wikipedia.org/wiki/The%20Stolen%20Kiss)
 
 ## Stolen Moments
 
-_Stolen Moments_ is a drama movie directed by James Vincent. It stars Rudolph Valentino and Marguerite Namara.
+*Stolen Moments* is a drama directed by James Vincent. It stars Rudolph Valentino and Marguerite Namara.
 
 **Synopsis**: Stolen Moments is a drama that explores the relationship of two lovers, Anna and Henri, following their romance from the very first meeting to the day they decide to separate.
 
@@ -4792,7 +4796,7 @@ Wikipedia: [Stolen Moments](https://en.wikipedia.org/wiki/Stolen%20Moments%20%28
 
 ## Stop Thief
 
-_Stop Thief_ is a comedy movie directed by Harry Beaumont. It stars Tom Moore, Hazel Daly, and Irene Rich.
+*Stop Thief* is a comedy directed by Harry Beaumont. It stars Tom Moore, Hazel Daly, and Irene Rich.
 
 **Synopsis**: A goon uses hotel room service to lure Brooke Wayne West into checking into the hotel. He then takes her purse out of the room with all her friends money. When she tells hotel security she gets into legal woman with lawyer Jim Tucker, but the rest of the gang then come to her rescue with different strategies.
 
@@ -4800,7 +4804,7 @@ Wikipedia: [Stop Thief](https://en.wikipedia.org/wiki/Stop%20Thief%20%28film%29)
 
 ## The Strange Boarder
 
-_The Strange Boarder_ is a comedy movie directed by Clarence G. Badger. It stars Will Rogers and Irene Rich.
+*The Strange Boarder* is a comedy directed by Clarence G. Badger. It stars Will Rogers and Irene Rich.
 
 **Synopsis**: Filthy Rich Halliday takes in Mrs. Clyde's long-lost, wayward nephew. Halliday is carefree with affluent friends in an exclusive Montana resort. Val Halliday has never seen so much decadence in all his years, until he starts drinking the water the resort provides free of charge to all customers. It turns out Rich's source was at one time silver mine, and when Val starts drinking it, he immediately becomes incredibly wealthy just like all the people he is with. When he finds out, however, he wants nothing to do with it anymore. So Halliday convinces him to just keep drinking the water until he stops.
 
@@ -4808,7 +4812,7 @@ Wikipedia: [The Strange Boarder](https://en.wikipedia.org/wiki/The%20Strange%20B
 
 ## The Street Called Straight
 
-_The Street Called Straight_ is a drama movie directed by Wallace Worsley. It stars Charles Clary, Naomi Childers, and Lawson Butt.
+*The Street Called Straight* is a drama directed by Wallace Worsley. It stars Charles Clary, Naomi Childers, and Lawson Butt.
 
 **Synopsis**: The Street Called Straight is a story about opposites attracting. A street fight draws a lot of attention to a ranch that the two parties left behind. Guns turn up at the scene, and they find out their children are dating. Conspiracy theories abound as the drama begins.
 
@@ -4816,7 +4820,7 @@ Wikipedia: [The Street Called Straight](https://en.wikipedia.org/wiki/The%20Stre
 
 ## Stronger Than Death (1920 film)
 
-_Stronger Than Death (1920 film)_ is a drama movie directed by Robert Z. Leonard. It stars Alla Nazimova and Charles Bryant.
+*Stronger Than Death (1920 film)* is a drama directed by Robert Z. Leonard. It stars Alla Nazimova and Charles Bryant.
 
 **Synopsis**: The Russian Revolution of 1917 is viewed through the perspective of a Russian émigré family caught up in the nightmare of the repressive reign of the Bolsheviks.
 
@@ -4824,9 +4828,11 @@ Wikipedia: [Stronger Than Death (1920 film)](https://en.wikipedia.org/wiki/Stron
 
 ## The Strongest
 
-_The Strongest_ is a drama movie directed by Raoul Walsh. It stars Renée Adorée and Harrison Hunter.
+*The Strongest* is a drama directed by Raoul Walsh. It stars Renée Adorée and Harrison Hunter.
 
 **Synopsis**: The Strongest is a drama film about a French-Canadian loggerger, Moses Carignan, who works during the early 20th century. He arrives in a new logging community after a fishing accident leaves him without a dependable partner. Moses struggles to fight his lowly status, but the only work he can find is as a lumberjack, with a meager company salary. He quickly falls in love with Carita, who works as a maid. They eventually marry, but she grows to despise the sound of tree-chopping despite their improved financial situation. Upon Carita's request, Moses agrees to stop logging and manages to earn enough money to support them as a barber. His wife's contentment proves short-lived, however, as Carita resorts to prostitution and soon dies as a result of a brawl between clients.
+
+
 
 French-Canadian loggerger Moses Carignan struggles for his status and for his wife's love.
 
@@ -4834,7 +4840,7 @@ Wikipedia: [The Strongest](https://en.wikipedia.org/wiki/The%20Strongest%20%28fi
 
 ## Suds
 
-_Suds_ is a comedy movie directed by John Francis Dillon. It stars Mary Pickford and Albert Austin.
+*Suds* is a comedy directed by John Francis Dillon. It stars Mary Pickford and Albert Austin.
 
 **Synopsis**: Mary Pickford stars as a doll factory creature called a "Sudsy Girl" who always gets dirty and takes down cute boy dolls with her. She wants a boy of her own but a greedy real estate man, played by Albert Austin, has a monopoly on them and wants to bribe her for her silence.
 
@@ -4844,7 +4850,7 @@ Wikipedia: [Suds](https://en.wikipedia.org/wiki/Suds%20%28film%29)
 
 ## Sundown Slim
 
-_Sundown Slim_ is a western movie directed by Val Paul. It stars Harry Carey and Charles Le Moyne.
+*Sundown Slim* is a western directed by Val Paul. It stars Harry Carey and Charles Le Moyne.
 
 **Synopsis**: The 1932 western movie Sundown Slim is about a group of criminals who have been robbing banks in the west. The tension in the group begins to mount over who will become the ‘big man’ or in charge in the community where they’ve been running.
 
@@ -4852,9 +4858,9 @@ Wikipedia: [Sundown Slim](https://en.wikipedia.org/wiki/Sundown%20Slim)
 
 ## Sunset Sprague
 
-_Sunset Sprague_ is a western movie directed by Paul Cazeneuve and Thomas N. Heffron. It stars Buck Jones, Patsy De Forest, and Henry Hebert.
+*Sunset Sprague* is a western directed by Paul Cazeneuve and Thomas N. Heffron. It stars Buck Jones, Patsy De Forest, and Henry Hebert.
 
-**Synopsis**: Dublin, a cowboy, heads off to a poker game to help a friend. He's robbed and hurt so the sheriff escorts him to a nearby fort. There they're ambushed.; Dublin captures the bad guy, but he turns out to be a detective from NYC out to close fort for U.S. Government. They duke it out but Trina, a fort prostitute, shoots detective. In jail, detective opens trunk and finds gold, then sets Dublin free.
+**Synopsis**: Dublin, a cowboy, heads off to a poker game to help a friend. He's robbed and hurt so the sheriff escorts him to a nearby fort. There they're ambushed.; Dublin captures the bad guy, but he turns out to be a detective from NYC out to close fort for U.S. Government. They duke it out but Trina, a fort prostitute, shoots detective. In jail, detective opens trunk and finds gold, then sets Dublin free. 
 "He was a crook - a crook from New York."
 
 It is a western story. Buck Jones is a cowboy who heads off to a poker game to help a friend. He is robbed and hurt so a sheriff escorts him to a fort. There they are ambushed and he captures the bad guy. The bad guy turns out to be a detective from New York out to close the fort for the U.S. government. They do battle, but Trina, a fort prostitute, shoots the detective. In jail, the detective is opening a trunk and finds gold, then sets Buck free. He was a crook – a crook from New York.
@@ -4863,7 +4869,7 @@ Wikipedia: [Sunset Sprague](https://en.wikipedia.org/wiki/Sunset%20Sprague)
 
 ## Sweet Lavender
 
-_Sweet Lavender_ is a drama movie directed by Paul Powell. It stars Mary Miles Minter, Sylvia Ashton, and Milton Sills.
+*Sweet Lavender* is a drama directed by Paul Powell. It stars Mary Miles Minter, Sylvia Ashton, and Milton Sills.
 
 **Synopsis**: Two sisters with different ambitions find themselves entwined with the man of their dreams in this romantic drama.
 
@@ -4871,7 +4877,7 @@ Wikipedia: [Sweet Lavender](https://en.wikipedia.org/wiki/Sweet%20Lavender%20%28
 
 ## The Tattlers
 
-_The Tattlers_ is a drama movie directed by Howard M. Mitchell. It stars Madlaine Traverse and Jack Rollens.
+*The Tattlers* is a drama directed by Howard M. Mitchell. It stars Madlaine Traverse and Jack Rollens.
 
 **Synopsis**: The Tattlers is a three-generation back story connecting a coming-of-age-in-1960s modern day drama. Naomi and Bobby Raisins live a sexually open lifestyle to their teenage son Casey. Casey has a complicated situation in a conservative town in a conservative state in a conservative country in a conservative period in a conservative time in a conservative culture in a conservative world. Casey is a teenager spending the summer at the beach when he falls in love with Margaret, a girl from a distant society that is much more familiar with Bobby and Naomi's lifestyle. Today's teenage audiences will be able to compare their lives with another generation's. Bobby and Naomi provide insight and coaching. Margaret and Casey teach each other about life and love.
 
@@ -4879,7 +4885,7 @@ Wikipedia: [The Tattlers](https://en.wikipedia.org/wiki/The%20Tattlers)
 
 ## His Temporary Wife
 
-_His Temporary Wife_ is a comedy movie directed by Joseph Levering. It stars Rubye De Remer, Edmund Breese, and Mary Boland.
+*His Temporary Wife* is a comedy directed by Joseph Levering. It stars Rubye De Remer, Edmund Breese, and Mary Boland.
 
 **Synopsis**: The movie takes place in the early twentieth century in the Midwest. There's a lady in a small town in Wisconsin whose husband died three years prior to the story. She's in a rush to clean out the house in order to sell it and in a desperate state in order to find a temporary husband that she can pay for in a year from now from a mail-order catalog so she can have a man's height to measure from in order for her quilts to be the exact height of the bed.
 
@@ -4887,7 +4893,7 @@ Wikipedia: [His Temporary Wife](https://en.wikipedia.org/wiki/His%20Temporary%20
 
 ## The Terror
 
-_The Terror_ is a western movie directed by Jacques Jaccard. It stars Tom Mix and Francelia Billington.
+*The Terror* is a western directed by Jacques Jaccard. It stars Tom Mix and Francelia Billington.
 
 **Synopsis**: Tom Mix plays a U.S. marshal who comes to a small western town with a prison wagon. He has been called upon to escort a crazed murderer played by Francelia Billington to a lunatic asylum in a bigger town later that night. The lunatic proves to be a tough assignment over the long ride due to her constant babbling and strange behaviour. The townsfolk—who clearly don’t want the lunatic to escape—inevitably arrive down a trail and a new complication arises. To keep them from seeing her, Tom Mix leaves his hat sitting atop the lunatic’s head. So his wagon arrives at the meeting place with the mad woman sitting on top of it wearing a cowboy hat.
 
@@ -4899,7 +4905,7 @@ Wikipedia: [The Terror](https://en.wikipedia.org/wiki/The%20Terror%20%281920%20f
 
 ## Terror Island
 
-_Terror Island_ is an adventure movie directed by James Cruze. It stars Harry Houdini and Lila Lee.
+*Terror Island* is an adventure film directed by James Cruze. It stars Harry Houdini and Lila Lee.
 
 **Synopsis**: Houdini, an escape artist who performs outlandish stunts exposing the intricacies of handcuffs, locks and chains deceives a small-town resident enough to receive a generous reward. Dissatisfied with his peonies, Houdini ends up back in the water every evening to better explore natural beauty of the area. After rendering an abusive German businessman powerless on a party boat, Houdini is forced to pracrtice his acts of escape on the local natives. When a pearl necklace indispensable to a friendly family of natives is wrongly stolen from them on New Year's Day, Houdini retrieves the delicate vessel from the greedy gaoler before his performance. Discovering the thief was on the island to buy and and sell and plunder and plunder and buy and buy and sell, Houdini and his native friends prevent the stolen pearls from leaving the island and Houdini sends this message to his own native countrymen living in Germany.
 
@@ -4907,7 +4913,7 @@ Wikipedia: [Terror Island](https://en.wikipedia.org/wiki/Terror%20Island)
 
 ## The Testing Block
 
-_The Testing Block_ is a western movie directed by Lambert Hillyer. It stars William S. Hart and Eva Novak.
+*The Testing Block* is a western directed by Lambert Hillyer. It stars William S. Hart and Eva Novak.
 
 **Synopsis**: Bill climbs up an old wooden staircase to buy breakfast rolls at his favorite German bakery. But he has to stoop to go in the door, as he's a bitterly angry old man. He readies himself for a fight as Luther Stark, the town bully, enters. The proprietor threatens to call the deputies because Bill owes him from a week ago. Bill says he'll call them too because Luther stole the last of his savings. Luther threatens Bill with a punch. Bill swings back, and an epic fistfight ensues.
 
@@ -4931,7 +4937,7 @@ Wikipedia: [The Testing Block](https://en.wikipedia.org/wiki/The%20Testing%20Blo
 
 ## The Texan
 
-_The Texan_ is a western movie directed by Lynn Reynolds. It stars Tom Mix and Gloria Hope.
+*The Texan* is a western directed by Lynn Reynolds. It stars Tom Mix and Gloria Hope.
 
 **Synopsis**: The Texan is a 30 minute seventh and last Tom Mix cliffhanger novel. Mix and Pat Savage return to Vance-Vale Ranch where two Eastern cowmen, Hill and Finch, want to buy the place for $15,000. They find out the previous owner hid its only well and the homesteaders refuse to sell. When an outlaw robs Finch, who is injured, Mix and Savage plan to take him to the sheriff, but Hill unexpectedly appears to get revenge, revealing himself as the wanted outlaw.
 
@@ -4939,7 +4945,7 @@ Wikipedia: [The Texan](https://en.wikipedia.org/wiki/The%20Texan%20%281920%20fil
 
 ## The Third Generation
 
-_The Third Generation_ is a drama movie directed by Henry Kolker. It stars Betty Blythe and Mahlon Hamilton.
+*The Third Generation* is a drama directed by Henry Kolker. It stars Betty Blythe and Mahlon Hamilton.
 
 **Synopsis**: A rebellious girl becomes the keeper of an unlikely bird during World War II. Ivor, the other stuffed bird her father gave her, takes her back to Paris to live with other stuffed animals.
 
@@ -4947,7 +4953,7 @@ Wikipedia: [The Third Generation](https://en.wikipedia.org/wiki/The%20Third%20Ge
 
 ## The Third Woman
 
-_The Third Woman_ is a drama movie directed by Charles Swickard. It stars Carlyle Blackwell, Louise Lovely, and Gloria Hope.
+*The Third Woman* is a drama directed by Charles Swickard. It stars Carlyle Blackwell, Louise Lovely, and Gloria Hope.
 
 **Synopsis**: When a woman disappears from a secluded house, a private detective investigates the person she used to be.
 
@@ -4955,7 +4961,7 @@ Wikipedia: [The Third Woman](https://en.wikipedia.org/wiki/The%20Third%20Woman%2
 
 ## The Thirteenth Commandment
 
-_The Thirteenth Commandment_ is a drama movie directed by Robert G. Vignola. It stars Ethel Clayton, Monte Blue, and Anna Q. Nilsson.
+*The Thirteenth Commandment* is a drama directed by Robert G. Vignola. It stars Ethel Clayton, Monte Blue, and Anna Q. Nilsson.
 
 **Synopsis**: The Thirteenth Commandment tells the story of a big-city girl who marries a farmer's son for his land. Her husband sells the land and runs off leaving her penniless with a baby. This is considered a tragedy in old Iowa, and she never gets a second chance at a happy life.
 
@@ -4963,7 +4969,7 @@ Wikipedia: [The Thirteenth Commandment](https://en.wikipedia.org/wiki/The%20Thir
 
 ## The Thirtieth Piece of Silver
 
-_The Thirtieth Piece of Silver_ is a drama movie directed by George L. Cox. It stars Margarita Fischer, King Baggot, and Forrest Stanley.
+*The Thirtieth Piece of Silver* is a drama directed by George L. Cox. It stars Margarita Fischer, King Baggot, and Forrest Stanley.
 
 **Synopsis**: A woman gets involved in the nefarious world of smuggling and smuggling and is ultimately forced to do the right thing.
 
@@ -4975,7 +4981,7 @@ Wikipedia: [The Thirtieth Piece of Silver](https://en.wikipedia.org/wiki/The%20T
 
 ## 39 East
 
-_39 East_ is a comedy movie directed by John S. Robertson. It stars Constance Binney and Reginald Denny.
+*39 East* is a comedy directed by John S. Robertson. It stars Constance Binney and Reginald Denny.
 
 **Synopsis**: Sheila Cole is a cable car driver in New England. She is waiting for the cable car to take her home when a man enters her vehicle and rapes her. Her attacker is a detective investigating a murder case involving a woman who was found dead with a cable car ticket in her hand. The detective follows a lead a follows a suspicious person or a cable car driver, and brings her into the station for questioning. The station is located at Howland and Main, hence the name of the station. With the help of her lover, an inspector, Sheila manages to bring down her rapist and regain her freedom.
 
@@ -4999,7 +5005,7 @@ Wikipedia: [39 East](https://en.wikipedia.org/wiki/39%20East)
 
 ## $30,000
 
-_$30,000_ is a drama movie directed by Ernest C. Warde. It stars J. Warren Kerrigan, Fritzi Brunette, and Carl Stockdale.
+*$30,000* is a drama directed by Ernest C. Warde. It stars J. Warren Kerrigan, Fritzi Brunette, and Carl Stockdale.
 
 **Synopsis**: A wealthy married man falls in love with a French countess while on vacation. After she stabs his mistress to death in a fit of jealousy, the man leaves his wife to marry the countess.
 
@@ -5013,7 +5019,7 @@ Wikipedia: [$30,000](https://en.wikipedia.org/wiki/%2430%2C000)
 
 ## The Tiger's Coat
 
-_The Tiger's Coat_ is a drama movie directed by Roy Clements. It stars Lawson Butt and Myrtle Stedman.
+*The Tiger's Coat* is a drama directed by Roy Clements. It stars Lawson Butt and Myrtle Stedman.
 
 **Synopsis**: A guardian is appointed to take care of Kitty, an aristocrat confined to an asylum, following the death of her brother. 17-year-old Kitty's state slowly changes when the guardian defends her Kitty's dignity and works to find her runaway sister.
 
@@ -5021,7 +5027,7 @@ Wikipedia: [The Tiger's Coat](https://en.wikipedia.org/wiki/The%20Tiger%27s%20Co
 
 ## Thou Art the Man
 
-_Thou Art the Man_ is a drama movie directed by Thomas N. Heffron. It stars Robert Warwick and Lois Wilson.
+*Thou Art the Man* is a drama directed by Thomas N. Heffron. It stars Robert Warwick and Lois Wilson.
 
 **Synopsis**: Harry Hughes, is an inventor who needs money to support his family and he stumbles across a document that someone had thrown away that explains how to end the slavery of cigarettes. The document has a few discrepancies that Harry types up and soon his brother-in-law convinces a cigar manufacturer to give Harry a payment in return for the document should it prove to be a fake. The entire supply of cigars burns down and Harry starts earning a lot of money as his own personal slavery.
 
@@ -5029,9 +5035,9 @@ Wikipedia: [Thou Art the Man](https://en.wikipedia.org/wiki/Thou%20Art%20the%20M
 
 ## A Thousand to One
 
-_A Thousand to One_ is a drama movie directed by Rowland V. Lee. It stars Hobart Bosworth and Ethel Grey Terry.
+*A Thousand to One* is a drama directed by Rowland V. Lee. It stars Hobart Bosworth and Ethel Grey Terry.
 
-**Synopsis**: A soldier out of touch with his wife for seven years meets her again only to find that she has remarried. He then kidnaps his ex-wife's daughter.
+**Synopsis**: A soldier out of touch with his wife for seven years meets her again only to find that she has remarried. He then kidnaps his ex-wife's daughter. 
 The movie was criticized for its showing of the kidnapping.
 
 What are the criticisms of the film?
@@ -5040,7 +5046,7 @@ Wikipedia: [A Thousand to One](https://en.wikipedia.org/wiki/A%20Thousand%20to%2
 
 ## The Tiger's Cub
 
-_The Tiger's Cub_ is a drama movie directed by Charles Giblyn. It stars Pearl White and John Davidson.
+*The Tiger's Cub* is a drama directed by Charles Giblyn. It stars Pearl White and John Davidson.
 
 **Synopsis**: Undine's childhood friend, a blind pianist, is very close to her family, who is also in a position of influence with the Japanese. Undine accepts an invitation from the Japanese to visit, but when she arrives in Japan, she is drafted into espionage.
 
@@ -5048,11 +5054,11 @@ Wikipedia: [The Tiger's Cub](https://en.wikipedia.org/wiki/The%20Tiger%27s%20Cub
 
 ## To Please One Woman
 
-_To Please One Woman_ is a drama movie directed by Lois Weber. It stars Claire Windsor and George Hackathorne.
+*To Please One Woman* is a drama directed by Lois Weber. It stars Claire Windsor and George Hackathorne.
 
 **Synopsis**: Giving an account of the relationship between Grace Harrod, an overworked waitress at a lake restaurant, and her factory-worker fiancé, John Crown. When John's working schedule changes so that he now works six days, and has weekends free, she talks him into quitting his job and they purchase a vacation lodge and take in summer lodgers. The lodge becomes immensely successful and they enjoy a vigorous and harmonious sex life until one evening when she caught him with a female lodger.
 
-John and Grace buy a lodge and take in lodgers to make money. Grace starts to mistrust John when she sees him with a lodger.
+John and Grace buy a lodge and take in lodgers to make money. Grace starts to mistrust John when she sees him with a lodger. 
 
 John relents and buys the lodge from Grace. John takes advantage of Grace by meddling in her personal life and even seducing her. John later regrets his deeds and works to repay Grace.
 
@@ -5064,9 +5070,9 @@ Wikipedia: [To Please One Woman](https://en.wikipedia.org/wiki/To%20Please%20One
 
 ## A Tokyo Siren
 
-_A Tokyo Siren_ is a drama movie directed by Norman Dawn. It stars Tsuru Aoki and Peggy Pearce.
+*A Tokyo Siren* is a drama directed by Norman Dawn. It stars Tsuru Aoki and Peggy Pearce.
 
-**Synopsis**: The film revolves around a group of people struggling to survive the aftermath of a news reporter losing her baby daughter. The story makes a certain point about what is needed to be done to become a good reporter.
+**Synopsis**: The film revolves around a group of people struggling to survive the aftermath of a news reporter losing her baby daughter. The story makes a certain point about what is needed to be done to become a good reporter. 
 
 The movie is about a news reporter who watches her own baby daughter grow up though a picture, but then she loses her daughter. She then becomes a reporter and a mother, and struggles to find a balance.
 
@@ -5078,7 +5084,7 @@ Wikipedia: [A Tokyo Siren](https://en.wikipedia.org/wiki/A%20Tokyo%20Siren)
 
 ## The Toll Gate
 
-_The Toll Gate_ is a western movie directed by Lambert Hillyer. It stars William S. Hart and Anna Q. Nilsson.
+*The Toll Gate* is a western directed by Lambert Hillyer. It stars William S. Hart and Anna Q. Nilsson.
 
 **Synopsis**: Western movie The Toll Gate directed by Lambert Hillyer. Features writer, actor William S. Hart and actress Anna Q. Nilsson. The movie tells the story of an outlaw gang led by J.P. Grayson (played by William S. Hart), who ride into the California town of Melwood. Grayson becomes the mayor of the town, romances its widow (played by Anna Q. Nilsson) and establishes toll gate on the main avenue. The citizens of the town must pay to get in and out. Grayson tries to find out who murdered his father at sun-set hill, but no one in the town will tell him, so he leaves to get justice.
 
@@ -5086,15 +5092,15 @@ Wikipedia: [The Toll Gate](https://en.wikipedia.org/wiki/The%20Toll%20Gate)
 
 ## The Tower of Jewels
 
-_The Tower of Jewels_ is a crime movie directed by Tom Terriss. It stars Corinne Griffith and Webster Campbell.
+*The Tower of Jewels* is a crime directed by Tom Terriss. It stars Corinne Griffith and Webster Campbell.
 
-**Synopsis**: A love triangle forms when a wealthy society matron falls in love with an attractive baron.
+**Synopsis**: A love triangle forms when a wealthy society matron falls in love with an attractive baron. 
 
 One hot summer afternoon, in the parlor of an elegant London abode, ladies in their silken gowns are gossiping.
 
 Jennie, the mistress of the house, with her husband Frank at her side, tells everyone that she's in love with Scipio, wealthily dressed, with wit and polish when he chooses, with the most perfect manners in society, but with troubled thoughts when pondering his future.
 
-She is contemplating marriage with this man, who is unknown in the community, and she is questioning the suitability of living in an exile's life in an "other" land.
+She is contemplating marriage with this man, who is unknown in the community, and she is questioning the suitability of living in an exile's life in an "other" land. 
 
 As she is discussing this with her friends, she is interrupted by the arrival of Dick, who is in love with her. It is instantly clear that his feelings are not reciprocated.
 
@@ -5110,7 +5116,7 @@ Wikipedia: [The Tower of Jewels](https://en.wikipedia.org/wiki/The%20Tower%20of%
 
 ## Treasure Island
 
-_Treasure Island_ is an adventure movie directed by Maurice Tourneur. It stars Lon Chaney and Shirley Mason.
+*Treasure Island* is an adventure film directed by Maurice Tourneur. It stars Lon Chaney and Shirley Mason.
 
 **Synopsis**: The pirate Captain Flint decides to conceal a treasure on a remote island, but a trio of Jim Hawkins' meddlesome allies discover the map of the treasure.
 
@@ -5122,7 +5128,7 @@ Wikipedia: [Treasure Island](https://en.wikipedia.org/wiki/Treasure%20Island%20%
 
 ## 3 Gold Coins
 
-_3 Gold Coins_ is a western movie directed by Clifford Smith. It stars Tom Mix and Margaret Loomis.
+*3 Gold Coins* is a western directed by Clifford Smith. It stars Tom Mix and Margaret Loomis.
 
 **Synopsis**: Tom Mix and the Loomis gang (three brothers and their sister who committed numerous thefts and murders and were chased and pursued perpetually by Sheriff Tom Paleface) head for a quiet cabin in the mountains so their wounds can heal. That is, until the brother Jimmy discovers the Sheriff is snowed in and they can't be tracked there. They start robbing again and eventually their crimes catch up with them.
 
@@ -5132,7 +5138,7 @@ Wikipedia: [3 Gold Coins](https://en.wikipedia.org/wiki/3%20Gold%20Coins)
 
 ## The Tree of Knowledge
 
-_The Tree of Knowledge_ is a drama movie directed by William C. deMille. It stars Robert Warwick, Kathlyn Williams, and Wanda Hawley.
+*The Tree of Knowledge* is a drama directed by William C. deMille. It stars Robert Warwick, Kathlyn Williams, and Wanda Hawley.
 
 **Synopsis**: A woman's deep pride for her handsome, intelligent sons slowly becomes fear, because she realizes her sons have also inherited her father's bad temper. One of the boys is eventually disgraced by senseless killings.
 
@@ -5140,7 +5146,7 @@ Wikipedia: [The Tree of Knowledge](https://en.wikipedia.org/wiki/The%20Tree%20of
 
 ## The Triflers
 
-_The Triflers_ is a drama movie directed by Christy Cabanne. It stars Edith Roberts and Forrest Stanley.
+*The Triflers* is a drama directed by Christy Cabanne. It stars Edith Roberts and Forrest Stanley.
 
 **Synopsis**: When the children of millionaires get too demanding, rich parents find themselves longing for some peace and quiet. A divorce negotiation becomes a battle rather than a settlement.
 
@@ -5150,11 +5156,11 @@ Wikipedia: [The Triflers](https://en.wikipedia.org/wiki/The%20Triflers%20%281920
 
 ## Trumpet Island
 
-_Trumpet Island_ is a drama movie directed by Tom Terriss. It stars Marguerite De La Motte and Wallace MacDonald.
+*Trumpet Island* is a drama directed by Tom Terriss. It stars Marguerite De La Motte and Wallace MacDonald.
 
 **Synopsis**: In 1906, trumpeter Wallace Fitzgerald is hung from a tree for refusing to play a soul song. Fitzgerald, a mute played by Wallace MacDonald, is a gentle soul who mournfully plays a trumpet. His soul is preserved by the power of his music. He’s a free soul. Perhaps that’s why he refuses to play a soulless soul song that landed him his nightly job at a peep show back in 1906. Being heard would starve his soul of the energy it needs. Unforeseen acts of violence catch him off guard and he is declared a monster throughout Beaumont Bay.
 
-In 1906, mute Wallace Fitzgerald is hung from a tree for refusing to play a soul song that was sold to him. Hanging, he is declared a monster and throughout Beaumont Bay his music is remembered and revered for their freedom and authenticity. Flash forward to 1977 where the author, Marguerite de la Motte, is hesitant to publish her book on Wallace Fitzgerald. She makes an animated short film of Wallace Fitzgerald’s time as a hole-in-one carousel trumpeter.
+In 1906, mute Wallace Fitzgerald is hung from a tree for refusing to play a soul song that was sold to him. Hanging, he is declared a monster and throughout Beaumont Bay his music is remembered and revered for their freedom and authenticity.  Flash forward to 1977 where the author, Marguerite de la Motte, is hesitant to publish her book on Wallace Fitzgerald. She makes an animated short film of Wallace Fitzgerald’s time as a hole-in-one carousel trumpeter. 
 
 Marguerite de la Motte, Wallace Fitzgerald's biographer for 1977, is hesitant to publish her book due to the social climate. The book's plot follows Wallace as he wages against trumpeter Roger Yardley and runs away with Susanna. Marguerite, with the use of animation and mixed-media, tells the story and eventual journey of Wallace and Yardley's revenge plot.
 
@@ -5164,7 +5170,7 @@ Wikipedia: [Trumpet Island](https://en.wikipedia.org/wiki/Trumpet%20Island)
 
 ## The Truth
 
-_The Truth_ is a comedy drama movie directed by Lawrence C. Windom. It stars Madge Kennedy and Thomas Carrigan.
+*The Truth* is a comedy drama directed by Lawrence C. Windom. It stars Madge Kennedy and Thomas Carrigan.
 
 **Synopsis**: A woman moves to the US from Ireland after meeting and marrying an Ivy League-graduate. After life in America takes a turn for the worst, she returns to Ireland on the morning of the new millennium. Rather than living in poverty and facing ridicule, she leads a double life; the affluent part while waiting on hope and the down and out.
 
@@ -5174,7 +5180,7 @@ Wikipedia: [The Truth](https://en.wikipedia.org/wiki/The%20Truth%20%281920%20fil
 
 ## The Truth About Husbands
 
-_The Truth About Husbands_ is a drama movie directed by Kenneth S. Webb. It stars Anna Lehr and Holmes Herbert.
+*The Truth About Husbands* is a drama directed by Kenneth S. Webb. It stars Anna Lehr and Holmes Herbert.
 
 **Synopsis**: Amy Jenks comes from a wealthy family. Her dad is a high-powered lawyer who knows the mayor, the governor, and Judge Samuels. During her divorce from Matt, a police officer, Amy’s dad hires a high-priced attorney to provide support. Women marry a police officers because they want a man daddy who will protect them. Women marry a police officers because they want a man daddy who will protect them. Women marry a police officers because they want a man who will protect them.
 
@@ -5182,7 +5188,7 @@ Wikipedia: [The Truth About Husbands](https://en.wikipedia.org/wiki/The%20Truth%
 
 ## The Turning Point
 
-_The Turning Point_ is a drama movie directed by J. A. Barry. It stars Katherine MacDonald and Nigel Barrie.
+*The Turning Point* is a drama directed by J. A. Barry. It stars Katherine MacDonald and Nigel Barrie.
 
 **Synopsis**: Ryan Wetherby (Cameron Burke) would like to share his life with his friends, supporting him on his coming-of-age, but Dad (Nigel Barrie) has plans for him on the family dairy farm. Enlisting the services of unpleasant Joyce (Katherine MacDonald) to make Ryan’s life hell, Ryan finally decides to outsmart his dad.
 
@@ -5190,7 +5196,7 @@ Wikipedia: [The Turning Point](https://en.wikipedia.org/wiki/The%20Turning%20Poi
 
 ## Twin Beds
 
-_Twin Beds_ is a comedy movie directed by Lloyd Ingraham. It stars Carter DeHaven, Flora Parker DeHaven, and Helen Raymond.
+*Twin Beds* is a comedy directed by Lloyd Ingraham. It stars Carter DeHaven, Flora Parker DeHaven, and Helen Raymond.
 
 **Synopsis**: Two brothers, Eugene and Irving Perkins, after many years apart, meet to discuss their inheritance. Eugene is traditional and Irving convinces his brother to seek to enjoy their last days.
 
@@ -5198,7 +5204,7 @@ Wikipedia: [Twin Beds](https://en.wikipedia.org/wiki/Twin%20Beds%20%281920%20fil
 
 ## Twins of Suffering Creek
 
-_Twins of Suffering Creek_ is a drama movie directed by Scott Dunlap. It stars William Russell and Louise Lovely.
+*Twins of Suffering Creek* is a drama directed by Scott Dunlap. It stars William Russell and Louise Lovely.
 
 **Synopsis**: Tom who was abused by his father growing up, jumps at the chance to find information about his sister's lover by paying off some old-time local cronies who are on heir last threads. His cunning scheme backfires when he bumps into an old acquaintance, Kevin, who is out of jail, but the son takes the bait. Ultimately, the truth is revealed of his father, Tom is able to forgive Tom's father, who is always repentant for his bad behaviors, and they all get to know the daughter.
 
@@ -5215,18 +5221,18 @@ Wikipedia: [Twins of Suffering Creek](https://en.wikipedia.org/wiki/Twins%20of%2
 
 ## Two Kinds of Love
 
-_Two Kinds of Love_ is a western movie directed by B. Reeves Eason. It stars Fontaine La Rue and George A. McDaniel.
+*Two Kinds of Love* is a western directed by B. Reeves Eason. It stars Fontaine La Rue and George A. McDaniel.
 
 **Synopsis**: Lafe Adams, a noted rodeo rider, drowns his sorrows in his hometown's favourite watering hole. Toward the end of the night he begins to exhibit signs of drunkenness and begins heckling the piano player. Mack Thompson, the bar-owner and piano player, is offended and fights Lafe Adams.
 
-Riding on their mutual disappointment, Mack Thompson and Sum Adams begin working on plots and schemes for ways to build their adventures and relationships. Mack Gilis is manipulating his relationships with women and gaining power, but very soon learns the consequences of becoming the naysayer
+Riding on their mutual disappointment, Mack Thompson and Sum Adams begin working on plots and schemes for ways to build their adventures and relationships. Mack Gilis is manipulating his relationships with women and gaining power, but very soon learns the consequences of becoming the naysayer 
 while Sum Adams' good nature and charm is constantly exploited and he constantly loses money. Eventually the two's love-hate relationship evolves into something else
 
 Wikipedia: [Two Kinds of Love](https://en.wikipedia.org/wiki/Two%20Kinds%20of%20Love%20%281920%20film%29)
 
 ## Two Moons
 
-_Two Moons_ is a western movie directed by Edward LeSaint. It stars Buck Jones and Carol Holloway.
+*Two Moons* is a western directed by Edward LeSaint. It stars Buck Jones and Carol Holloway.
 
 **Synopsis**: Bucky is an outlaw who rides with the Double M gang. He wants out so he can steal cattle at cattle drives. He is captured by his friend Hank, who is leading the cattle drive. When Hank is killed by being thrown off a horse, Bucky takes off with the cattle.
 
@@ -5238,7 +5244,7 @@ Wikipedia: [Two Moons](https://en.wikipedia.org/wiki/Two%20Moons%20%28film%29)
 
 ## Two Weeks
 
-_Two Weeks_ is a romantic comedy movie directed by Sidney Franklin. It stars Constance Talmadge and Conway Tearle.
+*Two Weeks* is a romantic comedy directed by Sidney Franklin. It stars Constance Talmadge and Conway Tearle.
 
 **Synopsis**: The story begins with Constance Talmadge's character arriving in Newport, Rhode Island during August with her father, Harold, for the music festival season. She is very bored with the routines of her life until she meets Conway Tearle, a struggling violinist up for the position of orchestra leader. They fall in love quickly and he goes to extreme measures to please her. Constance is quite happy until her brother's friend, Frederick, who is an up and coming violinist and accomplished composer, rushes to New York to play with her. They fall in love and his music and personality claim more and more of Constance's attention. He convinces her to break off her engagement and encourage Conway to marry her sister and go away. The men decide that the best way to decide is for Conway to keep serving as orchestra leader and Frederick to try to play as well as he can and then they will meet again. It turns out that Conway is seemingly not very good as an orchestra leader and Frederick turns out to be as good as he said he was. The situation grows more and more complicated for Conway and Constance and father and daughter finally come to an understanding.
 
@@ -5246,7 +5252,7 @@ Wikipedia: [Two Weeks](https://en.wikipedia.org/wiki/Two%20Weeks%20%281920%20fil
 
 ## Uncharted Channels
 
-_Uncharted Channels_ is a drama movie directed by Henry King. It stars H. B. Warner, [[Kathryn Adams (actress, Kathryn Adams]], and Sam de Grasse.
+*Uncharted Channels* is a drama directed by Henry King. It stars H. B. Warner, [[Kathryn Adams (actress, Kathryn Adams]], and Sam de Grasse.
 
 **Synopsis**: Uncharted Channels is a drama movie directed by Henry King. It stars H.B. Warner, Kathryn Adams, and Sam de Grasse.
 
@@ -5256,7 +5262,7 @@ Wikipedia: [Uncharted Channels](https://en.wikipedia.org/wiki/Uncharted%20Channe
 
 ## Under Crimson Skies
 
-_Under Crimson Skies_ is an adventure movie directed by Rex Ingram. It stars Elmo Lincoln, Mabel Ballin, and Harry von Meter.
+*Under Crimson Skies* is an adventure film directed by Rex Ingram. It stars Elmo Lincoln, Mabel Ballin, and Harry von Meter.
 
 **Synopsis**: "Julian Lagarde is the only inhabitant of the remote trading post at Far West after his father is betrayed and slaughtered. Government emissary Lieutenant Troy, sent to negotiate with the Sioux Indians living on the frontier, is one of the few who arrive with Lagardes. Julian falls in love with Troy, but soon finds himself fighting for his life when the Lieutenant falls victim to the hideous massacre."
 
@@ -5268,7 +5274,7 @@ Wikipedia: [Under Crimson Skies](https://en.wikipedia.org/wiki/Under%20Crimson%2
 
 ## Under Northern Lights
 
-_Under Northern Lights_ is a drama movie directed by Jacques Jaccard. It stars Tom London and Virginia Brown Faire.
+*Under Northern Lights* is a drama directed by Jacques Jaccard. It stars Tom London and Virginia Brown Faire.
 
 **Synopsis**: Dirk and Marissa are a middle class couple going through a rough point in their relationship, but they show up for a once-in-a-lifetime moose hunting expedition with a little personal baggage. Near a wintry lake, they meet a ghost-hunting American who offers them a different perspective on life.
 
@@ -5276,7 +5282,7 @@ Wikipedia: [Under Northern Lights](https://en.wikipedia.org/wiki/Under%20Norther
 
 ## Unseen Forces
 
-_Unseen Forces_ is a drama movie directed by Sidney Franklin. It stars Sylvia Breamer and Conrad Nagel.
+*Unseen Forces* is a drama directed by Sidney Franklin. It stars Sylvia Breamer and Conrad Nagel.
 
 **Synopsis**: Douglas Taylor is a professor at a small-town university. Taylor is a sociologist, who discovers a woman who has been accused of a crime and convicted without present at the proceedings. Taylor sympathizes with her, as she is a single mother and was already struggling financially. Taylor takes a leave of absence from the university and starts to investigate the system from within by influencing those who can help change it from being broken. Taylor now must now decide where he, his now imprisoned ally, and his new-born son can find a stable future.
 
@@ -5288,7 +5294,7 @@ Wikipedia: [Unseen Forces](https://en.wikipedia.org/wiki/Unseen%20Forces%20%28fi
 
 ## The Untamed
 
-_The Untamed_ is a western movie directed by Emmett J. Flynn. It stars Tom Mix and Pauline Starke.
+*The Untamed* is a western directed by Emmett J. Flynn. It stars Tom Mix and Pauline Starke.
 
 **Synopsis**: In this western, Mix plays a fugitive from justice who flees from Texas to Arizona. In Arizona he falls in with a corrupt sheriff who frames him for the murder of a rancher before turning him in to Arizona's chief bounty hunter who is trying to increase the number of outlaws to bring glory to the territory of Arizona. Mix manages to escape just before being hanged. He evades a posse and he captures the corrupt sheriff who is intent on wiping Mix and the innocent rancher off of the map just so that he can get a bounty for them. Eventually Starke, the corrupt sheriff's widow, turns her husband in. Mix is exonerated and the evil sheriff is hanged.
 
@@ -5296,7 +5302,7 @@ Wikipedia: [The Untamed](https://en.wikipedia.org/wiki/The%20Untamed%20%281920%2
 
 ## Up in Mary's Attic
 
-_Up in Mary's Attic_ is a comedy movie directed by William Watson. It stars Eva Novak and Harry Gribbon.
+*Up in Mary's Attic* is a comedy directed by William Watson. It stars Eva Novak and Harry Gribbon.
 
 **Synopsis**: Mr. Pinckney owns the shop Mary’s Attic and no one has seen him for a long time. It's located in a run-down old house in the middle of a sprawling forest. The build is dilapidated and utterly decrepit, and yard is utterly derelict and neglected. But out in the very place, Tammy and Jack’s dog Ellie discovers an old chest and the pair take turns opening it, finding vases, pictures, jewelry, books, silverware, lace, lace, other priceless items. One day, the pair find an old man sleeping in one of the shop's old armchairs, revealing that he was Mr. Pinckney, the shop's storekeeper.
 
@@ -5304,7 +5310,7 @@ Wikipedia: [Up in Mary's Attic](https://en.wikipedia.org/wiki/Up%20in%20Mary%27s
 
 ## The U.P. Trail
 
-_The U.P. Trail_ is a western movie directed by Jack Conway. It stars Kathlyn Williams and Marguerite De La Motte.
+*The U.P. Trail* is a western directed by Jack Conway. It stars Kathlyn Williams and Marguerite De La Motte.
 
 **Synopsis**: A woman goes on a wagon trail in 1851 and the trail she takes is the one established in 1838 by Indian scout Hastings.
 
@@ -5312,7 +5318,7 @@ Wikipedia: [The U.P. Trail](https://en.wikipedia.org/wiki/The%20U.P.%20Trail)
 
 ## The Valley of Doubt
 
-_The Valley of Doubt_ is a drama movie directed by Burton George. It stars Arline Pretty, Thurston Hall, and Anna Lehr.
+*The Valley of Doubt* is a drama directed by Burton George. It stars Arline Pretty, Thurston Hall, and Anna Lehr.
 
 **Synopsis**: A farmer's son takes on difficult farm work after the death of his father, drags himself through life with the help of his loyal dog, growing up to take after his father.
 
@@ -5322,7 +5328,7 @@ Wikipedia: [The Valley of Doubt](https://en.wikipedia.org/wiki/The%20Valley%20of
 
 ## The Valley of Tomorrow
 
-_The Valley of Tomorrow_ is an action movie directed by Emmett J. Flynn. It stars William Russell and Mary Thurman.
+*The Valley of Tomorrow* is an action directed by Emmett J. Flynn. It stars William Russell and Mary Thurman.
 
 **Synopsis**: Charlie and Lucy Monroe lead a peaceful and quaint life in the idyllic town of Hope Valley. But when they discover that their daughter is possessed by a demonic force, they will stop at nothing to get her back and get the local authorities to face the truth.
 
@@ -5330,7 +5336,7 @@ Wikipedia: [The Valley of Tomorrow](https://en.wikipedia.org/wiki/The%20Valley%2
 
 ## The Very Idea
 
-_The Very Idea_ is a comedy movie directed by Lawrence C. Windom. It stars Taylor Holmes and Virginia Valli.
+*The Very Idea* is a comedy directed by Lawrence C. Windom. It stars Taylor Holmes and Virginia Valli.
 
 **Synopsis**: A young gay teenager becomes furious when his parents get divorced and starts to believe they did it on purpose.
 
@@ -5338,7 +5344,7 @@ Wikipedia: [The Very Idea](https://en.wikipedia.org/wiki/The%20Very%20Idea%20%28
 
 ## The Vice of Fools
 
-_The Vice of Fools_ is a drama movie directed by Edward H. Griffith. It stars Alice Joyce and Robert Gordon.
+*The Vice of Fools* is a drama directed by Edward H. Griffith. It stars Alice Joyce and Robert Gordon.
 
 **Synopsis**: It is the story of love between an old woman and a man who has risen from the gutter. One twists for the other’s breakages.
 
@@ -5350,7 +5356,7 @@ Wikipedia: [The Vice of Fools](https://en.wikipedia.org/wiki/The%20Vice%20of%20F
 
 ## The Village Sleuth
 
-_The Village Sleuth_ is a comedy movie directed by Jerome Storm. It stars Charles Ray and Winifred Westover.
+*The Village Sleuth* is a comedy directed by Jerome Storm. It stars Charles Ray and Winifred Westover.
 
 **Synopsis**: Village Sleuth recounts the efforts of a down-on-his-luck son of a cop to do his father's job by solving the murder mystery at the center of the film.
 
@@ -5358,7 +5364,7 @@ Wikipedia: [The Village Sleuth](https://en.wikipedia.org/wiki/The%20Village%20Sl
 
 ## The Virgin of Stamboul
 
-_The Virgin of Stamboul_ is a drama movie directed by Tod Browning. It stars Priscilla Dean and Wallace Beery.
+*The Virgin of Stamboul* is a drama directed by Tod Browning. It stars Priscilla Dean and Wallace Beery.
 
 **Synopsis**: Cardinal Varini of Stamboul is planning to marry Princess Avioli of Avrom. Half-Turkish and half-Italian, this union would advance the religious and political authority of the Roman Catholic Church. To find her successor, he decides to find Islamic women who refer to themselves as virgins. His envoys enlist the help of Fazril Bey, the Chief of Police, to kidnap three veiled women who do not speak to men, the Virgin of Stamboul, Mahomet's daughter, and Abdul's wife. Ultimately, he decides that he can't marry Avioli to one of these three women. The three women have a keen sense for revenge.
 
@@ -5372,7 +5378,7 @@ Wikipedia: [The Virgin of Stamboul](https://en.wikipedia.org/wiki/The%20Virgin%2
 
 ## The Walk-Offs
 
-_The Walk-Offs_ is a comedy movie directed by Herbert Blaché. It stars May Allison and Emory Johnson.
+*The Walk-Offs* is a comedy directed by Herbert Blaché. It stars May Allison and Emory Johnson.
 
 **Synopsis**: Jake and Ray Ray were bartenders who made their own luck and had more luck than they knew what do with. Ray Ray was trying his luck at the racetrack and didn’t feel like showing up for work and Jake was sick and tired of Ray Ray forsaking the family. Jake and Ray Ray wanted to go their separate ways so Ray Ray told Jake some betting figures and some card figures and some mistakes he had made on the track and said, "Good-bye, Jake." And Jake said, "Good-bye, Ray Ray."
 
@@ -5382,7 +5388,7 @@ Wikipedia: [The Walk-Offs](https://en.wikipedia.org/wiki/The%20Walk-Offs)
 
 ## Wanted at Headquarters
 
-_Wanted at Headquarters_ is a crime movie directed by Stuart Paton. It stars Eva Novak and Lee Shumway.
+*Wanted at Headquarters* is a crime directed by Stuart Paton. It stars Eva Novak and Lee Shumway.
 
 **Synopsis**: An undercover agent is assigned to live with a gang of thieves to prove they are guilty of murder and robbery, so police can bring the case to trial.
 
@@ -5390,7 +5396,7 @@ Wikipedia: [Wanted at Headquarters](https://en.wikipedia.org/wiki/Wanted%20at%20
 
 ## Water, Water, Everywhere
 
-_Water, Water, Everywhere_ is a comedy movie directed by Clarence G. Badger. It stars Will Rogers and Irene Rich.
+*Water, Water, Everywhere* is a comedy directed by Clarence G. Badger. It stars Will Rogers and Irene Rich.
 
 **Synopsis**: This is a story of a vivacious woman who gets involved in various adventures while she is adrift. The advertisements for the film mention "two lovers, a clown, a cyclone, a leopard, a dentist, parties, balls, scandal, murder, love, hatred, temper, madness, mob violence, the U.S. Marines, patriotism, international intrigue, and this dress" which, taken together, sounds irrational.
 
@@ -5402,7 +5408,7 @@ Wikipedia: [Water, Water, Everywhere](https://en.wikipedia.org/wiki/Water%2C%20W
 
 ## Way Down East
 
-_Way Down East_ is a drama movie directed by D. W. Griffith. It stars Lillian Gish, Richard Barthelmess, and Lowell Sherman.
+*Way Down East* is a drama directed by D. W. Griffith. It stars Lillian Gish, Richard Barthelmess, and Lowell Sherman.
 
 **Synopsis**: Abigail Ropes is a Quaker, unmarried woman who has been working as a servant for Harvey Laughton, a wealthy doctor, for years. One day, Harvey becomes ill and needs your care. A doctor is not available so he asks Abigail to come with him on his journey to New York City. Harvey ends up leaving without Abigail on his journey so she has to find work to survive. But her path leads her to the beautiful coastal housing of the Laughton family, where she finds that her education may be valuable.
 
@@ -5410,7 +5416,7 @@ Wikipedia: [Way Down East](https://en.wikipedia.org/wiki/Way%20Down%20East)
 
 ## The Way Women Love
 
-_The Way Women Love_ is a mystery movie directed by Marcel Perez. It stars Rubye De Remer and Walter Miller.
+*The Way Women Love* is a mystery directed by Marcel Perez. It stars Rubye De Remer and Walter Miller.
 
 **Synopsis**: Mary Donovan and Graham Baker, two American business executives in Japan, unexpectedly find love together when they're still too young to retire. Their odd couple romance borders on obsession when they're not travelling their own paths around the world, until tragedy forces them to strip away everything to see what's worth saving.
 
@@ -5418,7 +5424,7 @@ Wikipedia: [The Way Women Love](https://en.wikipedia.org/wiki/The%20Way%20Women%
 
 ## The Web of Deceit
 
-_The Web of Deceit_ is a drama movie directed by Edwin Carewe. It stars Dolores Cassinelli and Franklyn Hanna.
+*The Web of Deceit* is a drama directed by Edwin Carewe. It stars Dolores Cassinelli and Franklyn Hanna.
 
 **Synopsis**: The Web of Deceit is about a crime boss who tries to force a homicide detective to commit suicide.
 
@@ -5426,7 +5432,7 @@ Wikipedia: [The Web of Deceit](https://en.wikipedia.org/wiki/The%20Web%20of%20De
 
 ## The Week-End
 
-_The Week-End_ is a comedy movie directed by George L. Cox. It stars Margarita Fischer and Milton Sills.
+*The Week-End* is a comedy directed by George L. Cox. It stars Margarita Fischer and Milton Sills.
 
 **Synopsis**: The film starts with a couple who have a difficult marriage. They go on a cruise for a week-end so that their marriage can be made better. On board, their attitudes change, and they get to know each other again. Th film has a happy ending.
 
@@ -5434,9 +5440,9 @@ Wikipedia: [The Week-End](https://en.wikipedia.org/wiki/The%20Week-End)
 
 ## West Is West
 
-_West Is West_ is a western movie directed by Val Paul. It stars Harry Carey and Charles Le Moyne.
+*West Is West* is a western directed by Val Paul. It stars Harry Carey and Charles Le Moyne.
 
-**Synopsis**: In the movie, a boy born during the Civil War is seen as an American citizen by one group and as a traitor to England by another.
+**Synopsis**: In the movie, a boy born during the Civil War is seen as an American citizen by one group and as a traitor to England by another. 
 
 West is West is a Western directed by Val Paul and stars Harry Carey and Charles Le Moyne. In the movie, a boy born during the Civil War is seen as an American citizen by one group and as a traitor to England by another.
 
@@ -5444,9 +5450,9 @@ Wikipedia: [West Is West](https://en.wikipedia.org/wiki/West%20Is%20West%20%2819
 
 ## What Happened to Jones
 
-_What Happened to Jones_ is a comedy movie directed by James Cruze. It stars Bryant Washburn and Margaret Loomis.
+*What Happened to Jones* is a comedy directed by James Cruze. It stars Bryant Washburn and Margaret Loomis.
 
-**Synopsis**: After the high-spirited Jones falsely accuses a parishioner named Hubner to be an adulterer, Hubner plots for retaliation and sends Jones to jail to contemplate the many injustices that he has done. Upon his release from jail to be placed back into society, Jones learns a lesson about humility and what really matters in life.
+**Synopsis**: After the high-spirited Jones falsely accuses a parishioner named Hubner to be an adulterer, Hubner plots for retaliation and sends Jones to jail to contemplate the many injustices that he has done. Upon his release from jail to be placed back into society, Jones learns a lesson about humility and what really matters in life. 
 
 What Happened to Jones is a movie about a cheerful man who falsely accused a parishioner named Hubner to be an adulterer and sent him to prison to contemplate the many injustices he has done to others. Upon his release from prison, Jones learns a lesson about humility and what really matters in life.
 
@@ -5454,7 +5460,7 @@ Wikipedia: [What Happened to Jones](https://en.wikipedia.org/wiki/What%20Happene
 
 ## What Happened to Rosa
 
-_What Happened to Rosa_ is a comedy movie directed by Victor Schertzinger. It stars Mabel Normand and Tully Marshall.
+*What Happened to Rosa* is a comedy directed by Victor Schertzinger. It stars Mabel Normand and Tully Marshall.
 
 **Synopsis**: A small town girl inherits a sizable fortune from a deceased family member and decides to spend her new bounty on winning the affection of the man she loves. In return for her love, she asks him to give up his ranch to live with her in the city. He refuses her proposal and falls into the hands of a scheming gold-digger.
 
@@ -5462,7 +5468,7 @@ Wikipedia: [What Happened to Rosa](https://en.wikipedia.org/wiki/What%20Happened
 
 ## What Women Love
 
-_What Women Love_ is a comedy movie directed by Nate Watt. It stars Annette Kellerman and Ralph Lewis.
+*What Women Love* is a comedy directed by Nate Watt. It stars Annette Kellerman and Ralph Lewis.
 
 **Synopsis**: Shelly and her two best friends one day learn her father has died and will leave her an uphill battle in life. Struggling to figure out how she will overcome her sudden loss, they uncover old family secrets and history. Later, Shelly has a makeover and starts her own company. After a year, she is happy and able to move on.
 
@@ -5470,7 +5476,7 @@ Wikipedia: [What Women Love](https://en.wikipedia.org/wiki/What%20Women%20Love)
 
 ## What Women Want
 
-_What Women Want_ is a drama movie directed by George Archainbaud. It stars Louise Huff and Robert Ames.
+*What Women Want* is a drama directed by George Archainbaud. It stars Louise Huff and Robert Ames.
 
 **Synopsis**: MPMovieMaker.com is a handy online library for movie fanatics. Just type in a movie name and a brief story appears!
 
@@ -5478,7 +5484,7 @@ Wikipedia: [What Women Want](https://en.wikipedia.org/wiki/What%20Women%20Want%2
 
 ## What Would You Do?
 
-_What Would You Do?_ is a drama movie directed by Denison Clift. It stars Madlaine Traverse and George A. McDaniel.
+*What Would You Do?* is a drama directed by Denison Clift. It stars Madlaine Traverse and George A. McDaniel.
 
 **Synopsis**: Young Derek looks through garbage to find what he can salvage when he's told not to look for food. The problems pile up when the "simple" dog he has one time cherished has to be put down, but he receives an early Christmas present-a puppy. Little Sally, an orphan, is tired of being pushed around, so she manages to find a strategic, safe place to use her computer while feeling like she's getting transported into another world. Paul struggles to tell his family that he's gay, while Miriisa worries her family will know she's pregnant.
 
@@ -5486,7 +5492,7 @@ Wikipedia: [What Would You Do?](https://en.wikipedia.org/wiki/What%20Would%20You
 
 ## What's Your Hurry?
 
-_What's Your Hurry?_ is a drama movie directed by Sam Wood. It stars Wallace Reid and Lois Wilson.
+*What's Your Hurry?* is a drama directed by Sam Wood. It stars Wallace Reid and Lois Wilson.
 
 **Synopsis**: The movie is about how Eddie's obsession with wealth leads to his self-destruction, while Alfred's belief in his slow-and-steady approach leads to his happiness.
 
@@ -5494,7 +5500,7 @@ Wikipedia: [What's Your Hurry?](https://en.wikipedia.org/wiki/What%27s%20Your%20
 
 ## What's Your Husband Doing?
 
-_What's Your Husband Doing?_ is a comedy movie directed by Lloyd Ingraham. It stars Douglas MacLean and Doris May.
+*What's Your Husband Doing?* is a comedy directed by Lloyd Ingraham. It stars Douglas MacLean and Doris May.
 
 **Synopsis**: Leena McDonnell is a widow with a lovely young daughter. She falls in love with a handsome client named Jim Parker, a businessman from a company she works with. Jim falls in love with her family and asks her to marry him. Leena becomes more and more devoted to Jim and his family, but Tim, Jim's father, asks Leena's husband for permission for her to marry him. Leena refuses, and without opening the door to this new family. From this, Leena and her daughter will lose everyone badly and will be alone for the rest of their lives.
 
@@ -5506,7 +5512,7 @@ Wikipedia: [What's Your Husband Doing?](https://en.wikipedia.org/wiki/What%27s%2
 
 ## When Dawn Came
 
-_When Dawn Came_ is a drama movie directed by Colin Campbell. It stars Lee Shumway and Colleen Moore.
+*When Dawn Came* is a drama directed by Colin Campbell. It stars Lee Shumway and Colleen Moore.
 
 **Synopsis**: Brad Mills' idyllic life as a widower is shattered when he learns that the losses on his family farm were a mere prelude to a new threat.
 
@@ -5518,7 +5524,7 @@ Wikipedia: [When Dawn Came](https://en.wikipedia.org/wiki/When%20Dawn%20Came)
 
 ## While New York Sleeps
 
-_While New York Sleeps_ is a crime movie directed by Charles Brabin. It stars Estelle Taylor and Marc McDermott.
+*While New York Sleeps* is a crime directed by Charles Brabin. It stars Estelle Taylor and Marc McDermott.
 
 **Synopsis**: New York Sleeps is a 1931 crime movie set in 1932. The plot was adapted by Brabin from the 1931 novel of the same name written by Kenyon Jones. Estelle Taylor stars as widow Joyce Lanyon, who's down to her last penny after being pinned by her husband's murder. After being marked to death along with her husband, Joyce undergoes a profound change, believing she she is burdened with a second murder. She enlists the help of an idle fellow to steal the killers' insurance money. She collects her last earnings, to get her daughters back into school. However, the plot was foiled when to get to the insurance company, the male con artist was murdered. With her last inspiration she eventually murders the firm administrator who knew about her plot.
 
@@ -5530,7 +5536,7 @@ Wikipedia: [While New York Sleeps](https://en.wikipedia.org/wiki/While%20New%20Y
 
 ## The Whisper Market
 
-_The Whisper Market_ is a drama movie directed by George L. Sargent. It stars Corinne Griffith, George MacQuarrie, and Eulalie Jensen.
+*The Whisper Market* is a drama directed by George L. Sargent. It stars Corinne Griffith, George MacQuarrie, and Eulalie Jensen.
 
 **Synopsis**: Details on this movie are very limited.
 
@@ -5546,7 +5552,7 @@ Wikipedia: [The Whisper Market](https://en.wikipedia.org/wiki/The%20Whisper%20Ma
 
 ## Whispering Devils
 
-_Whispering Devils_ is a drama movie directed by Harry Garson. It stars Conway Tearle and Rosemary Theby.
+*Whispering Devils* is a drama directed by Harry Garson. It stars Conway Tearle and Rosemary Theby.
 
 **Synopsis**: Laverne is a tough city boy who always gets into trouble, but he has a loving family. His older brother Frank tries to get him to stop getting in trouble by meeting up with him when he wants to get in fights, but it doesn’t work. Turns out someone plants evidence on him to get him arrested. The really tough gang leader Tino gets Laverne to work for him. Frank is jailed for Frank committed the crimes HIS BROTHER committed for him! It’s up to Laverne to stick it to this gang of thugs to save his brother!
 
@@ -5554,7 +5560,7 @@ Wikipedia: [Whispering Devils](https://en.wikipedia.org/wiki/Whispering%20Devils
 
 ## Whispers
 
-_Whispers_ is a drama movie directed by William P. S. Earle. It stars Elaine Hammerstein and Matt Moore.
+*Whispers* is a drama directed by William P. S. Earle. It stars Elaine Hammerstein and Matt Moore.
 
 **Synopsis**: Summers Humphreys, a handsome and popular high-school senior in his affluent country community, has a hidden secret: he cannot physically speak. Embarrassed by his condition, Summers recently buried this secret, convincing everyone he could talk. However, when he loses his focus in his geometry class, the sound of the students talking around him combine to create an auditory hallucination that leads him to a pivotal moment of clarity. Reeling from the embarrassment of a classmate opportunely snapping a rigged silent-expression photo, Summers stands up and declares to the entire grade of seventeen-year-olds that he can't talk, and is met with a defiant anger from some and a respect from others. In struggling to get back the power he once had, he has to make a critical decision- to let his fears get the best of him and withdraw from society, or to get back the power he once had, and embrace his voice.
 
@@ -5562,7 +5568,7 @@ Wikipedia: [Whispers](https://en.wikipedia.org/wiki/Whispers%20%281920%20film%29
 
 ## The White Circle
 
-_The White Circle_ is a drama movie directed by Maurice Tourneur. It stars Spottiswoode Aitken and Harry Northrup.
+*The White Circle* is a drama directed by Maurice Tourneur. It stars Spottiswoode Aitken and Harry Northrup.
 
 **Synopsis**: Chris, an American frontier trader is lost in the Canadian wilderness while attempting to find the city of Winnipeg. He is persuaded by superstitious natives to help them arrange a pehi game to explain the rash of deaths in the community. However the game soon has unforeseen effects, including the deaths of several of the natives.
 
@@ -5572,7 +5578,7 @@ Wikipedia: [The White Circle](https://en.wikipedia.org/wiki/The%20White%20Circle
 
 ## The White Dove
 
-_The White Dove_ is a drama movie directed by Henry King. It stars H. B. Warner and Clare Adams.
+*The White Dove* is a drama directed by Henry King. It stars H. B. Warner and Clare Adams.
 
 **Synopsis**: An English doctor recently married to an American woman living in New York, convinces her to go on a long, round-the-world trip with him. Things quickly go south when they get to Brazil, where he is called back to his post to doctor troops, and she is taken captive by natives. Her tragedy is compounded when tragedy befalls her husband, who became involved in the ongoing revolt. It is up to her to save herself and get back to New York.
 
@@ -5584,7 +5590,7 @@ Wikipedia: [The White Dove](https://en.wikipedia.org/wiki/The%20White%20Dove%20%
 
 ## White Lies
 
-_White Lies_ is a drama movie directed by Edward LeSaint. It stars Gladys Brockwell and Josephine Crowell.
+*White Lies* is a drama directed by Edward LeSaint. It stars Gladys Brockwell and Josephine Crowell.
 
 **Synopsis**: A mother and her daughter each tell half of a story in White Lies. The conversation ends once the daughter realises that her mother is in hospital and that she's in danger.
 
@@ -5592,7 +5598,7 @@ Wikipedia: [White Lies](https://en.wikipedia.org/wiki/White%20Lies%20%281920%20f
 
 ## The White Moll
 
-_The White Moll_ is a crime movie directed by Harry Millarde. It stars Pearl White and Richard Travers.
+*The White Moll* is a crime directed by Harry Millarde. It stars Pearl White and Richard Travers.
 
 **Synopsis**: "The White Moll" starts with Polly Jo Enwright meeting up with three thieves who want her to be their fence. We know that Polly is the "White Moll" because trapper Archie speaks of "Li'l girl" Polly Jo Enwright, who he once knew. Polly Jo is asked to rob $60,000 worth of jewelry. Archie's adventures leave her free for this business. She agrees to the heist. Polly Jo is meeting the thieves at the hotel to get the jewels. After leaving Archie she is accosted by an ex-convict Larry Deavers. Archie returns to find her well-beaten. Polly shoots Larry Deavery dead after he has tried to rape her. Polly takes his gun and fires twice, but her second shot is well-aimed and hits Archie. She now needs to fox the jewel robbery, now owing the three thieves $60,0 pounds pounds. Heading for the hotel, Polly runs into Archie's partner, who, thinking her dead, she shoots dead, then changes into his clothes. She now has to pull off this heist by herself.
 
@@ -5602,7 +5608,7 @@ Wikipedia: [The White Moll](https://en.wikipedia.org/wiki/The%20White%20Moll)
 
 ## White Youth
 
-_White Youth_ is a drama movie directed by Norman Dawn. It stars Edith Roberts and Alfred Hollingsworth.
+*White Youth* is a drama directed by Norman Dawn. It stars Edith Roberts and Alfred Hollingsworth.
 
 **Synopsis**: The film is essentially about social displacement of post-Civil War African-Americans.
 
@@ -5614,7 +5620,7 @@ Wikipedia: [White Youth](https://en.wikipedia.org/wiki/White%20Youth)
 
 ## Why Change Your Wife?
 
-_Why Change Your Wife?_ is a comedy movie directed by Cecil B. DeMille. It stars Gloria Swanson, Thomas Meighan, and Bebe Daniels.
+*Why Change Your Wife?* is a comedy directed by Cecil B. DeMille. It stars Gloria Swanson, Thomas Meighan, and Bebe Daniels.
 
 **Synopsis**: The movie revolves around a couple in England in the 18th Century who divorce to try to double their incomes. The operetta's satire focuses on a married couple in England in the 18th century, who divorce in order to "double their incomes" in this comedy, set about the time of the Marriage Act of 1753.
 
@@ -5622,7 +5628,7 @@ Wikipedia: [Why Change Your Wife?](https://en.wikipedia.org/wiki/Why%20Change%20
 
 ## Why Women Sin
 
-_Why Women Sin_ is a drama movie directed by Burton L. King. It stars Anna Luther, Claire Whitney, and Charles K. Gerrard.
+*Why Women Sin* is a drama directed by Burton L. King. It stars Anna Luther, Claire Whitney, and Charles K. Gerrard.
 
 **Synopsis**: Women Sin revolves around lesbian lovers who, apart from their infidelity, share a girlfriend and they go to a resort where they meet a group of nuns.
 
@@ -5630,13 +5636,13 @@ Wikipedia: [Why Women Sin](https://en.wikipedia.org/wiki/Why%20Women%20Sin)
 
 ## The Willow Tree
 
-_The Willow Tree_ is a drama movie directed by Henry Otto. It stars Viola Dana and Edward Connelly.
+*The Willow Tree* is a drama directed by Henry Otto. It stars Viola Dana and Edward Connelly.
 
 **Synopsis**: The Willow Tree tells the story of one woman's fight for her home and what it represents--her legacy and the future of her family.
 
-Give your rating for this movie and explain what you rated and why.
+Give your rating for this movie and explain what you rated and why.  
 
-I gave this movie a rating of 3 stars out of five.
+I gave this movie a rating of 3 stars out of five. 
 
 I rated this movie with a three stars because I really liked how it told a story of a woman fighting for her future, but it wasn't very engaging. The movie mainly just talked about how she had cancer and needed to sell her home to provide for herself and her son.
 
@@ -5644,7 +5650,7 @@ Wikipedia: [The Willow Tree](https://en.wikipedia.org/wiki/The%20Willow%20Tree%2
 
 ## Within Our Gates
 
-_Within Our Gates_ is a drama movie directed by Oscar Micheaux. It stars Evelyn Preer and Floy Clements.
+*Within Our Gates* is a drama directed by Oscar Micheaux. It stars Evelyn Preer and Floy Clements.
 
 **Synopsis**: Within Our Gates is a film focused on the lives of one family living in the South during the Reconstruction period after the Civil War. The film is based off Micheaux's novel, "Uncle Tom's Children."
 
@@ -5652,7 +5658,7 @@ Wikipedia: [Within Our Gates](https://en.wikipedia.org/wiki/Within%20Our%20Gates
 
 ## The Woman and the Puppet
 
-_The Woman and the Puppet_ is a romance movie directed by Reginald Barker. It stars Geraldine Farrar, Lou Tellegen, and Dorothy Cumming.
+*The Woman and the Puppet* is a romance directed by Reginald Barker. It stars Geraldine Farrar, Lou Tellegen, and Dorothy Cumming.
 
 **Synopsis**: The film is about the love between a beautiful artist and a puppet, who was initially intended to be sold to an art school.
 
@@ -5668,7 +5674,7 @@ Wikipedia: [The Woman and the Puppet](https://en.wikipedia.org/wiki/The%20Woman%
 
 ## The Woman Game
 
-_The Woman Game_ is a drama movie directed by William P. S. Earle. It stars Elaine Hammerstein and Florence Billings.
+*The Woman Game* is a drama directed by William P. S. Earle. It stars Elaine Hammerstein and Florence Billings.
 
 **Synopsis**: The movie is about a woman who has a successful career, friends and a great life and decides to leave because she doesn't want to be bored. She moves and after a rough spell starts to re-build her life, the movie is about her achieving her life's goal and inner peace.
 
@@ -5682,7 +5688,7 @@ Wikipedia: [The Woman Game](https://en.wikipedia.org/wiki/The%20Woman%20Game)
 
 ## The Woman Gives
 
-_The Woman Gives_ is a drama movie directed by Roy William Neill. It stars Norma Talmadge and Edmund Lowe.
+*The Woman Gives* is a drama directed by Roy William Neill. It stars Norma Talmadge and Edmund Lowe.
 
 **Synopsis**: A fickle business executive's secretary pretends to be someone richer just to impress him, but attracts someone he truly loves.
 
@@ -5690,7 +5696,7 @@ Wikipedia: [The Woman Gives](https://en.wikipedia.org/wiki/The%20Woman%20Gives)
 
 ## The Woman God Sent
 
-_The Woman God Sent_ is a drama movie directed by Laurence Trimble. It stars Zena Keefe and Warren Cook.
+*The Woman God Sent* is a drama directed by Laurence Trimble. It stars Zena Keefe and Warren Cook.
 
 **Synopsis**: An impoverished woman, Edwina Hanner, has raised five girls alone on an isolated Utah mountain. The eldest farm-girl, Hannah, had left home to marry, while the other four are doing all they can to stay put on the farm, helping their mother work the farm, receiving second-hand clothes at the nearby Mormon settlement, and some school. When tragedy strikes, Hannah must return to Whirlrock Mountain to help her mother keep the farm together.
 
@@ -5698,7 +5704,7 @@ Wikipedia: [The Woman God Sent](https://en.wikipedia.org/wiki/The%20Woman%20God%
 
 ## The Woman in His House
 
-_The Woman in His House_ is a drama movie directed by John M. Stahl. It stars Mildred Harris and Ramsey Wallace.
+*The Woman in His House* is a drama directed by John M. Stahl. It stars Mildred Harris and Ramsey Wallace.
 
 **Synopsis**: A man leaves his girlfriend to get married. While at home, he gets uncomfortable and imagines what's to come.
 
@@ -5706,7 +5712,7 @@ Wikipedia: [The Woman in His House](https://en.wikipedia.org/wiki/The%20Woman%20
 
 ## The Woman in Room 13
 
-_The Woman in Room 13_ is a mystery movie directed by Frank Lloyd. It stars Pauline Frederick and Richard Tucker.
+*The Woman in Room 13* is a mystery directed by Frank Lloyd. It stars Pauline Frederick and Richard Tucker.
 
 **Synopsis**: The Woman in Room 13 is an A-List mystery movie, which was directed by Frank Lloyd. It is considered A-List because it had a DVD release with bonus features, tickets for tickets for screenings, and generally had more than 100 screenings. The film revolves around Pauline Hilaire, who is the headmistress of an upscaled boarding school. When one student can't pay her school fees, her scholarship is revoked and Hilaire goes through full-time to find the money. When the few avenues of bribe don't work, Hilaire resorts to larceny. The perpetrator of the larceny then reveals themselves, themselves.
 
@@ -5718,7 +5724,7 @@ Wikipedia: [The Woman in Room 13](https://en.wikipedia.org/wiki/The%20Woman%20in
 
 ## The Woman in the Suitcase
 
-_The Woman in the Suitcase_ is a drama movie directed by Fred Niblo. It stars Enid Bennett and William Conklin.
+*The Woman in the Suitcase* is a drama directed by Fred Niblo. It stars Enid Bennett and William Conklin.
 
 **Synopsis**: A gay man roams through Los Angeles as a private investigator for hire. An elderly woman hires him to track down her granddaughter, who left unannounced to live with her lover in San Francisco.
 
@@ -5726,7 +5732,7 @@ Wikipedia: [The Woman in the Suitcase](https://en.wikipedia.org/wiki/The%20Woman
 
 ## A Woman Who Understood
 
-_A Woman Who Understood_ is a drama movie directed by William Parke. It stars Bessie Barriscale and Forrest Stanley.
+*A Woman Who Understood* is a drama directed by William Parke. It stars Bessie Barriscale and Forrest Stanley.
 
 **Synopsis**: The movie is about a woman who has a passionate hatred for her overbearing, gossipy, and contentious father.
 
@@ -5734,7 +5740,7 @@ Wikipedia: [A Woman Who Understood](https://en.wikipedia.org/wiki/A%20Woman%20Wh
 
 ## A Woman's Business
 
-_A Woman's Business_ is a drama movie directed by B.A. Rolfe. It stars Olive Tell, Edmund Lowe, and Donald Hall.
+*A Woman's Business* is a drama directed by B.A. Rolfe. It stars Olive Tell, Edmund Lowe, and Donald Hall.
 
 **Synopsis**: The words that come to mind when describing the story is passion, hope, and tragedy. The movie is about Nina (Olive Tel) who has big dreams of becoming the head of the company. At the same time Louis (Edmund Lowe), is an hopeful about improving the company's product after he finds the perfect beverage for the company.
 
@@ -5748,9 +5754,9 @@ Wikipedia: [A Woman's Business](https://en.wikipedia.org/wiki/A%20Woman%27s%20Bu
 
 ## Women Men Forget
 
-_Women Men Forget_ is a drama movie directed by John M. Stahl. It stars Mollie King and Lucy Fox.
+*Women Men Forget* is a drama directed by John M. Stahl. It stars Mollie King and Lucy Fox.
 
-**Synopsis**: A man's life is turned upside down when his sister's two children move in permanently after their mother is killed. Realizing he must retrace his steps to figure out where they went wrong, he has to confront his brother, best friend, and ex-wife. But he has no clue how to start. Facing each person with honesty and creativity, he struggles to find any clue that will help him find them back.
+**Synopsis**: A man's life is turned upside down when his sister's two children move in permanently after their mother is killed. Realizing he must retrace his steps to figure out where they went wrong, he has to confront his brother, best friend, and ex-wife. But he has no clue how to start. Facing each person with honesty and creativity, he struggles to find any clue that will help him find them back. 
 
 What follows is a transformation--and ultimately, an act of violence.
 
@@ -5758,7 +5764,7 @@ Wikipedia: [Women Men Forget](https://en.wikipedia.org/wiki/Women%20Men%20Forget
 
 ## The Wonder Man
 
-_The Wonder Man_ is an adventure movie directed by John G. Adolfi. It stars Georges Carpentier, Faire Binney, and Florence Billings.
+*The Wonder Man* is an adventure film directed by John G. Adolfi. It stars Georges Carpentier, Faire Binney, and Florence Billings.
 
 **Synopsis**: This movie is about Harry Wills, the so-called Wonder Man who was supposed to be cursed to be "damned to perpetual failure." At the height of his fame in the early days of film, Harry shot his last few films without any dialogue in them because when he spoke on-screen, audiences found him insufferable. Harry is now in exile in Paris with his wife when he's struck by destructive fires in the second World War.
 
@@ -5766,7 +5772,7 @@ Wikipedia: [The Wonder Man](https://en.wikipedia.org/wiki/The%20Wonder%20Man%20%
 
 ## The Wonderful Chance
 
-_The Wonderful Chance_ is a crime movie directed by George Archainbaud. It stars Eugene O'Brien and Martha Mansfield.
+*The Wonderful Chance* is a crime directed by George Archainbaud. It stars Eugene O'Brien and Martha Mansfield.
 
 **Synopsis**: -A counterfeiter who is about to be arrested flees with his daughter to Canada, where he plans to hide with his wife. The daughter grows up there and is in training to become an opera singer when her father suddenly arrives in her life after 16 years without contact. As she goes in his footsteps, the audience is left in suspense in knowing which world is starker.
 
@@ -5774,7 +5780,7 @@ Wikipedia: [The Wonderful Chance](https://en.wikipedia.org/wiki/The%20Wonderful%
 
 ## The World and His Wife
 
-_The World and His Wife_ is a drama movie directed by Robert G. Vignola. It stars Montagu Love, Alma Rubens, and Gaston Glass.
+*The World and His Wife* is a drama directed by Robert G. Vignola. It stars Montagu Love, Alma Rubens, and Gaston Glass.
 
 **Synopsis**: This silent movie begins with two ladies, one on the phone and one knitting, discussing the topic of marriage on their porches on the night before the wedding of their soon to be married niece. They then discuss the future husband that they intend to give to their niece on her wedding day on the event that she has not found out so far. They also discuss what they think happenings on occasions where marriage is made appear to be. Meanwhile, the bride to be is lying in her backyard all so gloomy while her boy friend, who had come to propose to her, is creeping stealthily up the porch. A big episode contains the following dialogue, "You ought to have seen the bride's face when she found me standing at the gate the next afternoon. I was awful to her. I want her to buy what I once said about marrying, I told her it was a barbarous institution. I made her feel deeply humiliated. She went back to her Uncle, disappointed and what you call a made a fool.”
 
@@ -5788,7 +5794,7 @@ Wikipedia: [The World and His Wife](https://en.wikipedia.org/wiki/The%20World%20
 
 ## A World of Folly
 
-_A World of Folly_ is a drama movie directed by Frank Beal. It stars Vivian Rich and Philo McCullough.
+*A World of Folly* is a drama directed by Frank Beal. It stars Vivian Rich and Philo McCullough.
 
 **Synopsis**: In 1903, a young woman is poised to marry a physician or a clergyman. She decides instead to marry a third man, a wealthy businessman, who has a wife and a family. The protagonist is a bombshell with a heart.
 
@@ -5796,7 +5802,7 @@ Wikipedia: [A World of Folly](https://en.wikipedia.org/wiki/A%20World%20of%20Fol
 
 ## Would You Forgive?
 
-_Would You Forgive?_ is a drama movie directed by Scott R. Dunlap. It stars Vivian Rich and Tom Chatterton.
+*Would You Forgive?* is a drama directed by Scott R. Dunlap. It stars Vivian Rich and Tom Chatterton.
 
 **Synopsis**: Emma and Owen and having a picnic by the water. They just reconnected and she wanted to do something special. Emma tells Owen that her sister Valerie was supposed to be at their family reunion and she never showed up. Emma and Owen take the time to get to know each other and get back to how they met. Emma follows Owen back to San Diego and reconciles with her estranged sister. She wanted to ask Valerie to come back for Christmas to tell her sister how much she missed her. Valerie tells her that her boyfriend and her got into a fight and she left. Owe was hurting and decided to enter the military and air and and and and and and and and.
 
@@ -5806,16 +5812,16 @@ Wikipedia: [Would You Forgive?](https://en.wikipedia.org/wiki/Would%20You%20Forg
 
 ## The Wrong Woman
 
-_The Wrong Woman_ is a drama movie directed by Ivan Abramson. It stars Olive Tell and Montagu Love.
+*The Wrong Woman* is a drama directed by Ivan Abramson. It stars Olive Tell and Montagu Love.
 
-**Synopsis**: Olive Tell (Olive Tell) is wrongly accused of her boss, Dr. Andrew Graham's (Montagu Love) attempted murder. The film follows her journey as she tries to figure out the truth and the person who's really at fault before it's too late.
+**Synopsis**: Olive Tell (Olive Tell) is wrongly accused of her boss, Dr. Andrew Graham's (Montagu Love) attempted murder. The film follows her journey as she tries to figure out the truth and the person who's really at fault before it's too late. 
 A young woman is wrongly accused of her boss's attempted murder.
 
 Wikipedia: [The Wrong Woman](https://en.wikipedia.org/wiki/The%20Wrong%20Woman%20%281920%20film%29)
 
 ## The Yellow Typhoon
 
-_The Yellow Typhoon_ is a drama movie directed by Edward José. It stars Anita Stewart, Ward Crane, and Joseph Kilgour.
+*The Yellow Typhoon* is a drama directed by Edward José. It stars Anita Stewart, Ward Crane, and Joseph Kilgour.
 
 **Synopsis**: Kit Lambon, a renowned artist remaining true to his disenfranchised identity, lives lavishly off family fortune. He is also a convicted murderer, convicted for killing popular football player Kit Lambon 2 years ago. Kit's twin brother Jack, an underworld don, takes care of his business to earn an allowance, but Jack is never pardoned for being the less-privileged brother- twin, deaf, black. He must work around the world to procure top orders in order to afford legal fees that would pay for Kit's release. Things get personal when rival gangster Sam Snow orders the death of Jack in order to become the favorite in the underworld.
 
@@ -5831,7 +5837,7 @@ Wikipedia: [The Yellow Typhoon](https://en.wikipedia.org/wiki/The%20Yellow%20Typ
 
 ## Yes or No
 
-_Yes or No_ is a drama movie directed by Roy William Neill. It stars Norma Talmadge, Frederick Burton, and Lowell Sherman.
+*Yes or No* is a drama directed by Roy William Neill. It stars Norma Talmadge, Frederick Burton, and Lowell Sherman.
 
 **Synopsis**: The movie tells the story of Norma Talmadge, who comes from penury to become one of Hollywood's earliest cinema stars.
 
@@ -5841,7 +5847,7 @@ Wikipedia: [Yes or No](https://en.wikipedia.org/wiki/Yes%20or%20No%20%281920%20f
 
 ## You Never Can Tell
 
-_You Never Can Tell_ is a comedy movie directed by Chester M. Franklin. It stars Bebe Daniels and Jack Mulhall.
+*You Never Can Tell* is a comedy directed by Chester M. Franklin. It stars Bebe Daniels and Jack Mulhall.
 
 **Synopsis**: Larry's hot temper gets him fired from his job at a sandwich shop. He, in a fit of anger, tells a customer waiting in line to go play a stupid game in the shop. The customer does not do this and comes in to accuse Larry about what he has said. Upon hearing this, all the other customers in the shop immediately depart. Larry then hits his boss when demanding that his last bell be laid.
 
@@ -5851,7 +5857,7 @@ Wikipedia: [You Never Can Tell](https://en.wikipedia.org/wiki/You%20Never%20Can%
 
 ## Young Mrs. Winthrop
 
-_Young Mrs. Winthrop_ is a drama movie directed by Walter Edwards. It stars Ethel Clayton and Helen Dunbar.
+*Young Mrs. Winthrop* is a drama directed by Walter Edwards. It stars Ethel Clayton and Helen Dunbar.
 
 **Synopsis**: In the film, a young girl from a well-to-do family rebels against her parents' wishes by marrying a man who is not of the same caliber of society as he does not have a formal education.
 
@@ -5871,7 +5877,7 @@ Wikipedia: [Young Mrs. Winthrop](https://en.wikipedia.org/wiki/Young%20Mrs.%20Wi
 
 ## Youthful Folly
 
-_Youthful Folly_ is a drama movie directed by Alan Crosland. It stars Olive Thomas and Crauford Kent.
+*Youthful Folly* is a drama directed by Alan Crosland. It stars Olive Thomas and Crauford Kent.
 
 **Synopsis**: She decides to let her daughter go to Paris rather than stay at home becoming a wallflower. Outbreaks of rebellion force Olive to relive the events of her youth, but her daughter recognizes the security of not being forced into conformity.
 
@@ -5879,7 +5885,7 @@ Wikipedia: [Youthful Folly](https://en.wikipedia.org/wiki/Youthful%20Folly%20%28
 
 ## The $1,000,000 Reward
 
-_The $1,000,000 Reward_ is a drama serial movie directed by George A. Lessey. It stars Lillian Walker and Coit Albertson.
+*The $1,000,000 Reward* is a drama serial directed by George A. Lessey. It stars Lillian Walker and Coit Albertson.
 
 **Synopsis**: Lillian left her husband and son behind when she travelled to New York, believing she could make a distinction in that man's life. When her son is murdered by a thief, she decides to return to her town in order to repay their great debt. The Trouble is - she been away for a long time and doesn't know anyone in the town. Thr film Thrifts her chance for a living and a home, but she is given a opportunity when a young lady is in trouble. Lillian manages to make a life happen for her family but her pursuit for revenge takes a tough turn when she discovers a nefarious scheme that could bring down her small town.
 
@@ -5887,15 +5893,15 @@ Wikipedia: [The $1,000,000 Reward](https://en.wikipedia.org/wiki/The%20%241%2C00
 
 ## Daredevil Jack
 
-_Daredevil Jack_ is an adventure serial movie directed by W. S. Van Dyke. It stars Jack Dempsey and Josie Sedgwick.
+*Daredevil Jack* is an adventure serial directed by W. S. Van Dyke. It stars Jack Dempsey and Josie Sedgwick.
 
-**Synopsis**:
+**Synopsis**: 
 
 Wikipedia: [Daredevil Jack](https://en.wikipedia.org/wiki/Daredevil%20Jack)
 
 ## Among Those Present
 
-_Among Those Present_ is a comedy short movie directed by Fred C. Newmeyer. It stars Harold Lloyd and Mildred Davis.
+*Among Those Present* is a comedy short directed by Fred C. Newmeyer. It stars Harold Lloyd and Mildred Davis.
 
 **Synopsis**: Harold and Mildred are heirs to the "Old German Umpire Specialty Company." They grew up with no animosity, but now that he owns the company, she suffers from another seizure every time she sees him. There's one obstacle, though. They are both about to be introduced to royalty. Even worse, they are left to introduce themselves, but that's impossible. Their only hope is that the prince is as dim as he looks.
 
@@ -5905,7 +5911,7 @@ Wikipedia: [Among Those Present](https://en.wikipedia.org/wiki/Among%20Those%20P
 
 ## The Big Catch
 
-_The Big Catch_ is a western short movie directed by Leo D. Maloney. It stars Hoot Gibson.
+*The Big Catch* is a western short directed by Leo D. Maloney. It stars Hoot Gibson.
 
 **Synopsis**: In the year 1949 the majority of Alaskan salmon went out to sea. An aggressive group of fishermen from the Alaskan village Alexandrov thwarted whale hunting taboos and began a hunt of their own. Their objective was to open up a new way of thinking.
 
@@ -5919,11 +5925,11 @@ Wikipedia: [The Big Catch](https://en.wikipedia.org/wiki/The%20Big%20Catch)
 
 ## The Brand Blotter
 
-_The Brand Blotter_ is a western movie directed by . It stars Hoot Gibson.
+*The Brand Blotter* is a western directed by . It stars Hoot Gibson.
 
-**Synopsis**: Mark Thatcher escapes with an outlaw, swearing to help bring in $5,000 bounty on Red's head. The outlaw turns out to be Spark*e, Mark's father. Spark*e was wanted for murdering Phil Bray at Tombstone, Arizona.
+**Synopsis**: Mark Thatcher escapes with an outlaw, swearing to help bring in $5,000 bounty on Red's head. The outlaw turns out to be Spark*e, Mark's father. Spark*e was wanted for murdering Phil Bray at Tombstone, Arizona. 
 
-Mark makes a deal with Tom Cassidy so he'll be the only one to see the outlaws enter town with Red in tow. He's supposed to get $1,000 plus a side of beef. The sheriff hears about the plot the next day. Spark*e and Red try to steal a gold shipment going through Eagar, but a manhunt's on. Spark*e kills a gangster. The outlaws are finally captured after a shootout. Mark Sheriff holds Banner off while Mark faces the outlaws, who are trapped in a phone booth. Spark\*e refuses to reveal his past, to spare his son from shame, but he laughs in the end when knowing that his son has been hiding behind a desk.
+Mark makes a deal with Tom Cassidy so he'll be the only one to see the outlaws enter town with Red in tow. He's supposed to get $1,000 plus a side of beef. The sheriff hears about the plot the next day. Spark*e and Red try to steal a gold shipment going through Eagar, but a manhunt's on. Spark*e kills a gangster. The outlaws are finally captured after a shootout. Mark Sheriff holds Banner off while Mark faces the outlaws, who are trapped in a phone booth. Spark*e refuses to reveal his past, to spare his son from shame, but he laughs in the end when knowing that his son has been hiding behind a desk.
 
 A man named Mark Thatcher helps his outlaw father Spark*e, who he swore to bring in a $5,000 bounty. Mark takes a deal to let the outlaws enter town to capture Red, who the outlaws have a bounty on their head for. The plot ultimately fails once a deputy hears a plot and a manhunt captures the outlaws after a shootout. An ending reveals Mark surrenders himself to get to his father Spark*e, who has been hiding from the deputy at a small desk.
 
@@ -5931,7 +5937,7 @@ Wikipedia: [The Brand Blotter](https://en.wikipedia.org/wiki/The%20Brand%20Blott
 
 ## The Broncho Kid
 
-_The Broncho Kid_ is a western short movie directed by Mack V. Wright. It stars Hoot Gibson.
+*The Broncho Kid* is a western short directed by Mack V. Wright. It stars Hoot Gibson.
 
 **Synopsis**: Hoot Gibson gets a job as a broncho at a rodeo as a stuntman. He works as a broncho for a few shows, and people are loving it. However, he wants to make it as a bronco rider. So he trains to become a bronco rider. But because of an injury from an old horse who kicked him, he cannot ride a bronco. So, he mounts a horse and trains as a horse rider instead. Near the end, a cowboy's horse gets spooked and the cowboy is unable to control his horse. Hoot grabs a rope and rescues the cowboy. Hoot then decides to stick to his guns and pursue bronco riding.
 
@@ -5941,7 +5947,7 @@ Wikipedia: [The Broncho Kid](https://en.wikipedia.org/wiki/The%20Broncho%20Kid)
 
 ## The Champion Liar
 
-_The Champion Liar_ is a western short movie directed by Hoot Gibson. It stars Hoot Gibson.
+*The Champion Liar* is a western short directed by Hoot Gibson. It stars Hoot Gibson.
 
 **Synopsis**: Hoot Gibson, playing himself, is cornered by some outlaws on an old west street. As the desperados demand the money, they seem to get dismayed when they find nothing on him. Hoot takes advantage of the moment and quickly moves to 4 notches of his holster. This prevents the gunslinger from being able to raise his pistol, the crook ends up being the one running away. Hoot serves as an entertaining tour guide of the Old West, displaying several types of gunfights in the wild west, shooting different types of guns, stretching his shooting skills.
 
@@ -5951,22 +5957,20 @@ Wikipedia: [The Champion Liar](https://en.wikipedia.org/wiki/The%20Champion%20Li
 
 ## Cinders
 
-_Cinders_ is a short movie directed by Edward Laemmie. It stars Hoot Gibson.
+*Cinders* is a short directed by Edward Laemmie. It stars Hoot Gibson.
 
 **Synopsis**: Bingo Bradley is married to a drunk of a wife. One day, he catches her with another man. He is gets shot by the man.
 
-Gertrude Bradley
-
-- Her husband, Bingo
-- Rancher
+Gertrude Bradley 
+- Her husband, Bingo 
+- Rancher 
 - Shot by another man, takes the gunman's bullets
 
-Tony Clifford
-
-- Her affair
+Tony Clifford 
+- Her affair 
 - Ranch Hand
 
-This story is about Bingo Bradley, who got shot, but got the bullets. One night, he caught Gertrude with Tony, and her drunk of a husband starts shooting at them. Next time, she was with Tony without Bingo. Bingo took the bullets.
+This story is about Bingo Bradley, who got shot, but got the bullets. One night, he caught Gertrude with Tony, and her drunk of a husband starts shooting at them. Next time, she was with Tony without Bingo. Bingo took the bullets. 
 
 We meet Gertrude Bradley, who is married to Bingo Bradley, who was shot by another man.
 
@@ -5976,7 +5980,7 @@ Wikipedia: [Cinders](https://en.wikipedia.org/wiki/Cinders%20%281920%20film%29)
 
 ## Convict 13
 
-_Convict 13_ is a comedy movie directed by Edward F. Cline and Buster Keaton. It stars Buster Keaton and Joe Roberts.
+*Convict 13* is a comedy directed by Edward F. Cline and Buster Keaton. It stars Buster Keaton and Joe Roberts.
 
 **Synopsis**: In the film, "Convict 13," Buster Keaton, nicknamed "Convict 13," is unjustly sent to state prison. There, he becomes one of the most ingenious and incorrigible inmates in history, rife with laughs and thrills.
 
@@ -5986,7 +5990,7 @@ Wikipedia: [Convict 13](https://en.wikipedia.org/wiki/Convict%2013)
 
 ## Double Danger
 
-_Double Danger_ is a western movie directed by Albert Russell. It stars Hoot Gibson.
+*Double Danger* is a western directed by Albert Russell. It stars Hoot Gibson.
 
 **Synopsis**: Brent Tarleton has issues with Jed Waters at the hog ranch where he lives. Jed frequently spreads malicious rumors, both through the hog ranch and to the West Plains ranch. When Jed's youngest daughter, Molly, is hired by the West Plains family, he activates his plan to drive out them out. He gets his way, but reveals to her family who are disgruntled after Brent's father is murdered, that he knew the murderers. His sister, Molly, kills him for his crimes.
 
@@ -5996,7 +6000,7 @@ Wikipedia: [Double Danger](https://en.wikipedia.org/wiki/Double%20Danger%20%2819
 
 ## An Eastern Westerner
 
-_An Eastern Westerner_ is a comedy movie directed by Hal Roach. It stars Harold Lloyd.
+*An Eastern Westerner* is a comedy directed by Hal Roach. It stars Harold Lloyd.
 
 **Synopsis**: The movie stars Harold Lloyd, Edgar Kennedy and Mildred Davis. Harold is a millionaire who goes to the time of the West and falls in love with a girl out West. The two eventually get married and go back in time in a car to the East. A steamroller in the middle of a highway in a traffic jam in a rain storm crashes into the car, smashing it to smithereens, then picks up the car and smashes it into a large rock in a valley. The steamroller moves on, but has so much momentum it continues up the valley to a small stream, where it picks up a large rock and once again smashes the car. The movie provides a comedic depiction of the "deadly consequences" when a rich person moves from the East to the West, or vice versa.
 
@@ -6006,7 +6010,7 @@ Wikipedia: [An Eastern Westerner](https://en.wikipedia.org/wiki/An%20Eastern%20W
 
 ## Fight It Out
 
-_Fight It Out_ is a western movie directed by Albert Russell. It stars Hoot Gibson.
+*Fight It Out* is a western directed by Albert Russell. It stars Hoot Gibson.
 
 **Synopsis**: Hoot Gibson plays a gambler who becomes embroiled in a cattle rustling ring. He has a love interest played by future wife Dorris Hilliard. Entertaining comedy directed by writer, producer, and director Albert Russel who seems to make a living with Westerns.
 
@@ -6016,7 +6020,7 @@ Wikipedia: [Fight It Out](https://en.wikipedia.org/wiki/Fight%20It%20Out)
 
 ## The Fightin' Terror
 
-_The Fightin' Terror_ is a western movie directed by Hoot Gibson. It stars Hoot Gibson.
+*The Fightin' Terror* is a western directed by Hoot Gibson. It stars Hoot Gibson.
 
 **Synopsis**: The Terror has two mission he must perform. One is to save the weak and innocent around him, people around the town who are being bullied, taken advantage of, and killed by the town's evil Sherif. The other is to stop the Sherif's gang, the King's Indians, who terrorize the settlers in the town who also cause psychological havoc for all settlers surrounding the town.
 
@@ -6034,7 +6038,7 @@ Wikipedia: [The Fightin' Terror](https://en.wikipedia.org/wiki/The%20Fightin%27%
 
 ## A Gamblin' Fool
 
-_A Gamblin' Fool_ is a western movie directed by Leo D. Maloney. It stars Hoot Gibson.
+*A Gamblin' Fool* is a western directed by Leo D. Maloney. It stars Hoot Gibson.
 
 **Synopsis**: A gambler is threatened by a thug with a gun. The gambler tries to outrun the thug in a race with a horse in a nearby ranch in Arizona in the 19th century.
 
@@ -6051,7 +6055,7 @@ Wikipedia: [A Gamblin' Fool](https://en.wikipedia.org/wiki/A%20Gamblin%27%20Fool
 
 ## The Garage
 
-_The Garage_ is a comedy short movie directed by Fatty Arbuckle. It stars Fatty Arbuckle and Buster Keaton.
+*The Garage* is a comedy short directed by Fatty Arbuckle. It stars Fatty Arbuckle and Buster Keaton.
 
 **Synopsis**: The story is about three friends, Fatty Arbuckle, Keaton, and The General. All three men find themselves in various limber situations, which they would never plan. They, occasionally, try to take measures to make themselves better situations. The General falls exhausted at the beginning of the film, attempts to climb to the second story of a house, falls, and this happens over and over again. He tries to "Cheer Up Mister General" with coke, to which he spits up all over. The General wants liberty liberty. Finally, the General wants to "do somethin' which is nice" enough to be discharged, but it backfires.
 
@@ -6059,7 +6063,7 @@ Wikipedia: [The Garage](https://en.wikipedia.org/wiki/The%20Garage%20%281920%20f
 
 ## Get Out and Get Under
 
-_Get Out and Get Under_ is a comedy movie directed by Hal Roach. It stars Harold Lloyd.
+*Get Out and Get Under* is a comedy directed by Hal Roach. It stars Harold Lloyd.
 
 **Synopsis**: Harold Lloyd stars as Jimmie Porter, a hungry and out-of-luck young baggage boy who finds himself in the soup when he agrees to deliver a cash shipment for a local kingpin. When Porter realizes that none other than his employer's right-hand man, John Nevins (Jack P. Moore) is orchestrating the big robbery against his boss, the hilarity begins to build to a crash. Extracting himself from a lingering death sentence isn't going to be easy, and the timely appearance of a group of beautiful girls make a sad situation a good one.
 
@@ -6067,7 +6071,7 @@ Wikipedia: [Get Out and Get Under](https://en.wikipedia.org/wiki/Get%20Out%20and
 
 ## The Grinning Granger
 
-_The Grinning Granger_ is a western movie directed by Leo D. Maloney. It stars Hoot Gibson.
+*The Grinning Granger* is a western directed by Leo D. Maloney. It stars Hoot Gibson.
 
 **Synopsis**: The Grinning Granger follows the story of a drifter named Dub Collins who comes into a farming community that is always in need of a strong man. One day, while Dub is steeling himself for a fight to the death with a vicious bear escapee, a woman named Bradie Granger appears and shoots the bear dead with a rifle. Dub and Bradie fall in love and marry, and Dub stays in the community and becomes its patriarch and leader. But years later, the bear—unbearably resentful at being killed by a mere woman—returns and terrorizes the town, Bradie leads the townspeople, Dub and other men in a military-style bear hunt to take back their town.
 
@@ -6075,7 +6079,7 @@ Wikipedia: [The Grinning Granger](https://en.wikipedia.org/wiki/The%20Grinning%2
 
 ## Hair Trigger Stuff
 
-_Hair Trigger Stuff_ is a western movie directed by B. Reeves Eason. It stars Hoot Gibson.
+*Hair Trigger Stuff* is a western directed by B. Reeves Eason. It stars Hoot Gibson.
 
 **Synopsis**: Hoot Gibson is charged with protecting an old ranch hand Joe who the rest of the cowboys want to tar and feather. Hoot takes Joe to the doctor but the doctor is too sick to go. Hoot has to leave Joe in town while he goes back to the ranch. Joe is killed when the doctor's wife hears shouts in the doctor's office.
 
@@ -6089,7 +6093,7 @@ Wikipedia: [Hair Trigger Stuff](https://en.wikipedia.org/wiki/Hair%20Trigger%20S
 
 ## Haunted Spooks
 
-_Haunted Spooks_ is a comedy movie directed by Alfred J. Goulding and Hal Roach. It stars Harold Lloyd.
+*Haunted Spooks* is a comedy directed by Alfred J. Goulding and Hal Roach. It stars Harold Lloyd.
 
 **Synopsis**: The movie follows Harold's many attempts to be an actor. The final act of the movie has Harold dressed up in a horror costume while trick or treating. He runs into other trick or treaters (all adults) who hide behind corners and walls- only to jump out and vaporize him. It's meant to be a parody of horror films.
 
@@ -6097,7 +6101,7 @@ Wikipedia: [Haunted Spooks](https://en.wikipedia.org/wiki/Haunted%20Spooks)
 
 ## Held Up for the Makin's
 
-_Held Up for the Makin's_ is a western movie directed by B. Reeves Eason. It stars Hoot Gibson.
+*Held Up for the Makin's* is a western directed by B. Reeves Eason. It stars Hoot Gibson.
 
 **Synopsis**: Stories are told at a man's funeral about how he treated people.
 
@@ -6105,7 +6109,7 @@ Wikipedia: [Held Up for the Makin's](https://en.wikipedia.org/wiki/Held%20Up%20f
 
 ## High and Dizzy
 
-_High and Dizzy_ is a comedy movie directed by Hal Roach. It stars Harold Lloyd.
+*High and Dizzy* is a comedy directed by Hal Roach. It stars Harold Lloyd.
 
 **Synopsis**: Hal Roach's talkie remake of the silent high, daring, wild, 1920 movie, which features the famous skyscraper sequence.
 
@@ -6115,7 +6119,7 @@ Wikipedia: [High and Dizzy](https://en.wikipedia.org/wiki/High%20and%20Dizzy)
 
 ## His Nose in the Book
 
-_His Nose in the Book_ is a western movie directed by B. Reeves Eason. It stars Hoot Gibson.
+*His Nose in the Book* is a western directed by B. Reeves Eason. It stars Hoot Gibson.
 
 **Synopsis**: Hoot, a hero of the West is brutalized by outlaws. He is killed but then his spirit returns to life with vengeance on his mind. He is now wiser, stronger and more deadly than ever.
 
@@ -6123,7 +6127,7 @@ Wikipedia: [His Nose in the Book](https://en.wikipedia.org/wiki/His%20Nose%20in%
 
 ## His Royal Slyness
 
-_His Royal Slyness_ is a comedy movie directed by Hal Roach. It stars Harold Lloyd and Mildred Davis.
+*His Royal Slyness* is a comedy directed by Hal Roach. It stars Harold Lloyd and Mildred Davis.
 
 **Synopsis**: Hubert, The Royal Slyness (Harold Lloyd) is an ex-convict who, after completing his sentence, decides to go straight. Out of work, he one day sees a pack of stolen goods fall out of an abandoned baby's pram, and begins ominously foretelling his reversion to his old ways. The baby, who turns out to be illegitimate son of Duchess Marigold (Mildred Davis), takes Hubert under his wing, and soon the reluctant ex-convict becomes the Duke's right hand man, so much so that he is frequently called forth to act as the Duke's representative.
 
@@ -6131,7 +6135,7 @@ Wikipedia: [His Royal Slyness](https://en.wikipedia.org/wiki/His%20Royal%20Slyne
 
 ## 'In Wrong' Wright
 
-_'In Wrong' Wright_ is a western movie directed by Albert Russell. It stars Hoot Gibson.
+*'In Wrong' Wright* is a western directed by Albert Russell. It stars Hoot Gibson.
 
 **Synopsis**: Wrong Wright, a gambler, is after his acquaintances, but he never comes to town. He sends messages to the townspeople, telling them to send to him the right wrongdoer to meet his adjustments. Edith Holt is to be the meeting, but she is the daughter of an officer who carried messages to Wrong Wright. Wright decides to meet up with her anyway. Betty, the marshal's daughter, recognizes him, because she will go to New York. The marshal's daughter blabs to her boyfriend Bill Hoot, who is to mature into a ranger for the West. Bill wants to marry her, but she does not respond. She says that she would marry him if he became a real marshal. It is not certain if she will marry him. They are to meet at the Christmas tree, but before Bill comes, Edith minds her dress with a nickel. Bill offers to help her find it. They find the nickel wrapped up in the flowers. The marshals come and shoot Wrong Wright, and during the exchange, wrong wrong, and Edith and Bill cannot marry, so they decide to run off and be married.
 
@@ -6139,7 +6143,7 @@ Wikipedia: ['In Wrong' Wright](https://en.wikipedia.org/wiki/%27In%20Wrong%27%20
 
 ## The Jay Bird
 
-_The Jay Bird_ is a western movie directed by Phil Rosen. It stars Hoot Gibson.
+*The Jay Bird* is a western directed by Phil Rosen. It stars Hoot Gibson.
 
 **Synopsis**: The Jay Bird is a western movie directed by Phil Rosen. The film stars Hoot Gibson and Theodocia Brown, both in their only movies in the genre.
 
@@ -6159,33 +6163,33 @@ Wikipedia: [The Jay Bird](https://en.wikipedia.org/wiki/The%20Jay%20Bird)
 
 ## The Man with the Punch
 
-_The Man with the Punch_ is a western movie directed by Edward Laemmle. It stars Hoot Gibson.
+*The Man with the Punch* is a western directed by Edward Laemmle. It stars Hoot Gibson.
 
 **Synopsis**: Western movie directed by Edward Laemmle, Hoot Gibson
 Shootout in high noon
 
-Bill Bee is the marshal of a Western town, but when Allen Davis comes to town to rescue an outlaw named Logan Stallion, both the lawman and the outlaw are captured by the townspeople. A duel is set up in which both must be killed for either to win. As the clock ticks down to high noon, the outlaw is conveniently rescued, leaving the marshal to be mortally wounded. Davis runs into town firing, but is unsuccessful.
+Bill Bee is the marshal of a Western town, but when Allen Davis comes to town to rescue an outlaw named Logan Stallion, both the lawman and the outlaw are captured by the townspeople. A duel is set up in which both must be killed for either to win. As the clock ticks down to high noon, the outlaw is conveniently rescued, leaving the marshal to be mortally wounded. Davis runs into town firing, but is unsuccessful. 
 
-What are the principal characters in the movie?
+What are the principal characters in the movie? 
 
-Bill Bee, Allen Davis
+Bill Bee, Allen Davis 
 
 What are the themes of the movie?
 
 Life in the Wild West
-Themes of the Western
+Themes of the Western 
 Justice System in Western film
 Themes in Western movies
 Living with Tradition
 Plot of Western movies
 
-What influenced this film in terms of the story telling in the Wild West style?
+What influenced this film in terms of the story telling in the Wild West style? 
 
-Themes in Western movies
-Themes in Westerns
-Elemental Themes in Westerns
-Western living
-Western justice
+Themes in Western movies 
+Themes in Westerns 
+Elemental Themes in Westerns 
+Western living 
+Western justice 
 Plot of Western movies
 
 How do the dynamics of the old West Texas town dictate what happens in the film?
@@ -6196,9 +6200,9 @@ Wikipedia: [The Man with the Punch](https://en.wikipedia.org/wiki/The%20Man%20wi
 
 ## Masked
 
-_Masked_ is a western movie directed by Mack V. Wright. It stars Hoot Gibson and Virginia Browne Faire.
+*Masked* is a western directed by Mack V. Wright. It stars Hoot Gibson and Virginia Browne Faire.
 
-**Synopsis**: Joker Wild steals $5,000 from Curly Jones and Curly goes to the Opera to get the money back.
+**Synopsis**: Joker Wild steals $5,000 from Curly Jones and Curly goes to the Opera to get the money back. 
 
 The outlaw, Joker Wild learns that a saddlemaker has a large amount of money he intends to keep dry in a new town. His accomplices, Fox, Billie and Nell smuggle a truckload of dynamite to the new town and wait for daybreak to set off the explosives. Curley Jones, the saddlemaker watches his morning mare get spooked and gallop off. He later discovers that no horse is there that time and the one that's missing is his.
 
@@ -6214,7 +6218,7 @@ Wikipedia: [Masked](https://en.wikipedia.org/wiki/Masked%20%28film%29)
 
 ## Number, Please?
 
-_Number, Please?_ is a comedy movie directed by Fred C. Newmeyer and Hal Roach. It stars Harold Lloyd.
+*Number, Please?* is a comedy directed by Fred C. Newmeyer and Hal Roach. It stars Harold Lloyd.
 
 **Synopsis**: Harold insists he's been cured from being deathly afraid of heights using his own experiment. Professors come from all over the world to witness the experiment. Harold drinks a pill before climbing a ladder and a series of progressively taller buildings. The experiment a huge success.
 
@@ -6222,7 +6226,7 @@ Wikipedia: [Number, Please?](https://en.wikipedia.org/wiki/Number%2C%20Please%3F
 
 ## One Law for All
 
-_One Law for All_ is a western short movie directed by Leo D. Maloney. It stars Hoot Gibson.
+*One Law for All* is a western short directed by Leo D. Maloney. It stars Hoot Gibson.
 
 **Synopsis**: Film synopsizes the lives of 3 cowboys who are cattle drovers on the dangerous trail, seeking money and adventure. One of the men decides to go "on strike", to strike for better wages. At first, his 2 cowhands want to join, but they soon find out the cattle company has a plan to continue their journey to Dawson with a manhunt dog, Worryhead. So, Billy, a speedy hand who rides a white horse, hops a freight train and renders the dog ineffective. With the cowboys hands safe from bounty hunters, Billy returns to the cattle company and all becomes pro-company.
 
@@ -6230,7 +6234,7 @@ Wikipedia: [One Law for All](https://en.wikipedia.org/wiki/One%20Law%20for%20All
 
 ## One Week
 
-_One Week_ is a comedy movie directed by Edward F. Cline and Buster Keaton. It stars Buster Keaton.
+*One Week* is a comedy directed by Edward F. Cline and Buster Keaton. It stars Buster Keaton.
 
 **Synopsis**: One Week is the story of William Brownleigh, who has fallen in love with Nelly, the teenage daughter of an innkeeper. They are about to elope when Brownleigh's father decides to stop the wedding. He hires a Doctor to put Brownleigh in shape for society once again, but he dies on the table. Several days later, Brownleigh has Brownleigh's father yell at him to get himself into shape. Brownleigh then sentences himself to just one week of total fasting.
 
@@ -6238,7 +6242,7 @@ Wikipedia: [One Week](https://en.wikipedia.org/wiki/One%20Week%20%281920%20film%
 
 ## The Rattler's Hiss
 
-_The Rattler's Hiss_ is a western movie directed by B. Reeves Eason. It stars Hoot Gibson.
+*The Rattler's Hiss* is a western directed by B. Reeves Eason. It stars Hoot Gibson.
 
 **Synopsis**: Outlaws, Eskar B. Reeves and Kells, turn ranchers Horace, Bobby, Fred, Pete, and Stomp into slaves. Stomp escapes but is soon captured. Stomp's stud horse saves the day.
 
@@ -6250,7 +6254,7 @@ Wikipedia: [The Rattler's Hiss](https://en.wikipedia.org/wiki/The%20Rattler%27s%
 
 ## Roarin' Dan
 
-_Roarin' Dan_ is a western movie directed by Phil Rosen. It stars Hoot Gibson.
+*Roarin' Dan* is a western directed by Phil Rosen. It stars Hoot Gibson.
 
 **Synopsis**: Hoot Gibson is about to be executed for a crime he did not commit. He is rescued by cowboys and takes on the guise of one of them. They must find out the truth behind the crime and clear Gibson's name.
 
@@ -6258,7 +6262,7 @@ Wikipedia: [Roarin' Dan](https://en.wikipedia.org/wiki/Roarin%27%20Dan)
 
 ## Runnin' Straight
 
-_Runnin' Straight_ is a western movie directed by Arthur J. Flaven. It stars Hoot Gibson.
+*Runnin' Straight* is a western directed by Arthur J. Flaven. It stars Hoot Gibson.
 
 **Synopsis**: Hoot Gibson stars in this western when he is having a disagreement with a neighboring rancher. Hoot is hired by a nearby mine run run by a man well known in the nearby mining towns. Hoot has to impersonate a town sheriff when the real sheriff is to ill to make it to the town.
 
@@ -6266,7 +6270,7 @@ Wikipedia: [Runnin' Straight](https://en.wikipedia.org/wiki/Runnin%27%20Straight
 
 ## The Scarecrow
 
-_The Scarecrow_ is a comedy short movie directed by Edward F. Cline and Buster Keaton. It stars Buster Keaton.
+*The Scarecrow* is a comedy short directed by Edward F. Cline and Buster Keaton. It stars Buster Keaton.
 
 **Synopsis**: A poor man, working for. An apparently cruel and despotic farm owner, sets out to frighten the farmer's wife. He succeeds in spooking the poor parent but also spies her two dead children nearby. He spies her two dead children nearby.
 
@@ -6274,9 +6278,9 @@ Wikipedia: [The Scarecrow](https://en.wikipedia.org/wiki/The%20Scarecrow%20%2819
 
 ## The Sheriff's Oath
 
-_The Sheriff's Oath_ is a western movie directed by Phil Rosen. It stars Hoot Gibson.
+*The Sheriff's Oath* is a western directed by Phil Rosen. It stars Hoot Gibson.
 
-**Synopsis**: Deputy Woodrow McCoy doesn't believe in justice, corruption or sin. He's a man with his own rules.
+**Synopsis**: Deputy Woodrow McCoy doesn't believe in justice, corruption or sin. He's a man with his own rules. 
 "A family is found murdered near the north border. Eagles says the wagon carried loot from a crime spree, but McCoy disbelieves him. Nevertheless, McCoy investigates anyways with his own plans.""Leadership never seemed to interest Woodrow, until he's forced into the position of Sheriff by the corrupt Mayor Craneville, who plans to frame him for murder."
 
 Hoot Gibson is Deputy Woodrow McCoy who doesn't believe in justice, corruption or sin until he is forced to become the Sheriff by Mayor Craneville who makes him believe so, so he can frame him for murder.
@@ -6285,7 +6289,7 @@ Wikipedia: [The Sheriff's Oath](https://en.wikipedia.org/wiki/The%20Sheriff%27s%
 
 ## Shipwrecked Among Cannibals
 
-_Shipwrecked Among Cannibals_ is a documentary movie directed by William F. Adler. It stars .
+*Shipwrecked Among Cannibals* is a documentary directed by William F. Adler. It stars .
 
 **Synopsis**: The documentary shows the basic strategies of survival used by the survivors of the 16-day ordeal of four shipwrecks caused by World War II. The ships were torpedoed by the Nazis leaving only 1,800 survivors, who were abandoned at sea. After several shipwrecks, 75% of the sailors are killed. Eventually the remains of the four vessels are towed together. It was at this time that the men began to organize into sailors groups. The different groups felt that they were not being taken care of by the other sailor groups. The sailors organized themselves into groups based on where they were located on the overcrowded raft, separated by rank. From this point, the situation continues to deteriorate as the sailors start to fight over how to govern the raft. Staying alive involved three basic tactics: rationing food, rationing water, and conserving energy. This documentary deals mainly how to stay alive when you are stranded at sea for days.
 
@@ -6295,7 +6299,7 @@ Wikipedia: [Shipwrecked Among Cannibals](https://en.wikipedia.org/wiki/Shipwreck
 
 ## The Shootin' Fool
 
-_The Shootin' Fool_ is a western movie directed by Hoot Gibson. It stars Hoot Gibson.
+*The Shootin' Fool* is a western directed by Hoot Gibson. It stars Hoot Gibson.
 
 **Synopsis**: Hoot meets two two brothers' horse racing outfits are are financing the shooting of buffalo. One of the brothers double crosses the other, then he double crosses Hoot, but Hoot has double crossed them first.
 
@@ -6307,7 +6311,7 @@ Wikipedia: [The Shootin' Fool](https://en.wikipedia.org/wiki/The%20Shootin%27%20
 
 ## The Shootin' Kid
 
-_The Shootin' Kid_ is a western movie directed by Hoot Gibson. It stars Hoot Gibson.
+*The Shootin' Kid* is a western directed by Hoot Gibson. It stars Hoot Gibson.
 
 **Synopsis**: Hoot Gibson comes to the rescue when the outlaw named the Shootin' Kid terrorizes the lonely settler's community. Hoot Gibson beats it out of him, but one of the cows is killed in the bargain.
 
@@ -6315,7 +6319,7 @@ Wikipedia: [The Shootin' Kid](https://en.wikipedia.org/wiki/The%20Shootin%27%20K
 
 ## The Smilin' Kid
 
-_The Smilin' Kid_ is a western movie directed by Hoot Gibson. It stars Hoot Gibson.
+*The Smilin' Kid* is a western directed by Hoot Gibson. It stars Hoot Gibson.
 
 **Synopsis**: The Smilin' Kid centers on Roy Clayton, an orphaned teenager who is forced to switch identities with Eben, a wanted gang member. Roy enters into crime, but eventually returns to become the new leader of the gang that he had renounced.
 
@@ -6325,7 +6329,7 @@ Wikipedia: [The Smilin' Kid](https://en.wikipedia.org/wiki/The%20Smilin%27%20Kid
 
 ## The Stranger
 
-_The Stranger_ is a western movie directed by W. C. Tuttle. It stars Hoot Gibson.
+*The Stranger* is a western directed by W. C. Tuttle. It stars Hoot Gibson.
 
 **Synopsis**: This is a fifteen chapter, black and white silent western by a film director of cowboy films. Hoot Gibson, a famous cowboy comes to an old western town with a gang of outlaws, called the Blueridges. They have a showdown with a local sheriff and his three deputies. In the end the outlaws kill the sheriff and two deputies. The third deputy manage to escape and alerts the townspeople of Blueridges' pending arrival. The townspeople gather guns and meet the outlaws on a bridge. Blueridges have a shootout with the townspeople and in the end most of the townspeople are killed. The Stranger is a very good and exciting western by a very famous and well known cinema cowboy!
 
@@ -6335,7 +6339,7 @@ Wikipedia: [The Stranger](https://en.wikipedia.org/wiki/The%20Stranger%20%281920
 
 ## Superstition
 
-_Superstition_ is a western movie directed by Edward Laemmle. It stars Hoot Gibson.
+*Superstition* is a western directed by Edward Laemmle. It stars Hoot Gibson.
 
 **Synopsis**: Stopping a stagecoach from a band of outlaws, a cowboy named Roy saves a man's life. The man is grateful and offers a reward. Roy is soon hired by a prospector whose wife has been kidnapped by the outlaws. Roy puts together a posse and tracks them down, recovering the woman and killing the leader.
 
@@ -6343,7 +6347,7 @@ Wikipedia: [Superstition](https://en.wikipedia.org/wiki/Superstition%20%281920%2
 
 ## Thieves' Clothes
 
-_Thieves' Clothes_ is a western movie directed by Mack V. Wright. It stars Hoot Gibson and Alma Bennett.
+*Thieves' Clothes* is a western directed by Mack V. Wright. It stars Hoot Gibson and Alma Bennett.
 
 **Synopsis**: Hoot Gibson and Alma Bennett star as Billy and Susy Thaw, a mother-daughter team of bandits robbing railroad trains. Following a job, the John Dawes stagecoach is robbed and robbed passengers pay Susy and Billy with gold nuggets. The two then rob the same stagecoach again and eventually people start catching onto their schemes. Two train robbers attempt to assault them and they knock them out, shake off suspicion. They then do the job again and the President of the A.T. & S.F. Railroads, Mr. Winship, has them arrested. All are on the train when the train is hit on its silver box car. Billy gets on board, opens the door, spills all of the silver on the track. Heading back to the train, Billy sees A.T. & S.F. Railroads employee tipping dynamite on the silver, so the dynamite blows up. Later on, Billy and Bliss are in a saloon with their loot. A.T. & S.F. Railroads employee comes in and Billy ends up shooting him in the arm. The police officer, named Sickles, then takes Billy, Susy, Hazel, and Mr. Davies into custody.
 
@@ -6359,7 +6363,7 @@ Wikipedia: [Thieves' Clothes](https://en.wikipedia.org/wiki/Thieves%27%20Clothes
 
 ## Tipped Off
 
-_Tipped Off_ is a western movie directed by Albert Russell. It stars Hoot Gibson.
+*Tipped Off* is a western directed by Albert Russell. It stars Hoot Gibson.
 
 **Synopsis**: Tipped Off is a 1915 film that finds Hoot Gibson as a rancher attempting to protect his ranch from the dirty politicians who want to take it from him by force, as well as helping a damsel in distress. The movie finds Gibson as a rancher being pushed off his ranch by a gang of bandits led by Herman Nervous, who desires the land for a smelting plant, and involves a damsel in distress, a sheriff trained by Gibson, a sech ach ach ach ach ach ach ach
 
@@ -6371,7 +6375,7 @@ Wikipedia: [Tipped Off](https://en.wikipedia.org/wiki/Tipped%20Off)
 
 ## The Trail of the Hound
 
-_The Trail of the Hound_ is a western movie directed by Albert Russell. It stars Hoot Gibson and Jeff Corey.
+*The Trail of the Hound* is a western directed by Albert Russell. It stars Hoot Gibson and Jeff Corey.
 
 **Synopsis**: Mandy is daddy's little girl and she loves to ride horses and be around the ranch. One day, while training her horse, he throws her and injures her back, Mandy's dad immediately hires a U.C.B (University Cattle and Bloodhound) to take care of the dog who had injured her. As time passes she forms a strong bond with the dog and her feelings for the man slowly starts to dissipate, but before she can come to the decision on what she really wants, she is forced to fully understand how much she wants to live and decides on the man.
 
@@ -6385,7 +6389,7 @@ Wikipedia: [The Trail of the Hound](https://en.wikipedia.org/wiki/The%20Trail%20
 
 ## The Two-Fisted Lover
 
-_The Two-Fisted Lover_ is a western movie directed by Edward Laemmle. It stars Hoot Gibson.
+*The Two-Fisted Lover* is a western directed by Edward Laemmle. It stars Hoot Gibson.
 
 **Synopsis**: Hoot Gibson takes center stage when he ventures to secure the release of his old friend Goose Wallace, who's been taken prisoner by the "sons of the big bad wolf." Gibson infiltrates the gang to find out the location of Wallace when an outlaw named Boone joins the gang.
 
@@ -6397,7 +6401,7 @@ Wikipedia: [The Two-Fisted Lover](https://en.wikipedia.org/wiki/The%20Two-Fisted
 
 ## West Is Best
 
-_West Is Best_ is a western movie directed by Phil Rosen. It stars Hoot Gibson and Josephine Hill.
+*West Is Best* is a western directed by Phil Rosen. It stars Hoot Gibson and Josephine Hill.
 
 **Synopsis**: Nate Kinsey is a cowboy who is educated and intelligent who is a loyal cowhand. He is a defender of the old traditional values. He is outnumbered by cow hands from the east who are unknowledgeable and ruthless. They enable trust lawbreakers and abuse their power. Life becomes a nightmare for him. In the end, everyone in town is grateful that they have a true cowboy to take care of them.
 
@@ -6409,11 +6413,11 @@ Wikipedia: [West Is Best](https://en.wikipedia.org/wiki/West%20Is%20Best)
 
 ## Wolf Tracks
 
-_Wolf Tracks_ is a western movie directed by Mack V. Wright. It stars Hoot Gibson.
+*Wolf Tracks* is a western directed by Mack V. Wright. It stars Hoot Gibson.
 
 **Synopsis**: Mack V. Wright directed Hoot Gibson in a Western movie entitled Wolf Tracks. In an Inuit village, Inky earns the ire of the the other girls by shooting a caribou without their permission. The rest of the village plots an attack on Inky and other Inuit from other villages.
 
-In this movie, Inky, a teenage Inuit hunter, shoots a caribou without the permission of the other girls in the village. They retaliate by conspiring a surprise raid to the village while the men hunt. Inky, while hunting while disguised as a boy, takes revenge by shooting a small grizzly bear that killed a wolf to save the other Inuit. The bear matriarch attacked her.
+In this movie, Inky, a teenage Inuit hunter, shoots a caribou without the permission of the other girls in the village. They retaliate by conspiring a surprise raid to the village while the men hunt. Inky, while hunting while disguised as a boy, takes revenge by shooting a small grizzly bear that killed a wolf to save the other Inuit. The bear matriarch attacked her. 
 
 Throughout the movie, the women of the village go without the men because the men just go hunt food sporadically. Children are forced to fend for themselves. After they realize who is responsible for the death of the bear, the men just just go fight after finding out who killed the twig matriarch.
 
@@ -6426,3 +6430,4 @@ Another theme is the fact that men are not very good hunters, but they are relie
 Lastly, the movie is about how children are expected to take care of themselves.
 
 Wikipedia: [Wolf Tracks](https://en.wikipedia.org/wiki/Wolf%20Tracks%20%281920%20film%29)
+

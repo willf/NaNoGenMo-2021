@@ -133,9 +133,9 @@ def create_brief_summary(movie_dict):
     actors = create_and_list(movie_dict["actors"])
     genre = movie_dict["genre"].lower()
     an = "an" if genre[0] in "aeiou" else "a"
-    summary = (
-        f"*{title}* is {an} {genre} movie directed by {directors}. It stars {actors}."
-    )
+    if genre == "adventure":
+        genre = "adventure film"
+    summary = f"*{title}* is {an} {genre} directed by {directors}. It stars {actors}."
     return summary
 
 
