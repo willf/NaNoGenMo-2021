@@ -1,0 +1,1522 @@
+{{short description|Wikimedia list article}}
+{{use American English|date=October 2020}}
+{{use mdy dates|date=October 2020}}
+{{inc-film|date=October 2021}}
+{{American film list}}
+This '''list of American films of 1920''' is a compilation of American films that were released in the year [[1920 in film|1920]].
+
+== A ==
+{| class="wikitable"
+|-
+! style="width:30%;"| Title
+! style="width:20%;"| Director
+! style="width:34%;"| Featured Cast
+! style="width:10%;"| Genre
+! style="width:10%;"| Note
+|-
+| ''[[813 (film)|813]]'' || [[Charles Christie]], [[Scott Sidney]] || [[Wedgwood Nowell]], [[Ralph Lewis (actor)|Ralph Lewis]], [[Wallace Beery]], [[Laura La Plante]] || Mystery || [[Film Booking Offices of America|FBO]]
+|-
+| ''[[The Adorable Savage]]'' || [[Norman Dawn]] || [[Edith Roberts (actress)|Edith Roberts]], [[Jack Perrin]] || Romance || [[Universal Pictures|Universal]]
+|-
+| ''[[The Adventurer (1920 film)|The Adventurer]]'' || [[J. Gordon Edwards]] || [[William Farnum]], [[Estelle Taylor]] || Historical || [[Fox Film]]
+|-
+| ''[[Alarm Clock Andy]]'' || [[Jerome Storm]] || [[Charles Ray (actor)|Charles Ray]], [[George Webb (American actor)|George Webb]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Alias Jimmy Valentine (1920 film)|Alias Jimmy Valentine]]'' || [[Edmund Mortimer (actor)|Edmund Mortimer]] || [[Bert Lytell]], [[Vola Vale]], [[Eugene Pallette]] || Crime || [[Metro Pictures|Metro]]
+|-
+| ''[[Alias Miss Dodd]]'' || [[Harry L. Franklin]] || [[Edith Roberts (actress)|Edith Roberts]], [[Margaret McWade]] || Comedy || [[Universal Pictures|Universal]]
+|-
+| ''[[All of a Sudden Peggy]]'' || [[Walter Edwards (director)|Walter Edwards]] || [[Marguerite Clark]], [[Jack Mulhall]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Always Audacious]]'' || [[James Cruze]] || [[Wallace Reid]], [[Margaret Loomis]] || Romance || [[Paramount Pictures|Paramount]]
+|-
+| ''[[An Amateur Devil]]'' || [[Maurice S. Campbell]] || [[Bryant Washburn]], [[Ann May]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Amateur Wife]]'' || [[Edward Dillon (actor)|Edward Dillon]] || [[Irene Castle]], [[William P. Carleton]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[April Folly]]'' || [[Robert Z. Leonard]] || [[Marion Davies]], [[Conway Tearle]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[An Arabian Knight]]'' || [[Charles Swickard]] || [[Sessue Hayakawa]], [[Jean Acker]] || Drama || [[Film Booking Offices of America|FBO]]
+|-
+| ''[[Are All Men Alike?]]'' || [[Phil Rosen]] || [[May Allison]], [[Wallace MacDonald]] || Comedy-drama || [[Metro Pictures|Metro]]<ref>{{cite web|url=http://www.tcm.com/tcmdb/title/492043/Are-All-Men-Alike-/|title=Are All Men Alike? (1920) – Overview|website=Turner Classic Movies}}</ref>
+|-
+| ''[[Away Goes Prudence]]'' || [[John S. Robertson]] || [[Billie Burke]], [[Percy Marmont]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+|}
+
+== B ==
+{| class="wikitable"
+|-
+! style="width:30%;"| Title
+! style="width:20%;"| Director
+! style="width:34%;"| Featured Cast
+! style="width:10%;"| Genre
+! style="width:10%;"| Note
+|-
+| ''[[Babs (1920 film)|Babs]]'' || [[Edward H. Griffith]] || [[Corinne Griffith]], [[George Fawcett]] || Comedy || [[Vitagraph]]
+|-
+| ''[[Beautifully Trimmed]]'' || [[Marcel De Sano]] || [[Carmel Myers]], [[Irving Cummings]] || Thriller || [[Universal Pictures|Universal]]
+|-
+| ''[[A Beggar in Purple]]'' || [[Edgar Lewis (director)|Edgar Lewis]] || [[Lee Shumway]], [[Charles Arling]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[The Beggar Prince]]'' || [[William Worthington (actor)|William Worthington]] || [[Sessue Hayakawa]], [[Josef Swickard]] || Comedy || [[Film Booking Offices of America|FBO]]
+|-
+| ''[[Behold My Wife! (1920 film)|Behold My Wife!]]'' || [[George Melford]] || [[Mabel Julienne Scott]], [[Milton Sills]], [[Winter Hall]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Below the Surface (1920 film)|Below the Surface]]'' || [[Irvin Willat]] || [[Hobart Bosworth]], [[Grace Darmond]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Best of Luck]]'' || [[Ray C. Smallwood]] || [[Kathryn Adams (actress, born 1893)|Kathryn Adams]], [[Jack Holt (actor)|Jack Holt]], [[Lila Leslie]] || Drama || [[Metro Pictures|Metro]]
+|-
+| ''[[Beware of the Bride]]'' || [[Howard M. Mitchell]] || [[Eileen Percy]], [[Walter McGrail]] || Comedy || [[Fox Film]]
+|-
+| ''[[Big Happiness]]'' || [[Colin Campbell (director)|Colin Campbell]] || [[Dustin Farnum]], [[Kathryn Adams (actress, born 1893)|Kathryn Adams]] || Drama || [[Film Booking Offices of America|FBO]]
+|-
+| ''[[Billions (film)|Billions]]'' || [[Ray C. Smallwood]] || [[Alla Nazimova]], [[Charles Bryant (actor)|Charles Bryant]] || Comedy || [[Metro Pictures|Metro]]
+|-
+| ''[[The Birth of a Soul]]'' || [[Edwin L. Hollywood]] || [[Harry T. Morey]], [[Jean Paige]] || Drama || [[Vitagraph]]
+|-
+| ''[[Black Is White]]'' || [[Charles Giblyn]] || [[Dorothy Dalton]], [[Holmes Herbert]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Blackbirds (1920 film)|Blackbirds]]'' || [[John Francis Dillon (director)|John Francis Dillon]] || [[Justine Johnstone]], [[Charles K. Gerrard]] || Crime || Independent
+|-
+| ''[[Blackmail (1920 film)|Blackmail]]'' || [[Dallas M. Fitzgerald]] || [[Viola Dana]], [[Wyndham Standing]] || Drama || [[Metro Pictures|Metro]]
+|-
+| ''[[Black Shadows]]'' || [[Howard M. Mitchell]] || [[Peggy Hyland]], [[Alan Roscoe]] || Crime || [[Fox Film]]
+|-
+| ''[[Blind Wives]]'' || [[Charles Brabin]] || [[Marc McDermott]], [[Estelle Taylor]] || Drama || [[Fox Film]]
+|-
+| ''[[Blind Youth]]'' || [[Edward Sloman]] || [[Walter McGrail]], [[Leatrice Joy]] || Drama || [[Select Pictures|Select]]
+|-
+| ''[[The Blood Barrier]]'' || [[J. Stuart Blackton]] || [[Sylvia Breamer]], [[Robert Gordon (actor)|Robert Gordon]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[The Blooming Angel]]'' || [[Victor Schertzinger]] || [[Madge Kennedy]], [[Pat O'Malley (actor)|Pat O'Malley]], [[Margery Wilson]] || Comedy || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[The Blue Moon (film)|The Blue Moon]]'' || [[George L. Cox]] || [[Pell Trenton]], [[Elinor Field]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[The Blue Pearl (1920 film)|The Blue Pearl]]'' || [[George Irving (American actor)|George Irving]] || [[Edith Hallor]], [[Lumsden Hare]], [[Earl Schenck]] || Mystery || [[Independent film|Independent]]
+|-
+| ''[[Blue Streak McCoy]]'' || [[B. Reeves Eason]] || [[Harry Carey (actor)|Harry Carey]], [[Lila Leslie]] || Western || [[Universal Pictures|Universal]]
+|-
+| ''[[Body and Soul (1920 film)|Body and Soul]]'' || [[Charles Swickard]] || [[Alice Lake]], [[Stuart Holmes]] || Drama || [[Metro Pictures|Metro]]
+|-
+| ''[[Bonnie May]]'' || [[Ida May Park]], [[Joseph De Grasse]] || [[Bessie Love]], [[Charles Gordon (actor)|Charles Gordon]] || Comedy drama || Independent
+|-
+| ''[[The Brand of Lopez]]'' || [[Joseph De Grasse]] || [[Sessue Hayakawa]], [[Florence Turner]] || Drama || [[Film Booking Offices of America|FBO]]
+|-
+| ''[[The Branded Four]]'' || [[Duke Worne]] || [[Ben F. Wilson]], [[Neva Gerber]] || Action || [[Select Pictures|Select]]
+|-
+| ''[[The Branded Woman]]'' || [[Albert Parker (director)|Albert Parker]] || [[Norma Talmadge]], [[Percy Marmont]], [[Vincent Serrano]] || Drama || [[First National Pictures|First National]]
+|-
+| ''[[The Branding Iron]]'' || [[Reginald Barker]] || [[Barbara Castleton]], [[James Kirkwood Sr.|James Kirkwood]], [[Russell Simpson (actor)|Russell Simpson]] || Western || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[The Breath of the Gods]]'' || [[Rollin S. Sturgeon]] || [[Tsuru Aoki]], [[Arthur Carewe]] || Drama || [[Universal Pictures|Universal]]
+|-
+| ''[[Bright Skies (film)|Bright Skies]]'' || [[Henry Kolker]] || [[Zasu Pitts]], [[Tom Gallery]] || Drama || [[Film Booking Offices of America|FBO]]
+|-
+| ''[[The Broadway Bubble]]'' || [[George L. Sargent]] || [[Corinne Griffith]], [[Joe King (actor)|Joe King]] || Drama || [[Vitagraph]]
+|-
+| ''[[A Broadway Cowboy]]'' || [[Joseph Franz (director)|Joseph Franz]] || [[William Desmond (actor)|William Desmond]], [[Betty Francisco]] || Western || [[Pathe Exchange]]
+|-
+| ''[[Broadway and Home]]'' || [[Alan Crosland]] || [[Eugene O'Brien (actor)|Eugene O'Brien]], [[Elinor Fair]] || Drama || [[Selznick Pictures|Selznick]]
+|-
+| ''[[The Broken Gate]]'' || [[Paul Scardon]] || [[Bessie Barriscale]], [[Joseph Kilgour]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[The Brute Master]]'' || [[Roy Marshall (director)|Roy Marshall]] || [[Hobart Bosworth]], [[Anna Q. Nilsson]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[Bullet Proof (1920 film)|Bullet Proof]]'' || [[Lynn Reynolds]] || [[Harry Carey (actor)|Harry Carey]], [[Fred Gamble (actor)|Fred Gamble]] || Western || [[Universal Pictures|Universal]]
+|-
+| ''[[Burglar Proof]]'' || [[Maurice S. Campbell|Maurice Campbell]] || [[Bryant Washburn]], [[Lois Wilson (actress)|Lois Wilson]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Burning Daylight (1920 film)|Burning Daylight]]'' || [[Edward Sloman]] || [[Mitchell Lewis]], [[Helen Ferguson]] || Drama || [[Metro Pictures|Metro]]
+|-
+| ''[[Burnt Wings (1920 film)|Burnt Wings]]'' || [[Christy Cabanne]] || [[Josephine Hill]], [[Frank Mayo (actor)|Frank Mayo]] || Drama || [[Universal Pictures|Universal]]
+|-
+| ''[[The Butterfly Man]]'' || [[Louis J. Gasnier]], [[Ida May Park]] || [[Lew Cody]], [[Louise Lovely]], [[Lila Leslie]] || Drama || [[Film Booking Offices of America|FBO]]
+|-
+|}
+
+== C ==
+{| class="wikitable"
+|-
+! style="width:30%;"| Title
+! style="width:20%;"| Director
+! style="width:34%;"| Featured Cast
+! style="width:10%;"| Genre
+! style="width:10%;"| Note
+|-
+| ''[[Captain Swift]]'' || [[Tom Terriss]] || [[Earle Williams]], [[Edward Martindel]] || Drama || [[Vitagraph]]
+|-
+| ''[[Chains of Evidence]]'' || [[Dallas M. Fitzgerald]] || [[Edmund Breese]], [[Anna Lehr]] || Mystery || [[Independent Film|Independent]]
+|-
+| ''[[The Challenge of the Law]]'' || [[Scott R. Dunlap]] || [[William Russell (American actor)|William Russell]], [[Helen Ferguson]] || Western || [[Fox Film]]
+|-
+| ''[[The Cheater (1920 film)|The Cheater]]'' || [[Henry Otto]] || [[May Allison]], [[King Baggot]] || Drama || [[Metro Pictures|Metro]]
+|-
+| ''[[A Child for Sale]]'' || [[Ivan Abramson]] || [[Gladys Leslie]], [[Creighton Hale]] || Melodrama || Independent
+|-
+| ''[[The Chorus Girl's Romance]]'' || [[William C. Dowlan]] || [[Viola Dana]], [[Gareth Hughes]] || Comedy || [[Metro Pictures|Metro]]
+|-
+| ''[[Cinderella's Twin]]'' || [[Dallas M. Fitzgerald]] || [[Viola Dana]], [[Wallace MacDonald]] || Comedy || [[Metro Pictures|Metro]]
+|-
+| ''[[The City of Masks]]'' || [[Thomas N. Heffron]] || [[Robert Warwick]], [[Lois Wilson (actress)|Lois Wilson]], [[Theodore Kosloff]] || Comedy drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[A City Sparrow]]'' || [[Sam Wood]] || [[Ethel Clayton]], [[Walter Hiers]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Civilian Clothes]]'' || [[Hugh Ford (director)|Hugh Ford]] || [[Thomas Meighan]], [[Martha Mansfield]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Clothes (1920 film)|Clothes]]'' || [[Fred Sittenham]] || [[Olive Tell]], [[Crauford Kent]] || Drama || [[Metro Pictures|Metro]]
+|-
+| ''[[The Coast of Opportunity]]'' || [[Ernest C. Warde]] || [[J. Warren Kerrigan]], [[Herschel Mayall]], [[Fritzi Brunette]] || Drama || Independent
+|-
+| ''[[The Common Sin]]'' || [[Burton King]] || [[Rod La Rocque]], [[Nita Naldi]] || Drama || Independent<ref>{{cite web|url=http://www.tcm.com/tcmdb/title/494429/The-Common-Sin/|title=The Common Sin (1920) – Overview|website=Turner Classic Movies}}</ref>
+|-
+| ''[[Conrad in Quest of His Youth]]'' || [[William C. deMille]] || [[Thomas Meighan]], [[Mabel Van Buren]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Confession (1920 film)|The Confession]]'' || [[Bertram Bracken]] || [[Henry B. Walthall]], [[Francis McDonald]] || Drama || Independent
+|-
+| ''[[The Copperhead (1920 film)|The Copperhead]]'' || [[Charles Maigne]] || [[Lionel Barrymore]], [[Doris Rankin]] || Period drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Corsican Brothers (1920 film)|The Corsican Brothers]]'' || [[Colin Campbell (director)|Colin Campbell]] || [[Dustin Farnum]], [[Winifred Kingston]] || Adventure || Independent
+|-
+| ''[[The Cost (film)|The Cost]]'' || [[Harley Knoles]] || [[Violet Heming]], [[Edward Arnold (actor)|Edward Arnold]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Courage of Marge O'Doone]]'' || [[David Smith (director)|David Smith]] || [[Pauline Starke]], [[Niles Welch]] || Drama || [[Vitagraph]]
+|-
+| ''[[The County Fair (1920 film)|The County Fair]]'' || [[Maurice Tourneur]] || [[Helen Jerome Eddy]], [[David Butler (director)|David Butler]] || Drama || Independent
+|-
+| ''[[The Cradle of Courage]]'' || [[Lambert Hillyer]] || [[William S. Hart]], [[Ann Little]], [[Tom Santschi]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Crooked Streets]]'' || [[Paul Powell (director)|Paul Powell]] || [[Ethel Clayton]], [[Jack Holt (actor)|Jack Holt]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[A Cumberland Romance]]'' || [[Charles Maigne]] || [[Mary Miles Minter]], [[Monte Blue]], [[John Bowers (actor)|John Bowers]] || Drama || Independent
+|-
+| ''[[The Cup of Fury (film)|The Cup of Fury]]'' || [[T. Hayes Hunter]] || [[Helene Chadwick]], [[Rockliffe Fellowes]] || Drama || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[Cupid the Cowpuncher]]'' || [[Clarence G. Badger]] || [[Will Rogers]], [[Helene Chadwick]] || Comedy || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[Curtain (1920 film)|Curtain]]'' || [[James Young (director)|James Young]] || [[Katherine MacDonald]], [[Edwin B. Tilton]] || Drama || [[First National Pictures|First National]]
+|-
+| ''[[The Cyclone (1920 film)|The Cyclone]]'' || [[Clifford Smith (director)|Clifford Smith]] || [[Tom Mix]], [[Colleen Moore]] || Action || [[Fox Film]]
+|-
+| ''[[Cynthia of the Minute]]'' || [[Perry N. Vekroff]] || [[Leah Baird]], [[Burr McIntosh]] || Adventure || Independent
+|-
+|}
+
+== D ==
+{| class="wikitable"
+|-
+! style="width:30%;"| Title
+! style="width:20%;"| Director
+! style="width:34%;"| Featured Cast
+! style="width:10%;"| Genre
+! style="width:10%;"| Note
+|-
+| ''[[The Dancin' Fool]]'' || [[Sam Wood]] || [[Wallace Reid]], [[Bebe Daniels]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Dangerous Business (1920 film)|Dangerous Business]]'' || [[Roy William Neill]] || [[Constance Talmadge]], [[Kenneth Harlan]] || Comedy || [[First National Pictures|First National]]
+|-
+| ''[[Dangerous Days (film)|Dangerous Days]]'' || [[Reginald Barker]] || [[Lawson Butt]], [[Clarissa Selwynne]], [[Rowland V. Lee]] || Drama || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[The Dangerous Paradise]]'' || [[William P. S. Earle]] || [[Louise Huff]], [[Harry Benham]] || Drama || [[Selznick Pictures|Selznick]]
+|-
+| ''[[The Dangerous Talent]]'' || [[George L. Cox]] || [[Margarita Fischer]], [[Beatrice Van]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[Dangerous to Men]]'' || [[William C. Dowlan]] || [[Viola Dana]], [[Milton Sills]] || Comedy || [[Metro Pictures|Metro]]
+|-
+| ''[[The Daredevil (1920 film)|The Daredevil]]'' || [[Tom Mix]] || [[Tom Mix]], [[Eva Novak]] || Western || [[Fox Film]]
+|-
+| ''[[A Dark Lantern]]'' || [[John S. Robertson]] || [[Alice Brady]], [[Reginald Denny (actor)|Reginald Denny]] || Drama || [[Independent film|Independent]]
+|-
+| ''[[Darling Mine]]'' || [[Laurence Trimble]] || [[Olive Thomas]], [[Walter McGrail]] || Drama || [[Selznick Pictures|Selznick]]
+|-
+| ''[[The Dark Mirror (1920 film)|The Dark Mirror]]'' || [[Charles Giblyn]] || [[Dorothy Dalton]], [[Huntley Gordon]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[A Daughter of Two Worlds]]'' || [[James Young (director)|James Young]] || [[Norma Talmadge]], [[William Shea (actor)|William Shea]] || Drama || [[First National Pictures|First National]]
+|-
+| ''[[The Daughter Pays]]'' || [[Robert Ellis (actor, born 1892)|Robert Ellis]] || [[Elaine Hammerstein]], [[Norman Trevor]] || Drama || [[Selznick Pictures|Selznick]]
+|-
+| ''[[The Dead Line (1920 film)|The Dead Line]]'' || [[Dell Henderson]] || [[George Walsh]], [[Irene Boyle]] || Action || [[Fox Film]]
+|-
+| ''[[Dead Men Tell No Tales (1920 film)|Dead Men Tell No Tales]]'' || [[Tom Terriss]] || [[Catherine Calvert]], [[Percy Marmont]], [[Holmes Herbert]] || Adventure || [[Vitagraph]]
+|-
+| ''[[The Deadlier Sex]]'' || [[Robert Thornby]] || [[Blanche Sweet]], [[Winter Hall]] || Comedy || [[Pathe Exchange]]
+|-
+| ''[[Deadline at Eleven]]'' || [[George Fawcett]] || [[Corinne Griffith]], [[Webster Campbell]] || Drama || [[Vitagraph]]
+|-
+| ''[[The Deep Purple (1920 film)|The Deep Purple]]'' || [[Raoul Walsh]] || [[Miriam Cooper]], [[Helen Ware]] || Crime || Independent
+|-
+| ''[[Deep Waters (1920 film)|Deep Waters]]'' || [[Maurice Tourneur]] || [[Barbara Bedford (actress)|Barbara Bedford]], [[John Gilbert (actor)|John Gilbert]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Desert Love]]'' || [[Jacques Jaccard]] || [[Tom Mix]], [[Francelia Billington]], [[Eva Novak]] || Western || [[Fox Film]]
+|-
+| ''[[The Desperate Hero]]'' || [[Wesley Ruggles]] || [[Owen Moore]], [[Gloria Hope]] || Comedy || [[Selznick Pictures|Selznick]]<ref>{{cite web|url=http://www.tcm.com/tcmdb/title/493692/The-Desperate-Hero/|title=The Desperate Hero (1920) – Overview|website=Turner Classic Movies}}</ref>
+|-
+| ''[[The Devil's Claim]]'' || [[Charles Swickard]] || [[Sessue Hayakawa]], [[Colleen Moore]], [[Rhea Mitchell]] || Drama || [[Film Booking Offices of America|FBO]]
+|-
+| ''[[The Devil's Garden]]'' || [[Kenneth Webb]] || [[Lionel Barrymore]], [[May McAvoy]], [[Doris Rankin]] || Drama || [[First National Pictures|First National]]
+|-
+| ''[[The Devil's Pass Key]]'' || [[Erich von Stroheim]] || [[Sam de Grasse]], [[Mae Busch]] || Drama || [[Universal Pictures|Universal]]
+|-
+| ''[[The Devil's Riddle]]'' || [[Frank Beal]] || [[Gladys Brockwell]], [[William Scott (actor)|William Scott]] || Drama || [[Fox Film]]
+|-
+| ''[[The Devil to Pay (1920 film)|The Devil to Pay]]'' || [[Ernest C. Warde]] || [[Roy Stewart]], [[Robert McKim (actor)|Robert McKim]], [[Fritzi Brunette]] || Mystery || [[Pathe Exchange]]
+|-
+| ''[[Dice of Destiny]]'' || [[Henry King (director)|Henry King]] || [[H. B. Warner]], [[Lillian Rich]] || Crime || [[Pathe Exchange]]
+|-
+| ''[[Dinty (film)|Dinty]]'' || [[Marshall Neilan]] || [[Wesley Barry]], [[Noah Beery]], [[Colleen Moore]] || Adventure comedy || [[First National Pictures|First National]]
+|-
+| ''[[The Discarded Woman]]'' || [[Burton L. King]] || [[Grace Darling (actress)|Grace Darling]], [[Rod La Rocque]] || Drama || Independent
+|-
+| ''[[Dollar for Dollar]]'' || [[Frank Keenan]] || [[Kathleen Kirkham]], [[Harry von Meter]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[Dollars and Sense (film)|Dollars and Sense]]'' || [[Harry Beaumont]] || [[Madge Kennedy]], [[Kenneth Harlan]] || Drama || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[Dollars and the Woman]]'' || [[George Terwilliger]] || [[Alice Joyce]], [[Crauford Kent]] || Drama || [[Vitagraph]]
+|-
+| ''[[Don't Ever Marry]]'' || [[Marshall Neilan]] || [[Matt Moore (actor)|Matt Moore]], [[Marjorie Daw (actress)|Marjorie Daw]] || Comedy || [[First National Pictures|First National]]
+|-
+| ''[[Double Speed]]'' || [[Sam Wood]] || [[Wallace Reid]], [[Wanda Hawley]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[A Double-Dyed Deceiver]]'' || [[Alfred E. Green]] || [[Jack Pickford]], Marie Dunn || Crime drama || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[Down Home (film)|Down Home]]'' || [[Irvin Willat]] || [[Leatrice Joy]], [[James O. Barrows]] || Drama || Independent
+|-
+| ''[[Down on the Farm (1920 film)|Down on the Farm]]'' || [[Erle C. Kenton]] || [[Louise Fazenda]], [[Harry Gribbon]] || Comedy || [[United Artists]]
+|-
+| ''[[Dr. Jekyll and Mr. Hyde (1920 film)|Dr. Jekyll and Mr. Hyde]]'' || [[John S. Robertson]] || [[John Barrymore]] || Horror || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Drag Harlan]]'' || [[J. Gordon Edwards]] || [[William Farnum]], [[Jackie Saunders]] || Western || [[Fox Film]]
+|-
+| ''[[The Dream Cheater]]'' || [[Ernest C. Warde]] || [[J. Warren Kerrigan]], [[Wedgwood Nowell]] || Horror || Independent
+|-
+| ''[[Duds (film)|Duds]]'' || [[Thomas R. Mills]] || [[Tom Moore (actor)|Tom Moore]], [[Naomi Childers]], [[Christine Mayo]] || Mystery || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[The Dwelling Place of Light (film)|The Dwelling Place of Light]]'' || [[Jack Conway (filmmaker)|Jack Conway]] || [[Claire Adams]], [[Nigel De Brulier]] || Drama || [[Pathe Exchange]]
+|-
+|}
+
+== E ==
+{| class="wikitable"
+|-
+! style="width:30%;"| Title
+! style="width:20%;"| Director
+! style="width:34%;"| Featured Cast
+! style="width:10%;"| Genre
+! style="width:10%;"| Note
+|-
+| ''[[Earthbound (1920 film)|Earthbound]]'' || [[T. Hayes Hunter]] || [[Wyndham Standing]], [[Mahlon Hamilton]], [[Naomi Childers]] || Drama || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[Easy to Get]]'' || [[Walter Edwards (director)|Walter Edwards]] || [[Marguerite Clark]], [[Rod La Rocque]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Empire of Diamonds]]'' || [[Léonce Perret]] || [[Robert Elliott (actor)|Robert Elliott]], [[Lucy Fox]] || Crime || [[Pathe Exchange]]
+|-
+| ''[[The Eternal Mother (1920 film)|The Eternal Mother]]'' || [[Will S. Davis]] || [[Florence Reed]], [[Lionel Atwill]], [[Gareth Hughes]] || Drama || Independent
+|-
+| ''[[Even as Eve]]'' || [[B. A. Rolfe]] || [[Sally Crute]], [[Marc McDermott]] || Comedy || [[First National Pictures|First National]]
+|-
+| ''[[Everybody's Sweetheart (1920 film)|Everybody's Sweetheart]]'' || [[Laurence Trimble]] || [[Olive Thomas]], [[William Collier Jr.]] || Comedy drama || [[Selznick Pictures|Selznick]]
+|-
+| ''[[Everything But the Truth (1920 film)|Everything But the Truth]]'' || [[Eddie Lyons]] || [[Eddie Lyons]], [[Lee Moran]], [[Anne Cornwall]] || Comedy || [[Universal Pictures|Universal]]
+|-
+| ''[[Excuse My Dust (1920 film)|Excuse My Dust]]'' || [[Sam Wood]] || [[Wallace Reid]], [[Ann Little]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Eyes of the Heart (film)|Eyes of the Heart]]'' || [[Paul Powell (director)|Paul Powell]] || [[Mary Miles Minter]], [[Edmund Burns]], [[Lucien Littlefield]] || Crime || Independent
+|-
+|}
+
+== F ==
+{| class="wikitable"
+|-
+! style="width:30%;"| Title
+! style="width:20%;"| Director
+! style="width:34%;"| Featured Cast
+! style="width:10%;"| Genre
+! style="width:10%;"| Note
+|-
+| ''[[The Face at Your Window]]'' || [[Richard Stanton]] || [[Gina Relly]], [[Earl Metcalfe]] || Drama || [[Fox Film]]
+|-
+| ''[[Faith (1920 film)|Faith]]'' || [[Howard M. Mitchell]] || [[Peggy Hyland]], [[Winter Hall]] || Drama || [[Fox Film]]
+|-
+| ''[[The False Road]]'' || [[Fred Niblo]] || [[Enid Bennett]], [[Lloyd Hughes (actor)|Lloyd Hughes]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Family Honor]]'' || [[King Vidor]] || [[Florence Vidor]], [[Roscoe Karns]] || Drama || [[First National Pictures|First National]]
+|-
+| ''[[The Fatal Hour (1920 film)|The Fatal Hour]]'' || [[George Terwilliger]] || [[Wilfred Lytell]], [[Lionel Pape]] || Drama || [[Metro Pictures|Metro]]
+|-
+| ''[[The Fear Market]]'' || [[Kenneth Webb]] || [[Alice Brady]], [[Frank Losee]] || Drama || Independent
+|-
+| ''[[Felix O'Day]]'' || [[Robert Thornby]] || [[H. B. Warner]], [[Marguerite Snow]], [[Lillian Rich]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[The Fighting Chance (1920 film)|The Fighting Chance]]'' || [[Charles Maigne]] || [[Anna Q. Nilsson]], [[Conrad Nagel]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Fighting Shepherdess]]'' || [[Edward José]], [[Millard Webb]] || [[Anita Stewart]], [[Wallace MacDonald]] || Romance || [[First National Pictures|First National]]
+|-
+| ''[[The Figurehead (film)|The Figurehead]]'' || [[Robert Ellis (actor, born 1892)|Robert Ellis]] || [[Eugene O'Brien (actor)|Eugene O'Brien]], [[Anna Q. Nilsson]], [[Ora Carew]] || Drama || [[Selznick Pictures|Selznick]]
+|-
+| ''[[Firebrand Trevison]]'' || [[Thomas N. Heffron]] || [[Buck Jones]], [[Winifred Westover]] || Western || [[Fox Film]]
+|-
+| ''[[Fixed by George]]'' || [[Eddie Lyons]] || [[Lee Moran]], [[Eddie Lyons]] || Comedy || [[Universal Pictures|Universal]]
+|-
+| ''[[Flame of Youth (1920 film)|Flame of Youth]]'' || [[Howard M. Mitchell]] || [[Shirley Mason (actress)|Shirley Mason]], [[Raymond McKee]], [[Philo McCullough]] || Drama || [[Fox Film]]
+|-
+| ''[[Flames of the Flesh]]'' || [[Edward LeSaint]] || [[Gladys Brockwell]], [[William Scott (actor)|William Scott]] || Drama || [[Fox Film]]
+|-
+| ''[[The Flaming Clue]]'' || [[Edwin L. Hollywood]] || [[Harry T. Morey]], [[Lucy Fox]] || Crime || [[Vitagraph]]
+|-
+| ''[[The Flapper]]'' || [[Alan Crosland]] || [[Olive Thomas]], [[Warren Cook]] || Comedy || [[Selznick Pictures|Selznick]]
+|-
+| ''[[Flying Pat]]'' || [[F. Richard Jones]] || [[Dorothy Gish]], [[James Rennie (actor)|James Rennie]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Food for Scandal]]'' || [[James Cruze]] || [[Wanda Hawley]], [[Harrison Ford (silent film actor)|Harrison Ford]] || Comedy || Independent
+|-
+| ''[[A Fool and His Money (1920 film)|A Fool and His Money]]'' || [[Robert Ellis (actor, born 1892)|Robert Ellis]] || [[Eugene O'Brien (actor)|Eugene O'Brien]], [[Rubye De Remer]] || Drama || [[Selznick Pictures|Selznick]]
+|-
+| ''[[Footlights and Shadows (1920 film)|Footlights and Shadows]]'' || [[John W. Noble]] || [[Olive Thomas]], [[Ivo Dawson]] || Drama || [[Selznick Pictures|Selznick]]
+|-
+| ''[[For Love or Money (1920 film)|For Love or Money]]'' || [[Burton L. King]] || [[Virginia Lee (actress)|Virginia Lee]], [[Harry Benham]] || Drama || [[Independent film|Independent]]
+|-
+| ''[[For the Soul of Rafael]]'' || [[Harry Garson]] || [[Clara Kimball Young]], [[Bertram Grassby]] || Drama || Independent
+|-
+| ''[[The Forbidden Thing]]'' || [[Allan Dwan]] || [[James Kirkwood Sr.]], [[Helen Jerome Eddy]] || Drama || [[Associated Producers]]<ref>{{cite web|url=http://www.tcm.com/tcmdb/title/513343/The-Forbidden-Thing/full-synopsis.html|title=The Forbidden Thing (1920) – Full Synopsis|website=Turner Classic Movies}}</ref>
+|-
+| ''[[Forbidden Trails]]'' || [[Scott R. Dunlap]] || [[Buck Jones]], [[Winifred Westover]] || Western || [[Fox Film]]
+|-
+| ''[[The Forbidden Valley]]'' || [[J. Stuart Blackton]] || [[May McAvoy]], [[Bruce Gordon (actor/director)|Bruce Gordon]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[The Forbidden Woman (1920 film)|The Forbidden Woman]]'' || [[Harry Garson]] || [[Clara Kimball Young]], [[Conway Tearle]] || Drama || [[Film Booking Offices of America|FBO]]
+|-
+| ''[[The Forged Bride]]'' || [[Douglas Gerrard]] || [[Mary MacLaren]], [[J. Barney Sherry]] || Crime || [[Universal Pictures|Universal]]
+|-
+| ''[[The Fortune Hunter (1920 film)|The Fortune Hunter]]'' || [[Tom Terriss]] || [[Earle Williams]], [[Jean Paige]] || Comedy || [[Vitagraph]]
+|-
+| ''[[The Fortune Teller (1920 film)|The Fortune Teller]]'' || [[Albert Capellani]] || [[Marjorie Rambeau]], [[Frederick Burton (actor)|Frederick Burton]], [[Raymond McKee]] || Drama || [[Film Booking Offices of America|FBO]]
+|-
+| ''[[45 Minutes from Broadway]]'' || [[Joseph De Grasse]] || [[Charles Ray (actor)|Charles Ray]], [[Dorothy Devore]] || Comedy || [[First National Pictures|First National]]
+|-
+| ''[[The Fourteenth Man]]'' || [[Joseph Henabery]] || [[Robert Warwick]], [[Bebe Daniels]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Frisky Mrs. Johnson]]'' || [[Edward Dillon (actor)|Edward Dillon]] || [[Billie Burke]], [[Ward Crane]], [[Lumsden Hare]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[From Now On (1920 film)|From Now On]]'' || [[Raoul Walsh]] || [[George Walsh]], [[James Marcus (American actor)|James Marcus]] || Crime || [[Fox Film]]
+|-
+| ''[[A Full House]]'' || [[James Cruze]] || [[Bryant Washburn]], [[Lois Wilson (actress)|Lois Wilson]] || Crime || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Furnace (film)|The Furnace]]'' || [[William Desmond Taylor]] || [[Agnes Ayres]], [[Jerome Patrick]] || Drama || Independent
+|-
+|}
+
+== G ==
+{| class="wikitable"
+|-
+! style="width:30%;"| Title
+! style="width:20%;"| Director
+! style="width:34%;"| Featured Cast
+! style="width:10%;"| Genre
+! style="width:10%;"| Note
+|-
+| ''[[The Gamesters]] '' || [[George L. Cox]] || [[Margarita Fischer]], [[Hayward Mack]], [[Lee Shumway]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[The Garter Girl]]'' || [[Edward H. Griffith]] || [[Corinne Griffith]], [[Sally Crute]] || Drama || [[Vitagraph]]
+|-
+| ''[[The Gauntlet (1920 film)|The Gauntlet]]'' || [[Edwin L. Hollywood]] || [[Harry T. Morey]], [[Frank Hagney]] || Drama || [[Vitagraph]]
+|-
+| ''[[The Gift Supreme]]'' || [[Ollie L. Sellers]] || [[Bernard Durning]], [[Seena Owen]], [[Tully Marshall]] || Drama || Independent
+|-
+| ''[[The Gilded Dream]]'' || [[Rollin S. Sturgeon]] || [[Carmel Myers]], [[Tom Chatterton]] || Drama || [[Universal Pictures|Universal]]
+|-
+| ''[[The Girl in Number 29]]'' || [[John Ford]] || [[Frank Mayo (actor)|Frank Mayo]], [[Elinor Fair]] || Drama || [[Universal Pictures|Universal]]
+|-
+| ''[[The Girl in the Rain]]'' || [[Rollin S. Sturgeon]] || [[Anne Cornwall]], [[Lloyd Bacon]] || Mystery || [[Universal Pictures|Universal]]
+|-
+| ''[[The Girl in the Web]]'' || [[Robert Thornby]] || [[Blanche Sweet]], [[Nigel Barrie]] || Mystery || [[Pathe Exchange]]
+|-
+| ''[[The Girl of My Heart]]'' || [[Edward LeSaint]] || [[Shirley Mason (actress)|Shirley Mason]], [[Raymond McKee]] || Adventure || [[Fox Film]]
+|-
+| ''[[Go and Get It]]'' || [[Marshall Neilan]] || [[Pat O'Malley (actor)|Pat O'Malley]], [[Wesley Barry]], [[Agnes Ayres]] || Comedy mystery || [[First National Pictures|First National]]
+|-
+| ''[[Godless Men]]'' || [[Reginald Barker]] || [[Russell Simpson (actor)|Russell Simpson]], [[Helene Chadwick]], [[John Bowers (actor)|John Bowers]] || Drama || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[Going Some]]'' || [[Harry Beaumont]] || [[Cullen Landis]], [[Helen Ferguson]] || Comedy || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[The Golden Trail (1920 film)|The Golden Trail]]'' || [[Lewis H. Moomaw]] || [[Jane Novak]], [[Jean Hersholt]] || Drama || Independent
+|-
+| ''[[Good References]]'' || [[Roy William Neill]] || [[Constance Talmadge]], [[Vincent Coleman]] || Comedy || [[First National Pictures|First National]]
+|-
+| ''[[The Great Accident]]'' || [[Harry Beaumont]] || [[Tom Moore (actor)|Tom Moore]], [[Jane Novak]] || Drama || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[The Great Lover (1920 film)|The Great Lover]]'' || [[Frank Lloyd]] || [[John St. Polis]], [[Claire Adams]] || Drama || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[The Great Redeemer]]'' || [[Clarence Brown]] || [[House Peters]], [[Marjorie Daw (actress)|Marjorie Daw]] || Western || [[Metro Pictures|Metro]]
+|-
+| ''[[The Great Shadow (film)|The Great Shadow]]'' || [[Harley Knoles]] || [[Tyrone Power Sr.]], [[Donald Hall (actor)|Donald Hall]] || Drama || [[Selznick Pictures|Selznick]]
+|-
+| ''[[Greater Than Fame]]'' || [[Alan Crosland]] || [[Elaine Hammerstein]], [[Walter McGrail]] || Drama || [[Selznick Pictures|Selznick]]
+|-
+| ''[[The Greatest Love (1920 film)|The Greatest Love]]'' || [[Henry Kolker]] || [[Vera Gordon]], [[Bertram Marburgh]] || drama || [[Selznick Pictures|Selznick]]
+|-
+| ''[[The Green Flame (1920 film)|The Green Flame]]'' || [[Ernest C. Warde]] || [[J. Warren Kerrigan]], [[Fritzi Brunette]] || Crime || [[Pathe Exchange]]
+|-
+| ''[[Guilty of Love (film)|Guilty of Love]]'' || [[Harley Knoles]] || [[Dorothy Dalton]], [[Julia Hurley (actress)|Julia Hurley]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+|}
+
+== H ==
+{| class="wikitable"
+|-
+! style="width:30%;"| Title
+! style="width:20%;"| Director
+! style="width:34%;"| Featured Cast
+! style="width:10%;"| Genre
+! style="width:10%;"| Note
+|-
+| ''[[Hairpins (film)|Hairpins]]'' || [[Fred Niblo]] || [[Enid Bennett]], [[Matt Moore (actor)|Matt Moore]], [[William Conklin]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Half a Chance]]'' || [[Robert Thornby]] || [[Mahlon Hamilton]], [[Lillian Rich]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[Half an Hour]]'' || [[Harley Knoles]] || [[Dorothy Dalton]], [[Charles Richman (actor)|Charles Richman]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Harvest Moon]]'' || [[J. Searle Dawley]] || [[Doris Kenyon]], [[Wilfred Lytell]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[Headin' Home]]'' || [[Lawrence C. Windom]] || [[Babe Ruth]], [[Margaret Seddon]] || Sports || Independent
+|-
+| ''[[The Heart of a Child (1920 film)|The Heart of a Child]]'' || [[Ray C. Smallwood]] || [[Alla Nazimova]], [[Charles Bryant (actor)|Charles Bryant]] || Drama || [[Metro Pictures|Metro]]
+|-
+| ''[[Heart of Twenty]]'' || [[Henry Kolker]] || [[Zasu Pitts]], [[Jack Pratt]] || Comedy || [[Film Booking Offices of America|FBO]]
+|-
+| ''[[Heart Strings (1920 film)|Heart Strings]]'' || [[J. Gordon Edwards]] || [[William Farnum]], [[Paul Cazeneuve]] || drama || [[Fox Film]]
+|-
+| ''[[Hearts Are Trumps (1920 American film)|Hearts Are Trumps]]'' || [[Rex Ingram (director)|Rex Ingram]] || [[Winter Hall]], [[Frank Brownlee]], [[Alice Terry]] || Drama || [[Metro Pictures|Metro]]
+|-
+| ''[[Held by the Enemy (film)|Held by the Enemy]]'' || [[Donald Crisp]] || [[Agnes Ayres]], [[Lewis Stone]], [[Wanda Hawley]] || War drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Held in Trust]]'' || [[John Ince (actor)|John Ince]] || [[May Allison]], [[Darrell Foss]] || Romance || [[Metro Pictures|Metro]]
+|-
+| ''[[Heliotrope (film)|Heliotrope]]'' || [[George D. Baker]] || [[Wilfred Lytell]], [[Julia Swayne Gordon]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Hell Ship]]'' || [[Scott R. Dunlap]] || [[Madlaine Traverse]], [[Alan Roscoe]] || Drama || [[Fox Film]]
+|-
+| ''[[Help Wanted - Male]]'' || [[Henry King (director)|Henry King]] || [[Blanche Sweet]], [[Frank Leigh]] || Comedy || [[Pathe Exchange]]
+|-
+| ''[[Help Yourself (1920 film)|Help Yourself]]'' || [[Hugo Ballin]] || [[Madge Kennedy]], [[Joseph Striker]] || Comedy || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[Her Beloved Villain]]'' || [[Sam Wood]] || [[Wanda Hawley]], [[Tully Marshall]] || Comedy || Independent
+|-
+| ''[[Her Elephant Man]]'' || [[Scott R. Dunlap]] || [[Shirley Mason (actress)|Shirley Mason]], [[Alan Roscoe]] || Drama || [[Fox Film]]
+|-
+| ''[[Her First Elopement]]'' || [[Sam Wood]] || [[Wanda Hawley]], [[Jerome Patrick]] || Drama || Independent
+|-
+| ''[[Her Five-Foot Highness]]'' || [[Harry L. Franklin]] || [[Edith Roberts (actress)|Edith Roberts]], [[Ogden Crane]] || Drama || [[Universal Pictures|Universal]]
+|-
+| ''[[Her Honor the Mayor]]'' || [[Paul Cazeneuve]] || [[Eileen Percy]], [[Ramsey Wallace]] || Drama || [[Fox Film]]
+|-
+| ''[[Her Husband's Friend]]'' || [[Fred Niblo]] || [[Enid Bennett]], [[Rowland V. Lee]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Her Unwilling Husband]]'' || [[Paul Scardon]] || [[Blanche Sweet]], [[Alan Roscoe]] || Comedy || [[Pathe Exchange]]
+|-
+| ''[[High Speed (1920 film)|High Speed]]'' || [[Charles Miller (director)|Charles Miller]] || [[Edward Earle]], [[Gladys Hulette]] || Drama || Independent
+|-
+| ''[[His House in Order (1920 film)|His House in Order]]'' || [[Hugh Ford (director)|Hugh Ford]] || [[Elsie Ferguson]], [[Holmes Herbert]], [[Vernon Steele]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[His Own Law]]'' || J. Parker Read, Jr. || [[Hobart Bosworth]], [[Rowland V. Lee]] || Drama || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[His Pajama Girl]]'' || Donald Edwards || [[Billie Rhodes]], [[Harry L. Rattenberry]] || Comedy || Independent
+|-
+| ''[[His Wife's Money]]'' || [[Ralph Ince]] || [[Eugene O'Brien (actor)|Eugene O'Brien]], [[Zena Keefe]] || Drama || [[Selznick Pictures|Selznick]]
+|-
+| ''[[Hitchin' Posts]]'' || [[John Ford (director)|John Ford]] || [[Frank Mayo (actor)|Frank Mayo]], [[Beatrice Burnham]] || Drama || [[Universal Pictures|Universal]]
+|-
+| ''[[Homer Comes Home]]'' || [[Jerome Storm]] || [[Charles Ray (actor)|Charles Ray]], [[Priscilla Bonner]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Homespun Folks]]'' || [[John Griffith Wray]] || [[Lloyd Hughes (actor)|Lloyd Hughes]], [[Gladys George]] || Drama || [[Associated Producers]]
+|-
+| ''[[Honest Hutch]]'' || [[Clarence G. Badger]] || [[Will Rogers]], [[Mary Alden]] || Drama || [[Goldwyn Pictures|Goldwyn]]<ref>{{cite web|url=http://www.bfi.org.uk/films-tv-people/4ce2b6ac8b38b|title=Honest Hutch (1920)}}</ref>
+|-
+| ''[[The Honey Bee]]'' || [[Rupert Julian]] || [[Marguerita Sylva]], [[Nigel Barrie]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[Honor Bound (1920 film)|Honor Bound]]'' || [[Jacques Jaccard]] || [[Frank Mayo (actor)|Frank Mayo]], [[Edward Coxen]] || Drama || [[Universal Pictures|Universal]]
+|-
+| ''[[The Hope (film)|The Hope]]'' || [[Herbert Blache]] || [[Jack Mulhall]], [[Marguerite De La Motte]] || Comedy || [[Metro Pictures|Metro]]
+|-
+| ''[[The House of the Tolling Bell]]'' || [[J. Stuart Blackton]] || [[May McAvoy]], [[Eulalie Jensen]] || Mystery || [[Pathe Exchange]]
+|-
+| ''[[The House of Toys]]'' || [[George L. Cox]] || [[Seena Owen]], [[Pell Trenton]], [[Helen Jerome Eddy]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[The House of Whispers]]'' || [[Ernest C. Warde]] || [[J. Warren Kerrigan]], [[Fritzi Brunette]] || Mystery || [[Pathe Exchange]]
+|-
+| ''[[Huckleberry Finn (1920 film)|Huckleberry Finn]]'' || [[William Desmond Taylor]] || [[Lewis Sargent]], [[Wallace Beery]] || Adventure || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Human Collateral]]'' || [[Lawrence C. Windom]] || [[Corinne Griffith]], [[Webster Campbell]] || Drama || [[Vitagraph]]
+|-
+| ''[[Human Stuff]]'' || [[B. Reeves Eason]] || [[Harry Carey (actor)|Harry Carey]], [[Charles Le Moyne (actor)|Charles Le Moyne]] || Western || [[Universal Pictures|Universal]]
+|-
+| ''[[Humoresque (1920 film)|Humoresque]]'' || [[Frank Borzage]] || [[Gaston Glass]], [[Vera Gordon]], [[Alma Rubens]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Husband Hunter]]'' || [[Howard M. Mitchell]] || [[Eileen Percy]], [[Emory Johnson]] || Comedy || [[Fox Film]]
+|-
+|}
+
+== I ==
+{| class="wikitable"
+|-
+! style="width:30%;"| Title
+! style="width:20%;"| Director
+! style="width:34%;"| Featured Cast
+! style="width:10%;"| Genre
+! style="width:10%;"| Note
+|-
+| ''[[The Idol Dancer]]'' || [[D. W. Griffith]] || [[Richard Barthelmess]], [[Clarine Seymour]], [[Creighton Hale]] || Drama || [[First National Pictures|First National]]
+|-
+| ''[[Idols of Clay (1920 film)|Idols of Clay]]'' || [[George Fitzmaurice]] || [[Mae Murray]], [[David Powell (actor)|David Powell]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[If I Were King (1920 film)|If I Were King]]'' || [[J. Gordon Edwards]] || [[William Farnum]], [[Betty Ross Clarke]] || Drama || [[Fox Film]]
+|-
+| ''[['If Only' Jim]]'' || [[Jacques Jaccard]] || [[Harry Carey (actor)|Harry Carey]], [[Carol Holloway]], [[Ruth Royce]] || Western || [[Universal Pictures|Universal]]
+|-
+| ''[[In Folly's Trail]]'' || [[Rollin S. Sturgeon]] || [[Carmel Myers]], [[Thomas Holding]] || Drama || [[Universal Pictures|Universal]]
+|-
+| ''[[In Search of a Sinner]]'' || [[David Kirkland]] || [[Constance Talmadge]], [[Rockliffe Fellowes]] || Comedy || [[First National Pictures|First National]]
+|-
+| ''[[In the Heart of a Fool]]'' || [[Allan Dwan]] || [[James Kirkwood Sr.|James Kirkwood]], [[Anna Q. Nilsson]] || Drama || [[First National Pictures|First National]]
+|-
+| ''[[In Walked Mary]]'' || [[George Archainbaud]] || [[June Caprice]], [[Thomas Carrigan]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[The Inferior Sex]]'' || [[Joseph Henabery]] || [[Mildred Harris]], [[Milton Sills]], [[Mary Alden]] || Drama || [[First National Pictures|First National]]
+|-
+| ''[[The Inner Voice]]'' || [[Roy William Neill]] || [[E. K. Lincoln]], [[Agnes Ayres]] || Drama || Independent
+|-
+| ''[[The Invisible Divorce]]'' || [[Thomas R. Mills]] || [[Walter McGrail]], [[Leatrice Joy]] || Drama || [[Select Pictures|Select]]
+|-
+| ''[[The Iron Heart (1920 film)|The Iron Heart]]'' || [[Denison Clift]] || [[Madlaine Traverse]], [[Edwin B. Tilton]] || Drama || [[Fox Film]]
+|-
+| ''[[The Iron Rider]]'' || [[Scott R. Dunlap]] || [[William Russell (American actor)|William Russell]], [[Vola Vale]] || Western || [[Fox Film]]
+|-
+| ''[[Isobel or The Trail's End]]'' || [[Edwin Carewe]] || [[House Peters]], [[Jane Novak]] || Adventure || Independent
+|-
+| ''[[It's a Great Life (1920 film)|It's a Great Life]]'' || [[E. Mason Hopper]] || [[Cullen Landis]], [[Molly Malone (actress)|Molly Malone]], [[Clara Horton]] || Comedy || [[Goldwyn Pictures|Goldwyn]]
+|-
+|}
+
+== J ==
+{| class="wikitable"
+|-
+! style="width:30%;"| Title
+! style="width:20%;"| Director
+! style="width:34%;"| Featured Cast
+! style="width:10%;"| Genre
+! style="width:10%;"| Note
+|-
+| ''[[The Jack-Knife Man]]'' || [[King Vidor]] || [[F. A. Turner]], [[Harry Todd]] || Drama || [[First National Pictures|First National]]
+|-
+| ''[[Jack Straw (1920 film)|Jack Straw]]'' || [[William C. deMille]] || [[Robert Warwick]], [[Carroll McComas]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Jailbird]]'' || [[Lloyd Ingraham]] || [[Douglas MacLean]], [[Doris May]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Jenny Be Good]]'' || [[William Desmond Taylor]] || [[Mary Miles Minter]], [[Jay Belasco]], [[Margaret Shelby]] || Drama || Independent
+|-
+| ''[[Jes' Call Me Jim]]'' || [[Clarence G. Badger]] || [[Will Rogers]], [[Irene Rich]], [[Lionel Belmore]] || Drama || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[The Joyous Trouble-Makers]]'' || [[J. Gordon Edwards]] || [[William Farnum]], [[Louise Lovely]] || Adventure || [[Fox Film]]
+|-
+| ''[[Judy of Rogue's Harbor]]'' || [[William Desmond Taylor]] || [[Mary Miles Minter]], [[Charles Meredith (actor)|Charles Meredith]] || Drama || Independent
+|-
+| ''[[Just a Wife]]'' || [[Howard C. Hickman]] || [[Roy Stewart]], [[Leatrice Joy]] || Drama || [[Select Pictures|Select]]
+|-
+| ''[[Just Out of College]]'' || [[Alfred E. Green]] || [[Jack Pickford]], [[Molly Malone (actress)|Molly Malone]] || Comedy || [[Goldwyn Pictures|Goldwyn]]<ref>{{cite web|url=http://www.tcm.com/tcmdb/title/496227/Just-Out-of-College/|title=Just Out of College (1920) – Overview|website=Turner Classic Movies}}</ref>
+|-
+| ''[[Just Pals]]'' || [[John Ford]] || [[Buck Jones]], [[Helen Ferguson]] || Western || [[Fox Film]]
+|-
+|}
+
+== K ==
+{| class="wikitable"
+|-
+! style="width:30%;"| Title
+! style="width:20%;"| Director
+! style="width:34%;"| Featured Cast
+! style="width:10%;"| Genre
+! style="width:10%;"| Note
+|-
+| ''[[The Kentucky Colonel]]'' || [[William A. Seiter]] || [[Joseph J. Dowling]], [[Frederick Vroom]] || Drama || [[Pathe Exchange]]<ref>{{cite web|url=http://www.tcm.com/tcmdb/title/496419/The-Kentucky-Colonel/full-synopsis.html|title=The Kentucky Colonel (1920) – Full Synopsis|website=Turner Classic Movies}}</ref>
+|-
+| ''[[Kismet (1920 film)|Kismet]]'' || [[Louis J. Gasnier]] || [[Otis Skinner]], [[Rosemary Theby]], [[Elinor Fair]] || Drama || [[Film Booking Offices of America|FBO]]
+|-
+|}
+
+== L ==
+{| class="wikitable"
+|-
+! style="width:30%;"| Title
+! style="width:20%;"| Director
+! style="width:34%;"| Featured Cast
+! style="width:10%;"| Genre
+! style="width:10%;"| Note
+|-
+| ''[[The Ladder of Lies]]'' || [[Tom Forman (actor)|Tom Forman]] || [[Ethel Clayton]], [[Jean Acker]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[A Lady in Love]]'' || [[Walter Edwards (director)|Walter Edwards]] || [[Ethel Clayton]], [[Boyd Irwin]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Lady Rose's Daughter]]'' || [[Hugh Ford (director)|Hugh Ford]] || [[Elsie Ferguson]], [[David Powell (actor)|David Powell]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Land of Jazz]]'' || [[Jules Furthman]] || [[Eileen Percy]], [[Ruth Stonehouse]], [[Herbert Heyes]] || Comedy || [[Fox Film]]
+|-
+| ''[[The Last of the Mohicans (1920 American film)|The Last of the Mohicans]]'' || [[Clarence Brown]], [[Maurice Tourneur]] || [[Wallace Beery]] || Adventure || [[Associated Producers]]
+|-
+| ''[[The Last Straw (1920 film)|The Last Straw]]'' || [[Denison Clift]] || [[Buck Jones]], [[Vivian Rich]] || Western || [[Fox Film]]
+|-
+| ''[[Leave It to Me (1920 film)|Leave It to Me]]'' || [[Emmett J. Flynn]] || [[William Russell (American actor)|William Russell]], [[Eileen Percy]] || Comedy || [[Fox Film]]
+|-
+| ''[[The Leopard Woman]]'' || [[Wesley Ruggles]] || [[Louise Glaum]], [[House Peters Sr.|House Peters]] || Adventure || [[Associated Producers]]
+|-
+| ''[[Let's Be Fashionable]]'' || [[Lloyd Ingraham]] || [[Douglas MacLean]], [[Doris May]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Li Ting Lang]]'' || [[Charles Swickard]] || [[Sessue Hayakawa]], [[Allan Forrest]] || Drama || [[Film Booking Offices of America|FBO]]
+|-
+| ''[[Life (1920 film)|Life]]'' || [[Travers Vale]] || [[Nita Naldi]], [[Jack Mower]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Life of the Party (1920 film)|Life of the Party]]'' || [[Joseph Henabery]] || [[Roscoe Arbuckle]], [[Winifred Greenwood]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Life's Twist]]'' || [[Christy Cabanne]] || [[Bessie Barriscale]], [[Walter McGrail]] || Drama || [[Film Booking Offices of America|FBO]]
+|-
+| ''[[Lifting Shadows (film)|Lifting Shadows]]'' || [[Léonce Perret]] || [[Emmy Wehlen]], [[Stuart Holmes]], [[Wyndham Standing]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[A Light Woman (1920 film)|A Light Woman]]'' || [[George L. Cox]] || [[Helen Jerome Eddy]], [[Hallam Cooley]], [[Claire Du Brey]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[The Little 'Fraid Lady]]'' || [[John G. Adolfi]] || [[Mae Marsh]], [[Tully Marshall]] || Drama || [[Film Booking Offices of America|FBO]]
+|-
+| ''[[The Little Grey Mouse]]'' || [[James P. Hogan (director)|James P. Hogan]] || [[Louise Lovely]], [[Sam De Grasse]], [[Rosemary Theby]] || Drama || [[Fox Film]]
+|-
+| ''[[Little Miss Rebellion]]'' || [[George Fawcett]] || [[Dorothy Gish]], [[Ralph Graves]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Little Shepherd of Kingdom Come (1920 film)|The Little Shepherd of Kingdom Come]]'' || [[Wallace Worsley]] || [[Jack Pickford]], [[Clara Horton]], [[Pauline Starke]] || Drama || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[The Little Wanderer]]'' || [[Howard M. Mitchell]] || [[Shirley Mason (actress)|Shirley Mason]], [[Raymond McKee]] || Drama || [[Fox Film]]
+|-
+| ''[[Live Sparks]]'' || [[Ernest C. Warde]] || [[J. Warren Kerrigan]], [[Fritzi Brunette]] || Comedy || [[Pathe Exchange]]
+|-
+| ''[[Locked Lips]]'' || [[William C. Dowlan]] || [[Tsuru Aoki]], [[Yutaka Abe]] || Drama || [[Universal Pictures|Universal]]
+|-
+| ''[[Love (1920 film)|Love]]'' || [[Wesley Ruggles]] || [[Louise Glaum]], [[James Kirkwood Sr.]] || Romance || [[Associated Producers]]
+|-
+| ''[[The Love Expert]]'' || [[David Kirkland]] || [[Constance Talmadge]], [[John Halliday (actor)|John Halliday]], [[Natalie Talmadge]] || Comedy || [[First National Pictures|First National]]
+|-
+| ''[[The Love Flower]]'' || [[D. W. Griffith]] || [[Carol Dempster]], [[Richard Barthelmess]], [[George MacQuarrie]] || Drama || [[United Artists]]
+|-
+| ''[[Love's Harvest]]'' || [[Howard M. Mitchell]] || [[Shirley Mason (actress)|Shirley Mason]], [[Raymond McKee]] || Drama || [[Fox Film]]
+|-
+| ''[[Love, Honor and Behave (1920 film)|Love, Honor and Behave]]'' || [[F. Richard Jones]], [[Erle C. Kenton]] || [[Ford Sterling]], [[Charles Murray (American actor)|Charlie Murray]] || Comedy || [[First National Pictures|First National]]<ref>{{cite web|url=http://www.bfi.org.uk/films-tv-people/4ce2b6af3d731|title=Love, Honor, And Behave (1920)|website=BFI}}</ref>
+|-
+| ''[[Love, Honor and Obey]]'' || [[Leander de Cordova]] || [[Wilda Bennett]], [[Claire Whitney]] || Drama || [[Metro Pictures|Metro]]
+|-
+| ''[[Love Madness (1920 film)|Love Madness]]'' || [[Joseph Henabery]] || [[Louise Glaum]], [[Matt Moore (actor)|Matt Moore]], [[Noah Beery]] || Crime || [[Pathe Exchange]]
+|-
+| ''[[The Luck of Geraldine Laird]]'' || [[Edward Sloman]] || [[Bessie Barriscale]], [[Niles Welch]] || Drama || [[Film Booking Offices of America|FBO]]
+|-
+| ''[[The Luck of the Irish (1920 film)|The Luck of the Irish]]'' || [[Allan Dwan]] || [[James Kirkwood Sr.|James Kirkwood]], [[Anna Q. Nilsson]], [[Harry Northrup]] || Drama || [[Associated Producers]]
+|-
+|}
+
+== M ==
+{| class="wikitable"
+|-
+! style="width:30%;"| Title
+! style="width:20%;"| Director
+! style="width:34%;"| Featured Cast
+! style="width:10%;"| Genre
+! style="width:10%;"| Note
+|-
+| ''[[Madame Peacock]]'' || [[Ray C. Smallwood]] || [[Alla Nazimova]], [[John Steppling]] || Drama || [[Metro Pictures|Metro]]
+|-
+| ''[[Madame X (1920 film)|Madame X]]'' || [[Frank Lloyd]] || [[Pauline Frederick]] || Drama || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[Madonnas and Men]]'' || [[B. A. Rolfe]] || [[Anders Randolf]], [[Edmund Lowe]], [[Gustav von Seyffertitz]] || Drama || Independent
+|-
+| ''[[Man and His Woman]]'' || [[J. Stuart Blackton]] || [[Herbert Rawlinson]], [[Eulalie Jensen]], [[May McAvoy]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[A Man from Nowhere]]'' || [[Francis Ford (actor)|Francis Ford]] || [[Jack Hoxie]], Frederick Moore || Western || Independent
+|-
+| ''[[The Man Who Dared (1920 film)|The Man Who Dared]]'' || [[Emmett J. Flynn]] || [[William Russell (American actor)|William Russell]], [[Eileen Percy]] || Drama || [[Fox Film]]
+|-
+| ''[[The Man Who Had Everything]]'' || [[Alfred E. Green]] || [[Jack Pickford]], [[Lionel Belmore]] || Drama || [[Goldwyn Pictures|Goldwyn]]<ref>{{cite web|url=http://www.tcm.com/tcmdb/title/497570/The-Man-Who-Had-Everything/|title=The Man Who Had Everything (1920) – Overview|website=Turner Classic Movies}}</ref>
+|-
+| ''[[The Man Who Lost Himself (1920 film)|The Man Who Lost Himself]]'' || [[Clarence G. Badger]] || [[William Faversham]], [[Hedda Hopper]] || Comedy drama || [[Selznick Pictures|Selznick]]
+|-
+| ''[[A Manhattan Knight]]'' || [[George Beranger]] || [[George Walsh]], [[Warren Cook]] || Mystery || [[Fox Film]]
+|-
+| ''[[Man's Plaything]]'' || [[Charles Horan]] || [[Montagu Love]], [[Grace Davison]], [[Stuart Holmes]] || Drama || Independent
+|-
+| ''[[The Mark of Zorro (1920 film)|The Mark of Zorro]]'' || [[Fred Niblo]] || [[Douglas Fairbanks]], [[Marguerite De La Motte]] || [[Swashbuckler film|Swashbuckler]] || [[United Artists]]
+|-
+| ''[[Marooned Hearts]]'' || [[George Archainbaud]] || [[Conway Tearle]], [[Zena Keefe]] || Drama || [[Selznick Pictures|Selznick]]
+|-
+| ''[[The Marriage Pit]]'' || [[Frederick A. Thomson]] || [[Frank Mayo (actor)|Frank Mayo]], [[Lillian Tucker]] || Drama || [[Universal Pictures|Universal]]
+|-
+| ''[[Married Life (1920 film)|Married Life]]'' || [[Erle C. Kenton]] || [[Ben Turpin]], [[Phyllis Haver]], [[James Finlayson (actor)|James Finlayson]] || Comedy || [[First National Pictures|First National]]
+|-
+| ''[[Mary Ellen Comes to Town]]'' || [[Elmer Clifton]] || [[Dorothy Gish]], [[Kate Bruce]], [[Ralph Graves]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Mary's Ankle]]'' || [[Lloyd Ingraham]] || [[Douglas MacLean]], [[Doris May]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Master Mind (1920 film)|The Master Mind]]'' || [[Kenneth Webb]] || [[Lionel Barrymore]], [[Bradley Barker]] || Crime || [[First National Pictures|First National]]
+|-
+| ''[[A Master Stroke]]'' || [[Chester Bennett]] || [[Earle Williams]], [[Vola Vale]] || Comedy || [[Vitagraph]]
+|-
+| ''[[Merely Mary Ann (1920 film)|Merely Mary Ann]]'' || [[Edward LeSaint]] || [[Shirley Mason (actress)|Shirley Mason]], [[Casson Ferguson]] || Comedy || [[Fox Film]]
+|-
+| ''[[Mid-Channel]]'' || [[Harry Garson]] || [[Clara Kimball Young]], [[J. Frank Glendon]] || Drama || Independent
+|-
+| ''[[The Midlanders]]'' || [[Joseph De Grasse]], [[Ida May Park]] || [[Bessie Love]], [[Sydney Deane]] || Drama || Independent
+|-
+| ''[[The Midnight Bride]]'' || [[William J. Humphrey]] || [[Gladys Leslie]], [[Virginia Valli]] || Comedy || [[Vitagraph]]
+|-
+| ''[[Milestones (1920 film)|Milestones]]'' || [[Paul Scardon]] || [[Lewis Stone]], [[Alice Hollister]] || Drama || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[The Miracle of Money]]'' || [[Hobart Henley]] || [[Margaret Seddon]], Bess Gearhart Morrison || Drama || [[Pathe Exchange]]
+|-
+| ''[[The Misfit Wife]]'' || [[Edmund Mortimer (actor)|Edmund Mortimer]] || [[Alice Lake]], [[Forrest Stanley]] || Drama || [[Metro Pictures|Metro]]
+|-
+| ''[[The Misleading Lady (1920 film)|The Misleading Lady]]'' || [[George Irving (American actor)|George Irving]] || [[Bert Lytell]], [[Lucy Cotton]] || Comedy || [[Metro Pictures|Metro]]
+|-
+| ''[[Miss Hobbs]]'' || [[Donald Crisp]] || [[Wanda Hawley]], [[Harrison Ford (silent film actor)|Harrison Ford]], [[Helen Jerome Eddy]] || Comedy || Independent
+|-
+| ''[[A Modern Salome]]'' || [[Leonce Perret]] || [[Hope Hampton]], [[Percy Standing]] || Drama || [[Metro Pictures|Metro]]
+|-
+| ''[[Molly and I]]'' || [[Howard M. Mitchell]] || [[Shirley Mason (actress)|Shirley Mason]], [[Alan Roscoe]] || Drama || [[Fox Film]]
+|-
+| ''[[The Mollycoddle]]'' || [[Victor Fleming]] || [[Douglas Fairbanks]], [[Wallace Beery]], [[Ruth Renick]] || Adventure || [[United Artists]]
+|-
+| ''[[The Money Changers]]'' || [[Jack Conway (filmmaker)|Jack Conway]] || [[Robert McKim (actor)|Robert McKim]], [[Claire Adams]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[Moon Madness (1920 film)|Moon Madness]]'' || [[Colin Campbell (director)|Colin Campbell]] || [[Edith Storey]], [[Sam De Grasse]], [[Josef Swickard]] || Drama || [[Film Booking Offices of America|FBO]]
+|-
+| ''[[The Mother of His Children]] '' || [[Edward LeSaint]] || [[Gladys Brockwell]], [[William Scott (actor)|William Scott]] || Drama || [[Fox Film]]
+|-
+| ''[[Mrs. Temple's Telegram]]'' || [[James Cruze]] || [[Bryant Washburn]], [[Wanda Hawley]], [[Carmen Phillips]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Mutiny of the Elsinore (1920 film)|The Mutiny of the Elsinore]]'' || [[Edward Sloman]] || [[Mitchell Lewis]], [[Helen Ferguson]] || Action || [[Metro Pictures|Metro]]
+|-
+| ''[[My Husband's Other Wife]]'' || [[J. Stuart Blackton]] || [[Sylvia Breamer]], [[May McAvoy]] || Drama || [[Pathé Exchange]]
+|-
+| ''[[My Lady's Garter]]'' || [[Maurice Tourneur]] || [[Wyndham Standing]], [[Sylvia Breamer]] || Mystery || [[Paramount Pictures|Paramount]]
+|-
+|}
+
+== N ==
+{| class="wikitable"
+|-
+! style="width:30%;"| Title
+! style="width:20%;"| Director
+! style="width:34%;"| Featured Cast
+! style="width:10%;"| Genre
+! style="width:10%;"| Note
+|-
+| ''[[Neighbors (1920 film)|Neighbors]]'' || [[Edward F. Cline]], [[Buster Keaton]] || [[Buster Keaton]], [[Virginia Fox]] || Comedy || 
+|-
+| ''[[The New York Idea (1920 film)|The New York Idea]]'' || [[Herbert Blache]] || [[Alice Brady]], [[Lowell Sherman]], [[Hedda Hopper]] || Comedy || Independent
+|-
+| ''[[Nineteen and Phyllis]]'' || [[Joseph De Grasse]] || [[Charles Ray (actor)|Charles Ray]], [[Clara Horton]] || Comedy || [[First National Pictures|First National]]
+|-
+| ''[[Nomads of the North]]'' || David Hartford || [[Betty Blythe]], [[Lon Chaney]], [[Lewis Stone]] || Crime drama || [[First National Pictures|First National]]
+|-
+| ''[[The North Wind's Malice]]'' || [[Paul Bern]] || [[Tom Santschi]], [[Joe King (actor)|Joe King]] || Drama || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[Nothing But Lies (1920 film)|Nothing But Lies]]'' || [[Lawrence C. Windom]] || [[Taylor Holmes]], [[Justine Johnstone]] || Comedy || [[Metro Pictures|Metro]]
+|-
+| ''[[Nothing But the Truth (1920 film)|Nothing But the Truth]]'' || [[David Kirkland]] || [[Taylor Holmes]], [[Poppy Wyndham]] || Comedy || [[Metro Pictures|Metro]]
+|-
+| ''[[Notorious Miss Lisle]]'' || [[James Young (director)|James Young]] || [[Katherine MacDonald]], [[Nigel Barrie]] || Drama || [[First National Pictures|First National]]
+|-
+| ''[[The Notorious Mrs. Sands]]'' || [[Christy Cabanne]] || [[Bessie Barriscale]], [[Forrest Stanley]] || Drama || [[Film Booking Offices of America|FBO]]
+|-
+| ''[[Number 17 (1920 film)|Number 17]]'' || [[George Beranger]] || [[George Walsh]], [[Louis Wolheim]] || Adventure || [[Fox Film]]
+|-
+| ''[[Number 99 (film)|Number 99]]'' || [[Ernest C. Warde]] || [[J. Warren Kerrigan]], [[Fritzi Brunette]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[Nurse Marjorie]]'' || [[William Desmond Taylor]] || [[Mary Miles Minter]], [[Clyde Fillmore]], [[George Periolat]] || Drama || Independent
+|-
+|}
+
+== O ==
+{| class="wikitable"
+|-
+! style="width:30%;"| Title
+! style="width:20%;"| Director
+! style="width:34%;"| Featured Cast
+! style="width:10%;"| Genre
+! style="width:10%;"| Note
+|-
+| ''[[Occasionally Yours]]'' || [[James W. Horne]] || [[Lew Cody]], [[Betty Blythe]] || Drama || [[Film Booking Offices of America|FBO]]
+|-
+| ''[[Officer 666 (1920 film)|Officer 666]]'' || [[Harry Beaumont]] || [[Tom Moore (actor)|Tom Moore]], [[Jean Calhoun]], [[Jerome Patrick]] || Comedy || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[Old Dad]]'' || [[Lloyd Ingraham]] || [[Mildred Harris]], [[John St. Polis]], [[Myrtle Stedman]] || Drama || [[First National Pictures|First National]]
+|-
+| ''[[An Old Fashioned Boy]]'' || [[Jerome Storm]] || [[Charles Ray (actor)|Charles Ray]], [[Ethel Shannon]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Old Lady 31]]'' || [[John Ince (actor)|John Ince]] || [[Emma Dunn]], Henry Harmon || Comedy drama || [[Metro Pictures|Metro]]
+|-
+| ''[[On with the Dance (1920 film)|On with the Dance]]'' || [[George Fitzmaurice]] || [[Mae Murray]], [[David Powell (actor)|David Powell]], [[Holmes Herbert]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Once a Plumber]]'' || [[Eddie Lyons]] || [[Eddie Lyons]], [[Lee Moran]] || Comedy || [[Universal Pictures|Universal]]
+|-
+| ''[[Once to Every Woman (1920 film)|Once to Every Woman]]'' || [[Allen Holubar]] || [[Dorothy Phillips]], [[Margaret Mann]] || Drama || [[Universal Pictures|Universal]]
+|-
+| ''[[One Hour Before Dawn]]'' || [[Henry King (director)|Henry King]] || [[H. B. Warner]], [[Anna Q. Nilsson]] || Mystery || [[Pathe Exchange]]
+|-
+| ''[[The Orphan (1920 film)|The Orphan]]'' || [[J. Gordon Edwards]] || [[William Farnum]], [[Louise Lovely]], [[Henry Hebert]] || Western || [[Fox Film]]
+|-
+| ''[[Other Men's Shoes]]'' || [[Edgar Lewis]] || [[Crauford Kent]], [[Irene Boyle]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[Out of the Snows]] '' || [[Ralph Ince]] || [[Ralph Ince]], [[Zena Keefe]] || Drama || [[Selznick Pictures|Selznick]]
+|-
+| ''[[Out of the Storm (1920 film)|Out of the Storm]]'' || [[William Parke (director)|William Parke]] || [[Barbara Castleton]], [[John Bowers (actor)|John Bowers]], [[Sidney Ainsworth]] || Drama || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[Outside the Law (1920 film)|Outside the Law]]'' || [[Tod Browning]] || [[Priscilla Dean]], [[Wheeler Oakman]] || Crime thriller || [[Universal Pictures|Universal]]
+|-
+| ''[[Over the Hill to the Poorhouse]]'' || [[Harry Millarde]] || [[Mary Carr]], [[William Welsh (actor)|William Welsh]], [[Johnnie Walker (actor)|Johnnie Walker]] || Drama || [[Fox Film]]
+|-
+| ''[[Overland Red]]'' || [[Lynn Reynolds]] || [[Harry Carey (actor)|Harry Carey]], [[Vola Vale]] || Western || [[Universal Pictures|Universal]]
+|-
+|}
+
+== P ==
+{| class="wikitable"
+|-
+! style="width:30%;"| Title
+! style="width:20%;"| Director
+! style="width:34%;"| Featured Cast
+! style="width:10%;"| Genre
+! style="width:10%;"| Note
+|-
+| ''[[Pagan Love]]'' || [[Hugo Ballin]] || [[Mabel Ballin]], [[Togo Yamamoto]] || Romance || [[Pathe Exchange]]
+|-
+| ''[[The Palace of Darkened Windows]]'' || [[Henry Kolker]] || [[Claire Anderson]], [[Arthur Edmund Carewe]], [[Jay Belasco]] || Comedy || [[Select Pictures|Select]]
+|-
+| ''[[The Paliser Case]]'' || [[William Parke (director)|William Parke]] || [[Pauline Frederick]], [[Alan Roscoe]] || Mystery || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[Paris Green (film)|Paris Green]]'' || [[Jerome Storm]] || [[Charles Ray (actor)|Charles Ray]], [[Ann May]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Parlor, Bedroom and Bath (1920 film)|Parlor, Bedroom and Bath]]'' || [[Edward Dillon (actor)|Edward Dillon]] || [[Ruth Stonehouse]], [[Eugene Pallette]] || Comedy || [[Metro Pictures|Metro]]
+|-
+| ''[[Partners of the Night]]'' || [[Paul Scardon]] || [[Pinna Nesbit]], [[William B. Davidson]] || Drama || [[Goldwyn Pictures|Goldwyn]]
+|-
+| '' [[Passers-By]]'' || [[J. Stuart Blackton]] || [[Herbert Rawlinson]], [[Ellen Cassidy]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[Passion's Playground]]'' || [[J. A. Barry]] || [[Katherine MacDonald]], [[Norman Kerry]] || Drama || [[First National Pictures|First National]]
+|-
+| ''[[The Path She Chose]]'' || [[Phil Rosen]] || [[Anne Cornwall]], [[J. Farrell McDonald]] || Drama || [[Universal Pictures|Universal]]<ref>{{cite web|url=http://www.tcm.com/tcmdb/title/500886/The-Path-She-Chose/|title=The Path She Chose (1920) – Overview|website=Turner Classic Movies}}</ref>
+|-
+| ''[[The Peddler of Lies]]'' || [[William C. Dowlan]] || [[Frank Mayo (actor)|Frank Mayo]], [[Ora Carew]] || Mystery || [[Universal Pictures|Universal]]
+|-
+| ''[[Peaceful Valley (film)|Peaceful Valley]]'' || [[Jerome Storm]] || [[Charles Ray (actor)|Charles Ray]], [[Harry Myers]] || Comedy || [[First National Pictures|First National]]
+|-
+| ''[[Pegeen (film)|Pegeen]]'' || [[David Smith (director)|David Smith]] || [[Bessie Love]], [[Edmund Burns]] || Drama || [[Vitagraph]]
+|-
+| ''[[The Penalty (1920 film)|The Penalty]]'' || [[Wallace Worsley]] || [[Charles Clary]], [[Lon Chaney]], [[Doris Pawn]] || Crime || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[The Perfect Woman (1920 film)|The Perfect Woman]]'' || [[David Kirkland]] || [[Constance Talmadge]], [[Charles Meredith (actor)|Charles Meredith]] || Comedy || [[First National Pictures|First National]]
+|-
+| ''[[The Phantom Melody]]'' || [[Douglas Gerrard]] || [[Monroe Salisbury]], [[Henry A. Barrows]] || Drama || [[Universal Pictures|Universal]]
+|-
+| ''[[Pink Tights]]'' || [[B. Reeves Eason]] || [[Gladys Walton]], [[Jack Perrin]] || Romance || [[Universal Pictures|Universal]]
+|-
+| ''[[Pinto (film)|Pinto]]'' || [[Victor Schertzinger]] || [[Mabel Normand]], [[Cullen Landis]] || Western comedy || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[The Pleasure Seekers (1920 film)|The Pleasure Seekers]]'' || [[George Archainbaud]] || [[Elaine Hammerstein]], [[Webster Campbell]] || Drama || [[Selznick Pictures|Selznick]]
+|-
+| ''[[The Plunger]]'' || [[Dell Henderson]] || [[George Walsh]], [[Virginia Valli]] || Drama || [[Fox Film]]
+|-
+| ''[[The Point of View]]'' || [[Alan Crosland]] || [[Elaine Hammerstein]], [[Rockliffe Fellowes]] || Drama || [[Selznick Pictures|Selznick]]
+|-
+| ''[[Polly of the Storm Country]]'' || [[Arthur Rosson]] || [[Mildred Harris]], [[Emory Johnson]], [[Charlotte Burton]] || Drama || [[First National Pictures|First National]]
+|-
+| ''[[Polly With a Past (film)|Polly With a Past]]'' || [[Leander de Cordova]] || [[Ina Claire]], [[Ralph Graves]], [[Marie Wainwright]] || Drama || [[Metro Pictures|Metro]]
+|-
+| ''[[Pollyanna (1920 film)|Pollyanna]]'' || [[Paul Powell (director)|Paul Powell]] || Howard Ralston || Drama || [[United Artists]]
+|-
+| ''[[The Poor Simp]]'' || [[Victor Heerman]] || [[Owen Moore]], [[Nell Craig]], [[Harry L. Rattenberry]] || Comedy || [[Selznick Pictures|Selznick]]
+|-
+| ''[[Prairie Trails]]'' || [[George Marshall (director)|George Marshall]] || [[Tom Mix]], [[Charles K. French]] || Western || [[Fox Film]]
+|-
+| ''[[The Prey (1920 film)|The Prey]]'' || [[George L. Sargent]] || [[Harry Benham]], [[Alice Joyce]] || Drama || [[Vitagraph]]
+|-
+| ''[[The Price of Redemption]]'' || [[Dallas M. Fitzgerald]] || [[Bert Lytell]], [[Seena Owen]] || Crime || [[Metro Pictures|Metro]]
+|-
+| ''[[The Prince Chap]]'' || [[William C. deMille]] || [[Thomas Meighan]], [[Kathlyn Williams]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Prince of Avenue A]]'' || [[John Ford]] || [[James J. Corbett]], [[Richard Cummings (actor)|Richard Cummings]] || Drama || [[Universal Pictures|Universal]]
+|-
+| ''[[The Purple Cipher]]'' || [[Chester Bennett]] || [[Earle Williams]], [[Vola Vale]] || Mystery || [[Vitagraph]]
+|-
+|}
+
+== R ==
+{| class="wikitable"
+|-
+! style="width:30%;"| Title
+! style="width:20%;"| Director
+! style="width:34%;"| Featured Cast
+! style="width:10%;"| Genre
+! style="width:10%;"| Note
+|-
+| ''[[Red Foam]]'' || [[Ralph Ince]] || [[Zena Keefe]], [[Huntley Gordon]] || Drama || [[Selznick Pictures|Selznick]]
+|-
+| ''[[The Red Lane]]'' || [[Lynn Reynolds]] || [[Frank Mayo (actor)|Frank Mayo]], [[Lillian Rich]] || Drama || [[Universal Pictures|Universal]]
+|-
+| ''[[Remodeling Her Husband]]'' || [[D. W. Griffith]] || [[Dorothy Gish]], [[James Rennie (actor)|James Rennie]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Respectable by Proxy]]'' || [[J. Stuart Blackton]] || [[Sylvia Breamer]], [[Eulalie Jensen]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[The Restless Sex]]'' || [[Robert Z. Leonard]] || [[Marion Davies]], [[Carlyle Blackwell]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Revenge of Tarzan]]'' || [[Harry Revier]], [[George M. Merrick]] || [[Gene Pollar]], [[Karla Schramm]], [[Estelle Taylor]] || Adventure || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[The Riddle: Woman]]'' || [[Edward José]] || [[Geraldine Farrar]], [[Montagu Love]], [[Adele Blood]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[Riders of the Dawn (1920 film)|Riders of the Dawn]]'' || [[Jack Conway (filmmaker)|Jack Conway]] || [[Roy Stewart]], [[Claire Adams]] || Western || [[Pathe Exchange]]
+|-
+| ''[[The Right of Way (1920 film)|The Right of Way]]'' || [[John Francis Dillon (director)|John Francis Dillon]] || [[Bert Lytell]], [[Gibson Gowland]], [[Leatrice Joy]] || Drama || [[Metro Pictures|Metro]]
+|-
+| ''[[The Right to Love (1920 film)|The Right to Love]]'' || [[George Fitzmaurice]] || [[Mae Murray]], [[David Powell (actor)|David Powell]], [[Holmes Herbert]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Rio Grande (1920 film)|Rio Grande]]'' || [[Edwin Carewe]] || [[Rosemary Theby]], [[Allan Sears]] || Western || [[Pathe Exchange]]
+|-
+| ''[[Risky Business (1920 film)|Risky Business]]'' || [[Rollin S. Sturgeon]] || [[Gladys Walton]], [[Lillian Lawrence]] || Drama || [[Universal Pictures|Universal]]
+|-
+| ''[[The River's End (film)|The River's End]]'' || [[Victor Heerman]], [[Marshall Neilan]] || [[Lewis Stone]], [[Marjorie Daw (actress)|Marjorie Daw]], [[Jane Novak]] || Western || [[First National Pictures|First National]]
+|-
+| ''[[The Road of Ambition]]'' || [[William P. S. Earle]] || [[Conway Tearle]], [[Gladden James]] || Drama || [[Selznick Pictures|Selznick]]
+|-
+| ''[[The Road to Divorce]]'' || [[Phil Rosen]] || [[Mary MacLaren]], [[William Ellingford]] || Drama || [[Universal Pictures|Universal]]<ref>{{cite web|url=http://www.tcm.com/tcmdb/title/498377/The-Road-to-Divorce/|title=The Road to Divorce (1920) – Overview|website=Turner Classic Movies}}</ref>
+|-
+| ''[[Romance (1920 film)|Romance]]'' || [[Chester Withey]] || [[Doris Keane]], [[Basil Sydney]] || Romance || [[United Artists]]
+|-
+| ''[[The Romance Promoters]]'' || [[Chester Bennett]] || [[Earle Williams]], [[Helen Ferguson]] || Comedy || [[Vitagraph]]
+|-
+| ''[[A Romantic Adventuress]]'' || [[Harley Knoles]] || [[Dorothy Dalton]], [[Charles Meredith (actor)|Charles Meredith]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Rookie's Return]]'' || [[Jack Nelson (actor)|Jack Nelson]] || [[Douglas MacLean]], [[Doris May]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Rose of Nome]]'' || [[Edward LeSaint]] || [[Gladys Brockwell]], [[William Scott (actor)|William Scott]] || Drama || [[Fox Film]]
+|-
+| ''[[Rouge and Riches]]'' || [[Harry L. Franklin]] || [[Mary MacLaren]], [[Wallace MacDonald]] || Drama || [[Universal Pictures|Universal]]
+|-
+| ''[[Rogues and Romance]] '' || [[George B. Seitz]] || [[June Caprice]], [[Marguerite Courtot]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[The Round-Up (1920 film)|The Round-Up]]'' || [[George Melford]] || [[Roscoe Arbuckle]], [[Irving Cummings]], [[Mabel Julienne Scott]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+|}
+
+== S ==
+{| class="wikitable"
+|-
+! style="width:30%;"| Title
+! style="width:20%;"| Director
+! style="width:34%;"| Featured Cast
+! style="width:10%;"| Genre
+! style="width:10%;"| Note
+|-
+| ''[[The Sagebrusher]]'' || [[Edward Sloman]] || [[Marguerite De La Motte]], [[Noah Beery]] || Western || [[Pathe Exchange]]
+|-
+| ''[[Sand (1920 film)|Sand]]'' || [[Lambert Hillyer]] || [[William S. Hart]], [[Mary Thurman]] || Western || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Saphead]]'' || [[Herbert Blaché]] || [[Buster Keaton]], [[Edward Connelly]] || Comedy || [[Metro Pictures|Metro]]
+|-
+| ''[[The Scoffer]]'' || [[Allan Dwan]] || [[Mary Thurman]], [[Philo McCullough]] || Drama || [[First National Pictures|First National]]
+|-
+| ''[[Scratch My Back (film)|Scratch My Back]]'' || [[Sidney Olcott]] || [[Helene Chadwick]], [[T. Roy Barnes]] || Comedy || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[The Scuttlers]]'' || [[J. Gordon Edwards]] || [[William Farnum]], [[Jackie Saunders]] || Drama || [[Fox Film]]
+|-
+| ''[[The Sea Rider]]'' || [[Edwin L. Hollywood]] || [[Harry T. Morey]], [[Alice Calhoun]] || Drama || [[Vitagraph]]
+|-
+| ''[[The Sea Wolf (1920 film)|The Sea Wolf]]'' || [[George Melford]] || [[Noah Beery]], [[Raymond Hatton]], [[Mabel Julienne Scott]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Secret Gift]]'' || [[Harry L. Franklin]] || [[Gladys Walton]], [[Lee Kohlmar]] || Drama || [[Universal Pictures|Universal]]
+|-
+| ''[[Seeds of Vengeance]]'' || Oliver L. Sellers || [[Bernard J. Durning]], [[Eugenie Besserer]] || Drama || [[Select Pictures|Select]]
+|-
+| ''[[The Servant Question]]'' || [[Dell Henderson]] || [[William Collier Sr.]], [[Virginia Lee (actress)|Virginia Lee]] || Comedy || [[Selznick Pictures|Selznick]]
+|-
+| ''[[Sex (film)|Sex]]'' || [[Fred Niblo]] || [[Louise Glaum]], [[Irving Cummings]], [[Viola Barry]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[The Shadow of Rosalie Byrnes]]'' || [[George Archainbaud]] || [[Elaine Hammerstein]], [[Edward Langford]] || Drama || [[Selznick Pictures|Selznick]]
+|-
+| ''[[The Shark (1920 film)|The Shark]]'' || [[Dell Henderson]] || [[George Walsh]], [[Robert Broderick]] || Drama || [[Fox Film]]
+|-
+| ''[[She Couldn't Help It]]'' || [[Maurice S. Campbell]] || [[Bebe Daniels]], [[Emory Johnson]] || Comedy || Independent
+|-
+| ''[[She Loves and Lies]]'' || [[Chester Withey]] || [[Norma Talmadge]], [[Conway Tearle]] || Comedy drama || [[Select Pictures|Select]]
+|-
+| ''[[Shod with Fire]]'' || [[Emmett J. Flynn]] || [[William Russell (American actor)|William Russell]], [[Helen Ferguson]] || Western || [[Fox Film]]
+|-
+| ''[[Shore Acres (1920 film)|Shore Acres]]'' || [[Rex Ingram (director)|Rex Ingram]] || [[Alice Lake]], [[Robert D. Walker]] || Drama || [[Metro Pictures|Metro]]
+|-
+| ''[[Sick Abed]]'' || [[Sam Wood]] || [[Wallace Reid]], [[Bebe Daniels]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Silent Barrier]]'' || [[William Worthington (actor)|William Worthington]] || [[Sheldon Lewis]], [[Corinne Barker]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[Silk Hosiery]]'' || [[Fred Niblo]] || [[Enid Bennett]], [[Geoffrey Webb]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Silk Husbands and Calico Wives]]'' || [[Alfred E. Green]] || [[House Peters]], [[Mary Alden]] || Drama || Independent
+|-
+| ''[[The Silver Horde (1920 film)|The Silver Horde]]'' || [[Frank Lloyd]] || [[Myrtle Stedman]], [[Betty Blythe]] || Adventure || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[Simple Souls]]'' || [[Robert Thornby]] || [[Blanche Sweet]], [[Charles Meredith (actor)|Charles Meredith]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[The Sin That Was His]]'' || [[Hobart Henley]] || [[William Faversham]], [[Lucy Cotton]], [[Pedro de Cordoba]] || Drama || [[Selznick Pictures|Selznick]]
+|-
+| ''[[Sink or Swim (1920 film)|Sink or Swim]]'' || [[Richard Stanton]] || [[George Walsh]], [[Enid Markey]] || Comedy || [[Fox Film]]
+|-
+| ''[[Sinners (1920 film)|Sinners]]'' || [[Kenneth Webb]] || [[Alice Brady]], [[Augusta Anderson]] || Drama || Independent
+|-
+| ''[[The Sins of Rosanne]]'' || [[Tom Forman (actor)|Tom Forman]] || [[Ethel Clayton]], [[Jack Holt (actor)|Jack Holt]], [[Fontaine La Rue]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Sins of St. Anthony]]'' || [[James Cruze]] || [[Bryant Washburn]], [[Lucien Littlefield]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[A Sister to Salome]]'' || [[Edward LeSaint]] || [[Gladys Brockwell]], [[Edwin B. Tilton]] || Drama || [[Fox Film]]
+|-
+| ''[[The Six Best Cellars]]'' || [[Donald Crisp]] || [[Wanda Hawley]], [[Bryant Washburn]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Skywayman]]'' || [[James P. Hogan (director)|James P. Hogan]] || [[Ormer Locklear]], [[Louise Lovely]] || Drama || [[Fox Film]]
+|-
+| ''[[A Slave of Vanity]]'' || [[Henry Otto]] || [[Pauline Frederick]], [[Arthur Hoyt]], [[Nigel Barrie]] || Drama || [[Film Booking Offices of America|FBO]]
+|-
+| ''[[Slaves of Pride]]'' || [[George Terwilliger]] || [[Alice Joyce]], [[Percy Marmont]] || Drama || [[Vitagraph]]
+|-
+| ''[[The Slim Princess]]'' || [[Victor Schertzinger]] || [[Mabel Normand]], [[Tully Marshall]] || Comedy || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[Smoldering Embers]]'' || [[Frank Keenan]] || [[Frank Keenan]], [[Jay Belasco]], [[Katherine Van Buren]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[So Long Letty (1920 film)|So Long Letty]]'' || [[Al Christie]] || [[Colleen Moore]], [[Walter Hiers]] || Comedy || [[Film Booking Offices of America|FBO]]
+|-
+| ''[[Someone in the House]]'' || [[John Ince (actor)|John Ince]] || [[Edmund Lowe]], [[Vola Vale]] || Drama || [[Metro Pictures|Metro]]
+|-
+| ''[[Something Different (1920 film)|Something Different]]'' || [[Roy William Neill]] || [[Constance Binney]], [[Lucy Fox]], [[Ward Crane]] || Drama || Independent
+|-
+| ''[[Something to Think About]]'' || [[Cecil B. DeMille]] || [[Elliott Dexter]], [[Gloria Swanson]], [[Monte Blue]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Song of the Soul]]'' || [[John W. Noble]] || [[Vivian Martin]], [[Fritz Leiber (actor)|Fritz Leiber]] || Drama || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[The Soul of Youth]]'' || [[William Desmond Taylor]] || [[Lewis Sargent]], [[Lila Lee]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Sooner or Later (1920 film)|Sooner or Later]]'' || [[Wesley Ruggles]] || [[Owen Moore]], [[Seena Owen]] || Comedy || [[Selznick Pictures|Selznick]]
+|-
+| ''[[The Spirit of Good]]'' || [[Paul Cazeneuve]] || [[Madlaine Traverse]], [[Dick La Reno]] || Drama || [[Fox Film]]
+|-
+| ''[[A Splendid Hazard (1920)|A Splendid Hazard]]'' || [[Allan Dwan]] || [[Henry B. Walthall]], [[Rosemary Theby]] || Drama || [[First National Pictures|First National]]
+|-
+| ''[[The Sporting Duchess (1920 film)|The Sporting Duchess]]'' || [[George Terwilliger]] || [[Alice Joyce]], [[Percy Marmont]] || Drama || [[Vitagraph]]
+|-
+| ''[[Square Shooter (1920 film)|Square Shooter]]'' || [[Paul Cazeneuve]] || [[Buck Jones]], [[Charles K. French]] || Western || [[Fox Film]]
+|-
+| ''[[The Star Rover (film)|The Star Rover]]'' || [[Edward Sloman]] || [[Courtenay Foote]], [[Thelma Percy]] || Drama || [[Metro Pictures|Metro]]
+|-
+| ''[[The Stealers]]'' || [[Christy Cabanne]] || [[William H. Tooker]], [[Norma Shearer]] || Drama || [[Film Booking Offices of America|FBO]]
+|-
+| ''[[The Stolen Kiss]]'' || [[Kenneth Webb]] || [[Constance Binney]], [[Rod La Rocque]] || Romance || Independent
+|-
+| ''[[Stolen Moments (1920 film)|Stolen Moments]]'' || [[James Vincent]] || [[Rudolph Valentino]], [[Marguerite Namara]] || Drama || Independent
+|-
+| ''[[Stop Thief (film)|Stop Thief]]'' || [[Harry Beaumont]] || [[Tom Moore (actor)|Tom Moore]], [[Hazel Daly]], [[Irene Rich]] || Comedy || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[The Strange Boarder]]'' || [[Clarence G. Badger]] || [[Will Rogers]], [[Irene Rich]] || Comedy || [[Goldwyn Pictures|Goldwyn]]<ref>{{cite web|url=http://www.tcm.com/tcmdb/title/500990/The-Strange-Boarder/|title=The Strange Boarder (1920) – Overview|website=Turner Classic Movies}}</ref>
+|-
+| ''[[The Street Called Straight]]'' || [[Wallace Worsley]] || [[Charles Clary]], [[Naomi Childers]], [[Lawson Butt]] || Drama || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[Stronger Than Death (1920 film)]]'' || [[Robert Z. Leonard]] || [[Alla Nazimova]], [[Charles Bryant (actor)|Charles Bryant]] || Drama || [[Metro Pictures|Metro]]
+|-
+| ''[[The Strongest (film)|The Strongest]]'' || [[Raoul Walsh]] || [[Renée Adorée]], [[Harrison Hunter]] || Drama || [[Fox Film]]
+|-
+| ''[[Suds (film)|Suds]]'' || [[John Francis Dillon (director)|John Francis Dillon]] || [[Mary Pickford]], [[Albert Austin]] || Comedy || [[United Artists]]
+|-
+| ''[[Sundown Slim]]'' || [[Val Paul]] || [[Harry Carey (actor)|Harry Carey]], [[Charles Le Moyne (actor)|Charles Le Moyne]] || Western || [[Universal Pictures|Universal]]
+|-
+| ''[[Sunset Sprague]]'' || [[Paul Cazeneuve]], [[Thomas N. Heffron]] || [[Buck Jones]], [[Patsy De Forest]], [[Henry Hebert]] || Western || [[Fox Film]]
+|-
+| ''[[Sweet Lavender (1920 film)|Sweet Lavender]]'' || [[Paul Powell (director)|Paul Powell]] || [[Mary Miles Minter]], [[Sylvia Ashton]], [[Milton Sills]] || Drama || Independent
+|-
+|}
+
+== T ==
+{| class="wikitable"
+|-
+! style="width:30%;"| Title
+! style="width:20%;"| Director
+! style="width:34%;"| Featured Cast
+! style="width:10%;"| Genre
+! style="width:10%;"| Note
+|-
+| ''[[The Tattlers]]'' || [[Howard M. Mitchell]] || [[Madlaine Traverse]], [[Jack Rollens]] || Drama || [[Fox Film]]
+|-
+| ''[[His Temporary Wife]]'' || [[Joseph Levering]] || [[Rubye De Remer]], [[Edmund Breese]], [[Mary Boland]] || Comedy || Independent
+|-
+| ''[[The Terror (1920 film)|The Terror]]'' || [[Jacques Jaccard]] || [[Tom Mix]], [[Francelia Billington]] || Western || [[Fox Film]]
+|-
+| ''[[Terror Island]]'' || [[James Cruze]] || [[Harry Houdini]], [[Lila Lee]] || Adventure || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Testing Block]]'' || [[Lambert Hillyer]] || [[William S. Hart]], [[Eva Novak]] || Western || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Texan (1920 film)|The Texan]]'' || [[Lynn Reynolds]] || [[Tom Mix]], [[Gloria Hope]] || Western || [[Fox Film]]
+|-
+| ''[[The Third Generation (1920 film)|The Third Generation]]'' || [[Henry Kolker]] || [[Betty Blythe]], [[Mahlon Hamilton]] || Drama || [[Film Booking Offices of America|FBO]]
+|-
+| ''[[The Third Woman (1920 film)|The Third Woman]]'' || [[Charles Swickard]] || [[Carlyle Blackwell]], [[Louise Lovely]], [[Gloria Hope]] || Drama || [[Film Booking Offices of America|FBO]]
+|-
+| ''[[The Thirteenth Commandment]]'' || [[Robert G. Vignola]] || [[Ethel Clayton]], [[Monte Blue]], [[Anna Q. Nilsson]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Thirtieth Piece of Silver]]'' || [[George L. Cox]] || [[Margarita Fischer]], [[King Baggot]], [[Forrest Stanley]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[39 East]]'' || [[John S. Robertson]] || [[Constance Binney]], [[Reginald Denny (actor)|Reginald Denny]] || Comedy || Independent
+|-
+| ''[[$30,000]]'' || [[Ernest C. Warde]] || [[J. Warren Kerrigan]], [[Fritzi Brunette]], [[Carl Stockdale]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[The Tiger's Coat]]'' || [[Roy Clements (director)|Roy Clements]] || [[Lawson Butt]], [[Myrtle Stedman]] || Drama || [[Pathe Exchange]]
+|-
+| ''[[Thou Art the Man (1920 film)|Thou Art the Man]]'' || [[Thomas N. Heffron]] || [[Robert Warwick]], [[Lois Wilson (actress)|Lois Wilson]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[A Thousand to One]]'' || [[Rowland V. Lee]] || [[Hobart Bosworth]], [[Ethel Grey Terry]] || Drama || [[Associated Producers]]
+|-
+| ''[[The Tiger's Cub]]'' || [[Charles Giblyn]] || [[Pearl White]], [[John Davidson (actor)|John Davidson]] || Drama || [[Fox Film]]
+|-
+| ''[[To Please One Woman]]'' || [[Lois Weber]] || [[Claire Windsor]], [[George Hackathorne]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[A Tokyo Siren]]'' || [[Norman Dawn]] || [[Tsuru Aoki]], [[Peggy Pearce]] || Drama || [[Universal Pictures|Universal]]
+|-
+| ''[[The Toll Gate]]'' || [[Lambert Hillyer]] || [[William S. Hart]], [[Anna Q. Nilsson]] || Western || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Tower of Jewels]]'' || [[Tom Terriss]] || [[Corinne Griffith]], [[Webster Campbell]] || Crime || [[Vitagraph]]
+|-
+| ''[[Treasure Island (1920 film)|Treasure Island]]'' || [[Maurice Tourneur]] || [[Lon Chaney]], [[Shirley Mason (actress)|Shirley Mason]] || Adventure || [[Paramount Pictures|Paramount]]
+|-
+| ''[[3 Gold Coins]]'' || [[Clifford Smith (director)|Clifford Smith]] || [[Tom Mix]], [[Margaret Loomis]] || Western || [[Fox Film]]
+|-
+| ''[[The Tree of Knowledge (1920 film)|The Tree of Knowledge]]'' || [[William C. deMille]] || [[Robert Warwick]], [[Kathlyn Williams]], [[Wanda Hawley]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Triflers (1920 film)|The Triflers]]'' || [[Christy Cabanne]] || [[Edith Roberts (actress)|Edith Roberts]], [[Forrest Stanley]] || Drama || [[Universal Pictures|Universal]]
+|-
+| ''[[Trumpet Island]]'' || [[Tom Terriss]] || [[Marguerite De La Motte]], [[Wallace MacDonald]] || Drama || [[Vitagraph]]
+|-
+| ''[[The Truth (1920 film)|The Truth]]'' || [[Lawrence C. Windom]] || [[Madge Kennedy]], [[Thomas Carrigan]] || Comedy drama || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[The Truth About Husbands]]'' || [[Kenneth S. Webb]] || [[Anna Lehr]], [[Holmes Herbert]] || Drama || [[First National Pictures|First National]]
+|-
+| ''[[The Turning Point (1920 film)|The Turning Point]]'' || J. A. Barry || [[Katherine MacDonald]], [[Nigel Barrie]] || Drama || [[First National Pictures|First National]]
+|-
+| ''[[Twin Beds (1920 film)|Twin Beds]]'' || [[Lloyd Ingraham]] || [[Carter DeHaven]], [[Flora Parker DeHaven]], [[Helen Raymond]] || Comedy || [[First National Pictures|First National]]
+|-
+| ''[[Twins of Suffering Creek]]'' || [[Scott Dunlap]] || [[William Russell (American actor)|William Russell]], [[Louise Lovely]] || Drama || [[Fox Film]]<ref>{{cite web|url=http://www.tcm.com/tcmdb/title/503513/Twins-of-Suffering-Creek/|title=Twins of Suffering Creek (1920) – Overview|website=Turner Classic Movies}}</ref>
+|-
+| ''[[Two Kinds of Love (1920 film)|Two Kinds of Love]]'' || [[B. Reeves Eason]] || [[Fontaine La Rue]], [[George A. McDaniel]] || Western || [[Universal Pictures|Universal]]
+|-
+| ''[[Two Moons (film)|Two Moons]]'' || [[Edward LeSaint]] || [[Buck Jones]], [[Carol Holloway]] || Western || [[Fox Film]]
+|-
+| ''[[Two Weeks (1920 film)|Two Weeks]]'' || [[Sidney Franklin (director)|Sidney Franklin]] || [[Constance Talmadge]], [[Conway Tearle]] || Romantic comedy || [[First National Pictures|First National]]
+|-
+|}
+
+== U ==
+{| class="wikitable"
+|-
+! style="width:30%;"| Title
+! style="width:20%;"| Director
+! style="width:34%;"| Featured Cast
+! style="width:10%;"| Genre
+! style="width:10%;"| Note
+|-
+| ''[[Uncharted Channels]]'' || [[Henry King (director)|Henry King]] || [[H. B. Warner]], [[Kathryn Adams (actress, born 1893)|Kathryn Adams]], [[Sam de Grasse]] || Drama || [[Film Booking Offices of America|FBO]]<ref>{{cite web|url=http://www.tcm.com/tcmdb/title/503758/Uncharted-Channels/|title=Uncharted Channels (1920) – Overview|website=Turner Classic Movies}}</ref>
+|-
+| ''[[Under Crimson Skies]]'' || [[Rex Ingram (director)|Rex Ingram]] || [[Elmo Lincoln]], [[Mabel Ballin]], [[Harry von Meter]] || Adventure || [[Universal Pictures|Universal]]
+|-
+| ''[[Under Northern Lights]]'' || [[Jacques Jaccard]] || [[Tom London]], [[Virginia Brown Faire]] || Drama || [[Universal Pictures|Universal]]
+|-
+| ''[[Unseen Forces (film)|Unseen Forces]]'' || [[Sidney Franklin (director)|Sidney Franklin]] || [[Sylvia Breamer]], [[Conrad Nagel]] || Drama || [[First National Pictures|First National]]<ref>{{cite web|url=https://www.filmpreservation.org/preserved-films/screening-room/unseen-forces-1920|title=National Film Preservation Foundation: Unseen Forces (1920)|website=www.filmpreservation.org}}</ref>
+|-
+| ''[[The Untamed (1920 film)|The Untamed]]'' || [[Emmett J. Flynn]] || [[Tom Mix]], [[Pauline Starke]] || Western || [[Fox Film]]
+|-
+| ''[[Up in Mary's Attic]]'' || [[William Watson (director)|William Watson]] || [[Eva Novak]], [[Harry Gribbon]] || Comedy || Independent
+|-
+| ''[[The U.P. Trail]]'' || [[Jack Conway (filmmaker)|Jack Conway]] || [[Kathlyn Williams]], [[Marguerite De La Motte]] || Western || [[Pathe Exchange]]
+|-
+|}
+
+== V ==
+{| class="wikitable"
+|-
+! style="width:30%;"| Title
+! style="width:20%;"| Director
+! style="width:34%;"| Featured Cast
+! style="width:10%;"| Genre
+! style="width:10%;"| Note
+|-
+| ''[[The Valley of Doubt]]'' || [[Burton George]] || [[Arline Pretty]], [[Thurston Hall]], [[Anna Lehr]] || Drama || [[Selznick Pictures|Selznick]]
+|-
+| ''[[The Valley of Tomorrow]] '' || [[Emmett J. Flynn]] || [[William Russell (American actor)|William Russell]], [[Mary Thurman]] || Action || [[Pathe Exchange]]
+|-
+| ''[[The Very Idea (1920 film)|The Very Idea]]'' || [[Lawrence C. Windom]] || [[Taylor Holmes]], [[Virginia Valli]] || Comedy || [[Metro Pictures|Metro]]
+|-
+| ''[[The Vice of Fools]]'' || [[Edward H. Griffith]] || [[Alice Joyce]], [[Robert Gordon (actor)|Robert Gordon]] || Drama || [[Vitagraph]]
+|-
+| ''[[The Village Sleuth]]'' || [[Jerome Storm]] || [[Charles Ray (actor)|Charles Ray]], [[Winifred Westover]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The Virgin of Stamboul]]'' || [[Tod Browning]] || [[Priscilla Dean]], [[Wallace Beery]] || Drama || [[Universal Pictures|Universal]]
+|-
+|}
+
+== W ==
+{| class="wikitable"
+|-
+! style="width:30%;"| Title
+! style="width:20%;"| Director
+! style="width:34%;"| Featured Cast
+! style="width:10%;"| Genre
+! style="width:10%;"| Note
+|-
+| ''[[The Walk-Offs]]'' || [[Herbert Blaché]] || [[May Allison]], [[Emory Johnson]] || Comedy || [[Metro Pictures|Metro]]
+|-
+| ''[[Wanted at Headquarters]]'' || [[Stuart Paton]] || [[Eva Novak]], [[Lee Shumway]] || Crime || [[Universal Pictures|Universal]]
+|-
+| ''[[Water, Water, Everywhere]]'' || [[Clarence G. Badger]] || [[Will Rogers]], [[Irene Rich]] || Comedy || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[Way Down East]]'' || [[D. W. Griffith]] || [[Lillian Gish]], [[Richard Barthelmess]], [[Lowell Sherman]] || Drama || [[United Artists]]
+|-
+| ''[[The Way Women Love]]'' || [[Marcel Perez]] || [[Rubye De Remer]], [[Walter Miller (actor)|Walter Miller]] || Mystery || Independent
+|-
+| ''[[The Web of Deceit]]'' || [[Edwin Carewe]] || [[Dolores Cassinelli]], [[Franklyn Hanna]] || Drama || [[Pathé Exchange]]
+|-
+| ''[[The Week-End]]'' || [[George L. Cox]] || [[Margarita Fischer]], [[Milton Sills]] || Comedy || [[Pathe Exchange]]
+|-
+| ''[[West Is West (1920 film)|West Is West]]'' || [[Val Paul]] || [[Harry Carey (actor)|Harry Carey]], [[Charles Le Moyne (actor)|Charles Le Moyne]] || Western || [[Universal Pictures|Universal]]
+|-
+| ''[[What Happened to Jones (1920 film)|What Happened to Jones]]'' || [[James Cruze]] || [[Bryant Washburn]], [[Margaret Loomis]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[What Happened to Rosa]]'' || [[Victor Schertzinger]] || [[Mabel Normand]], [[Tully Marshall]] || Comedy || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[What Women Love]]'' || [[Nate Watt]] || [[Annette Kellerman]], [[Ralph Lewis (actor)|Ralph Lewis]] || Comedy || [[First National Pictures|First National]]
+|-
+| ''[[What Women Want (1920 film)|What Women Want]]'' || [[George Archainbaud]] || [[Louise Huff]], [[Robert Ames (actor)|Robert Ames]] || Drama || Independent
+|-
+| ''[[What Would You Do? (film)|What Would You Do?]]'' || [[Denison Clift]] || [[Madlaine Traverse]], [[George A. McDaniel]] || Drama || [[Fox Film]]
+|-
+| ''[[What's Your Hurry?]]'' || [[Sam Wood]] || [[Wallace Reid]], [[Lois Wilson (actress)|Lois Wilson]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[What's Your Husband Doing?]]'' || [[Lloyd Ingraham]] || [[Douglas MacLean]], [[Doris May]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[When Dawn Came]]'' || [[Colin Campbell (director)|Colin Campbell]] || [[Lee Shumway]], [[Colleen Moore]] || Drama || Independent
+|-
+| ''[[While New York Sleeps]]'' || [[Charles Brabin]] || [[Estelle Taylor]], [[Marc McDermott]] || Crime || [[Fox Film]]
+|-
+| ''[[The Whisper Market]]'' || [[George L. Sargent]] || [[Corinne Griffith]], [[George MacQuarrie]], [[Eulalie Jensen]] || Drama || [[Vitagraph]]
+|-
+| ''[[Whispering Devils]]'' || [[Harry Garson]] || [[Conway Tearle]], [[Rosemary Theby]] || Drama || Independent
+|-
+| ''[[Whispers (1920 film)|Whispers]]'' || [[William P. S. Earle]] || [[Elaine Hammerstein]], [[Matt Moore (actor)|Matt Moore]] || Drama || [[Selznick Pictures|Selznick]]
+|-
+| ''[[The White Circle]]'' || [[Maurice Tourneur]] || [[Spottiswoode Aitken]], [[Harry Northrup]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[The White Dove (1920 film)|The White Dove]]'' || [[Henry King (director)|Henry King]] || [[H. B. Warner]], [[Clare Adams]] || Drama || [[Film Booking Offices of America|FBO]]<ref>{{cite web|url=http://www.tcm.com/tcmdb/title/503287/The-White-Dove/|title=The White Dove (1920) – Overview|website=Turner Classic Movies}}</ref>
+|-
+| ''[[White Lies (1920 film)|White Lies]]'' || [[Edward LeSaint]] || [[Gladys Brockwell]], [[Josephine Crowell]] || Drama || [[Fox Film]]
+|-
+| ''[[The White Moll]]'' || [[Harry Millarde]] || [[Pearl White]], [[Richard Travers]] || Crime || [[Fox Film]]
+|-
+| ''[[White Youth]]'' || [[Norman Dawn]] || [[Edith Roberts (actress)|Edith Roberts]], [[Alfred Hollingsworth]] || Drama || [[Universal Pictures|Universal]]
+|-
+| ''[[Why Change Your Wife?]]'' || [[Cecil B. DeMille]] || [[Gloria Swanson]], [[Thomas Meighan]], [[Bebe Daniels]] || Comedy || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Why Women Sin]]'' || [[Burton L. King]] || [[Anna Luther]], [[Claire Whitney]], [[Charles K. Gerrard]] || Drama || Independent
+|-
+| ''[[The Willow Tree (1920 film)|The Willow Tree]]'' || [[Henry Otto]] || [[Viola Dana]], [[Edward Connelly]] || Drama || [[Metro Pictures|Metro]]
+|-
+| ''[[Within Our Gates]]'' || [[Oscar Micheaux]] || [[Evelyn Preer]], [[Floy Clements]] || Drama || Independent
+|-
+| ''[[The Woman and the Puppet (1920 film)|The Woman and the Puppet]]'' || [[Reginald Barker]] || [[Geraldine Farrar]], [[Lou Tellegen]], [[Dorothy Cumming]] || Romance || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[The Woman Game]]'' || [[William P. S. Earle]] || [[Elaine Hammerstein]], [[Florence Billings]] || Drama || [[Selznick Pictures|Selznick]]
+|-
+| ''[[The Woman Gives]]'' || [[Roy William Neill]] || [[Norma Talmadge]], [[Edmund Lowe]] || Drama || [[First National Pictures|First National]]
+|-
+| ''[[The Woman God Sent]]'' || [[Laurence Trimble]] || [[Zena Keefe]], [[Warren Cook]] || Drama || [[Selznick Pictures|Selznick]]
+|-
+| ''[[The Woman in His House (1920 film)|The Woman in His House]]'' || [[John M. Stahl]] || [[Mildred Harris]], [[Ramsey Wallace]] || Drama || [[First National Pictures|First National]]
+|-
+| ''[[The Woman in Room 13]]'' || [[Frank Lloyd]] || [[Pauline Frederick]], [[Richard Tucker (actor)|Richard Tucker]] || Mystery || [[Goldwyn Pictures|Goldwyn]]
+|-
+| ''[[The Woman in the Suitcase]]'' || [[Fred Niblo]] || [[Enid Bennett]], [[William Conklin]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[A Woman Who Understood]]'' || [[William Parke (director)|William Parke]] || [[Bessie Barriscale]], [[Forrest Stanley]] || Drama || [[Film Booking Offices of America|FBO]]
+|-
+| ''[[A Woman's Business]]'' || [[B.A. Rolfe]] || [[Olive Tell]], [[Edmund Lowe]], [[Donald Hall (actor)|Donald Hall]] || Drama || [[Independent film|Independent]]
+|-
+| ''[[Women Men Forget]]'' || [[John M. Stahl]] || [[Mollie King (actress)|Mollie King]], [[Lucy Fox]] || Drama || Independent
+|-
+| ''[[The Wonder Man (film)|The Wonder Man]]'' || [[John G. Adolfi]] || [[Georges Carpentier]], [[Faire Binney]], [[Florence Billings]] || Adventure || [[Film Booking Offices of America|FBO]]
+|-
+| ''[[The Wonderful Chance]]'' || [[George Archainbaud]] || [[Eugene O'Brien (actor)|Eugene O'Brien]], [[Martha Mansfield]] || Crime || [[Selznick Pictures|Selznick]]
+|-
+| ''[[The World and His Wife]]'' || [[Robert G. Vignola]] || [[Montagu Love]], [[Alma Rubens]], [[Gaston Glass]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[A World of Folly]]'' || [[Frank Beal]] || [[Vivian Rich]], [[Philo McCullough]] || Drama || [[Fox Film]]
+|-
+| ''[[Would You Forgive?]]'' || [[Scott R. Dunlap]] || [[Vivian Rich]], [[Tom Chatterton]] || Drama || [[Fox Film]]
+|-
+| ''[[The Wrong Woman (1920 film)|The Wrong Woman]]'' || [[Ivan Abramson]] || [[Olive Tell]], [[Montagu Love]] || Drama || Independent
+|-
+|}
+
+== Y ==
+{| class="wikitable"
+|-
+! style="width:30%;"| Title
+! style="width:20%;"| Director
+! style="width:34%;"| Featured Cast
+! style="width:10%;"| Genre
+! style="width:10%;"| Note
+|-
+| ''[[The Yellow Typhoon]]'' || [[Edward José]] || [[Anita Stewart]], [[Ward Crane]], [[Joseph Kilgour]] || Drama || [[First National Pictures|First National]]
+|-
+| ''[[Yes or No (1920 film)|Yes or No]]'' || [[Roy William Neill]] || [[Norma Talmadge]], [[Frederick Burton (actor)|Frederick Burton]], [[Lowell Sherman]] || Drama || [[First National Pictures|First National]]
+|-
+| ''[[You Never Can Tell (1920 film)|You Never Can Tell]]'' || [[Chester M. Franklin]] || [[Bebe Daniels]], [[Jack Mulhall]] || Comedy || Independent
+|-
+| ''[[Young Mrs. Winthrop]]'' || [[Walter Edwards (director)|Walter Edwards]] || [[Ethel Clayton]], [[Helen Dunbar]] || Drama || [[Paramount Pictures|Paramount]]
+|-
+| ''[[Youthful Folly (1920 film)|Youthful Folly]]'' || [[Alan Crosland]] || [[Olive Thomas]], [[Crauford Kent]] || Drama || [[Selznick Pictures|Selznick]]
+|-
+|}
+
+== Serials ==
+{| class="wikitable"
+|-
+! style="width:30%;"| Title
+! style="width:20%;"| Director
+! style="width:34%;"| Featured Cast
+! style="width:10%;"| Genre
+! style="width:10%;"| Note
+|-
+| ''[[The $1,000,000 Reward]]'' || [[George A. Lessey]] || [[Lillian Walker]], [[Coit Albertson]] || Drama serial || 
+|-
+| ''[[Daredevil Jack]]'' || [[W. S. Van Dyke]] || [[Jack Dempsey]], [[Josie Sedgwick]] || Adventure serial || 
+|-
+|}
+
+== Shorts ==
+{| class="wikitable"
+|-
+! style="width:30%;"| Title
+! style="width:20%;"| Director
+! style="width:34%;"| Featured Cast
+! style="width:10%;"| Genre
+! style="width:10%;"| Note
+|-
+| ''[[Among Those Present]]'' || [[Fred C. Newmeyer]] || [[Harold Lloyd]], [[Mildred Davis]] || Comedy [[Short film|Short]] || 
+|-
+| ''[[The Big Catch]]'' || [[Leo D. Maloney]] || [[Hoot Gibson]] || Western [[Short film|Short]] || 
+|-
+| ''[[The Brand Blotter]]'' ||  || [[Hoot Gibson]] || Western || 
+|-
+| ''[[The Broncho Kid]]'' || [[Mack V. Wright]] || [[Hoot Gibson]] || Western [[Short film|Short]] || 
+|-
+| ''[[The Champion Liar]]'' || [[Hoot Gibson]] || [[Hoot Gibson]] || Western [[Short film|Short]] || 
+|-
+| ''[[Cinders (1920 film)|Cinders]]'' || [[Edward Laemmie]] || [[Hoot Gibson]] || [[Short film|Short]] || 
+|-
+| ''[[Convict 13]]'' || [[Edward F. Cline]], [[Buster Keaton]] || [[Buster Keaton]], [[Joe Roberts]] || Comedy || 
+|-
+| ''[[Double Danger (1920 film)|Double Danger]]'' || [[Albert Russell (director)|Albert Russell]] || [[Hoot Gibson]] || Western || 
+|-
+| ''[[An Eastern Westerner]]'' || [[Hal Roach]] || [[Harold Lloyd]] || Comedy || 
+|-
+| ''[[Fight It Out]]'' || [[Albert Russell (director)|Albert Russell]] || [[Hoot Gibson]] || Western || 
+|-
+| ''[[The Fightin' Terror]]'' || [[Hoot Gibson]] || [[Hoot Gibson]] || Western || 
+|-
+| ''[[A Gamblin' Fool]]'' || [[Leo D. Maloney]] || [[Hoot Gibson]] || Western || 
+|-
+| ''[[The Garage (1920 film)|The Garage]]'' || [[Roscoe Arbuckle|Fatty Arbuckle]] || [[Roscoe Arbuckle|Fatty Arbuckle]], [[Buster Keaton]] || Comedy Short || 
+|-
+| ''[[Get Out and Get Under]]'' || [[Hal Roach]] || [[Harold Lloyd]] || Comedy || 
+|-
+| ''[[The Grinning Granger]]'' || [[Leo D. Maloney]] || [[Hoot Gibson]] || Western || 
+|-
+| ''[[Hair Trigger Stuff]]'' || [[B. Reeves Eason]] || [[Hoot Gibson]] || Western || 
+|-
+| ''[[Haunted Spooks]]'' || [[Alfred J. Goulding]], [[Hal Roach]] || [[Harold Lloyd]] || Comedy || 
+|-
+| ''[[Held Up for the Makin's]]'' || [[B. Reeves Eason]] || [[Hoot Gibson]] || Western || 
+|-
+| ''[[High and Dizzy]]'' || [[Hal Roach]] || [[Harold Lloyd]] || Comedy || 
+|-
+| ''[[His Nose in the Book]]'' || [[B. Reeves Eason]] || [[Hoot Gibson]] || Western || 
+|-
+| ''[[His Royal Slyness]]'' || [[Hal Roach]] || [[Harold Lloyd]], [[Mildred Davis]] || Comedy || 
+|-
+| ''[['In Wrong' Wright]]'' || [[Albert Russell (director)|Albert Russell]] || [[Hoot Gibson]] || Western || 
+|-
+| ''[[The Jay Bird]]'' || [[Phil Rosen]] || [[Hoot Gibson]] || Western || 
+|-
+| ''[[The Man with the Punch]]'' || [[Edward Laemmle]] || [[Hoot Gibson]] || Western || 
+|-
+| ''[[Masked (film)|Masked]]'' || [[Mack V. Wright]] || [[Hoot Gibson]], [[Virginia Browne Faire]] || Western || 
+|-
+| ''[[Number, Please? (1920 film)|Number, Please?]]'' || [[Fred C. Newmeyer]], [[Hal Roach]] || [[Harold Lloyd]] || Comedy || 
+|-
+| ''[[One Law for All (film)|One Law for All]]'' || [[Leo D. Maloney]] || [[Hoot Gibson]] || Western [[Short film|Short]] || 
+|-
+| ''[[One Week (1920 film)|One Week]]'' || [[Edward F. Cline]], [[Buster Keaton]] || [[Buster Keaton]] || Comedy || 
+|-
+| ''[[The Rattler's Hiss]]'' || [[B. Reeves Eason]] || [[Hoot Gibson]] || Western || 
+|-
+| ''[[Roarin' Dan]]'' || [[Phil Rosen]] || [[Hoot Gibson]] || Western || 
+|-
+| ''[[Runnin' Straight]]'' || Arthur J. Flaven || [[Hoot Gibson]] || Western || 
+|-
+| ''[[The Scarecrow (1920 film)|The Scarecrow]]'' || [[Edward F. Cline]], [[Buster Keaton]] || [[Buster Keaton]] || Comedy [[Short film|Short]] || 
+|-
+| ''[[The Sheriff's Oath]]'' || [[Phil Rosen]] || [[Hoot Gibson]] || Western || 
+|-
+| ''[[Shipwrecked Among Cannibals]]'' || [[William F. Adler]] ||  || Documentary || 
+|-
+| ''[[The Shootin' Fool]]'' || [[Hoot Gibson]] || [[Hoot Gibson]] || Western || 
+|-
+| ''[[The Shootin' Kid]]'' || [[Hoot Gibson]] || [[Hoot Gibson]] || Western || 
+|-
+| ''[[The Smilin' Kid]]'' || Hoot Gibson || [[Hoot Gibson]] || Western || 
+|-
+| ''[[The Stranger (1920 film)|The Stranger]]'' || [[W. C. Tuttle]] || [[Hoot Gibson]] || Western || 
+|-
+| ''[[Superstition (1920 film)|Superstition]]'' || [[Edward Laemmle]] || [[Hoot Gibson]] || Western || 
+|-
+| ''[[Thieves' Clothes]]'' || [[Mack V. Wright]] || [[Hoot Gibson]], [[Alma Bennett]] || Western || 
+|-
+| ''[[Tipped Off]]'' || [[Albert Russell (director)|Albert Russell]] || [[Hoot Gibson]] || Western || 
+|-
+| ''[[The Trail of the Hound]]'' || [[Albert Russell (director)|Albert Russell]] || [[Hoot Gibson]], [[Jeff Corey]] || Western || 
+|-
+| ''[[The Two-Fisted Lover]]'' || [[Edward Laemmle]] || [[Hoot Gibson]] || Western || 
+|-
+| ''[[West Is Best]]'' || [[Phil Rosen]] || [[Hoot Gibson]], [[Josephine Hill]] || Western || 
+|-
+| ''[[Wolf Tracks (1920 film)|Wolf Tracks]]'' || [[Mack V. Wright]] || [[Hoot Gibson]] || Western || 
+|-
+|}
+
+== See also ==
+* [[1920 in the United States]]
+
+== References ==
+{{Reflist}}
+
+== External links ==
+{{Commons category-inline|Films of the United States, 1920}}
+* [https://www.imdb.com/search/title?at=0&countries=us&sort=alpha&title_type=feature&year=1920,1920 1920 films] at the [[IMDb|Internet Movie Database]]
+
+{{1920 films}}
+{{Filmsbycountry}}
+
+{{inc-film|date=October 2021}}
+
+{{DEFAULTSORT:American films of 1920}}
+[[Category:Lists of American films by year|1920]]
+[[Category:1920 in the United States|Films]]
+[[Category:Lists of 1920 films by country or language]]
+[[Category:1920s in American cinema]]
