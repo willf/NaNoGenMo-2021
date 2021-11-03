@@ -1258,7 +1258,7 @@ Wikipedia: [Down on the Farm](https://en.wikipedia.org/wiki/Down%20on%20the%20Fa
 
 ## Dr. Jekyll and Mr. Hyde
 
-*Dr. Jekyll and Mr. Hyde* is a horror directed by John S. Robertson. It stars John Barrymore.
+*Dr. Jekyll and Mr. Hyde* is a horror film directed by John S. Robertson. It stars John Barrymore.
 
 **Synopsis**: Dr. Jekyll becomes obsessed with finding a moral equivalent to his experiment, which unleashes the devastating personality of Mr. Hyde who is twisted in his pleasure of being evil. Jekyll wants to control the primal side of himself, but with the release of the potion, his own life is put in jeopardy.
 
@@ -1274,7 +1274,7 @@ Wikipedia: [Drag Harlan](https://en.wikipedia.org/wiki/Drag%20Harlan)
 
 ## The Dream Cheater
 
-*The Dream Cheater* is a horror directed by Ernest C. Warde. It stars J. Warren Kerrigan and Wedgwood Nowell.
+*The Dream Cheater* is a horror film directed by Ernest C. Warde. It stars J. Warren Kerrigan and Wedgwood Nowell.
 
 **Synopsis**: A man haunted by an unsuccessful magician hires a beautiful woman to help him stop the nightmares. She performs an occult ritual to put an end to them, but it backfires. Not understanding, she joins him in the dream world, where witches are stripping away his reality, but her help may not be enough to save him.
 

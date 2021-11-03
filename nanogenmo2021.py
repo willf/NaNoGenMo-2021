@@ -135,6 +135,8 @@ def create_brief_summary(movie_dict):
     an = "an" if genre[0] in "aeiou" else "a"
     if genre == "adventure":
         genre = "adventure film"
+    elif genre == "horror":
+        genre = "horror film"
     summary = f"*{title}* is {an} {genre} directed by {directors}. It stars {actors}."
     return summary
 
